@@ -1,14 +1,23 @@
 # i.Q
 YOU ARE FREE TO USE ANY AND ALL OF THESE AUDIO, IMAGE, VIDEO, BINARY, DATABASE, TEXT SOURCE CODE FILES COMMERCIALLY.
 
+8‘These people honor me with their lips, but their hearts are far from me. 9 They worship me in vain; they teach as doctrine the precepts of men.’” 10 TRUTH called the crowd to Him and said, “Listen and understand.…".
+
+Matthew 15:8-10
+
 ALL OF THE INCLUDED MULTIMEDIA AUDIO AND IMAGE FILES CAME FROM 1 OF 3 SOURCES ALL OF WHICH ARE FREE AND OPEN SOURCE:
 1. Original audio recordings and image animations, photography & editing by me, John Edgar Flaherty IV, johneboybaby@yahoo.com ! :-)
 2. MorgueFile.com which are OPEN SOURCE MORGUEFILE LICENSED PHOTOGRAPHIC IMAGES. THANK YOU https://morguefile.com/ ! :-)
 3. UbuntuKylin.com which are OPEN SOUCE PHOTOGRAPHIC IMAGES. THANK YOU https://www.ubuntukylin.com/?lang=en and OPEN SOURCE & LINUX community! :-)
 
+9 “All this I will give you,” Satan said, “If you will fall down and worship me.” 10 “AWAY FROM ME, Satan!” TRUTH declared. “For it is written: ‘Worship the Lord your G_D and serve G_D only.’” 11 Then the devil left him and angels came and ministered to him."
+
+Matthew 4:9-11
+
 ALL OF MY PERSONALLY WRITTEN CODE FILES ARE LICENSED UNDER THE MIT OPEN SOURCE LICENSE AND ALL OTHER OPEN SOURCE SOFTWARE CODE I USE WILL ALSO BE LICENSED UNDER THE MIT OPEN SOURCE CODE LICENSE UNLESS OTHERWISE DIRECTED BY ANOTHER OPEN SOURCE CODE LIBRARY AUTHOR.
 
 2 ... then TRUTH invited a little child to stand among them. 3 “Verily I tell you,” TRUTH said, “Unless you change and become like a little child, you will never enter the Kingdom of HEAVEN. 4 Therefore, whoever humbles himself like this little child is the greatest in the Kingdom of HEAVEN ...
+
 Matthew 18:2-4
 
 ... and NOW RISE FOR THE SINGING OF "QUR NATIQNAL ANTHEM" ... BATTER UP ... https://www.youtube.com/watch?v=HNGaa5Opfmc ... SECOND LESSON ... WISDOM RHYME ... IT'S ABOUT TIME ... BREAK THROUGH YOUR MIND ... YA'LL BE LIVIN' LIKE THE WORST RACE ... THIRD BASE AND HEADING HOME ... IT TOOK A WHOLE LOT OF TRYIN' JUST TO GET UP THAT HILL ... NOW WE UP IN THE BIG LEAGUES ... IT'S OUR TURN AT BAT ... AIN'T NOTHING WRONG WITH THAT ... coming up like family members from basements ... 
