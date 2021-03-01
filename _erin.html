@@ -1,0 +1,128 @@
+﻿<html>
+<body>
+<div id="audiocontainer"></div>
+<script>
+    var i = 0; // song index
+    var songList = [
+        'a.mp4',
+        'a.sharp.mp4',
+        'b.mp4',
+        'c.mp4',
+        'c.sharp.mp4',
+        'd.mp4',
+        'd.sharp.mp4',
+        'e.mp4',
+        'f.mp4',
+        'f.sharp.mp4',
+        'g.mp4',
+        'g.sharp.mp4',
+        'special.sauce.1.mp4',
+        'a.minor.mp4',
+        'a.sharp.minor.mp4',
+        'b.minor.mp4',
+        'c.minor.mp4',
+        'c.sharp.minor.mp4',
+        'd.minor.mp4',
+        'd.sharp.minor.mp4',
+        'e.minor.mp4',
+        'f.minor.mp4',
+        'f.sharp.minor.mp4',
+        'g.minor.mp4',
+        'g.sharp.minor.mp4',
+        'special.sauce.2.mp4',
+        'special.sauce.3.mp4',
+        'special.sauce.4.mp4',
+        'special.sauce.5.mp4',
+        'special.sauce.6.mp4',
+        'special.sauce.7.mp4',
+        'special.sauce.8.mp4',
+        'special.sauce.9.mp4',
+        'special.sauce.10.mp4',
+        'special.sauce.11.mp4',
+        'special.sauce.12.mp4',
+        'special.sauce.13.mp4',
+        'special.sauce.14.mp4',
+        'special.sauce.15.mp4',
+        'special.sauce.16.mp4',
+        'special.sauce.17.mp4',
+        'special.sauce.18.mp4',
+        'special.sauce.19.mp4',
+        'special.sauce.20.mp4',
+        'special.sauce.21.mp4',
+        'special.sauce.22.mp4',
+        'special.sauce.23.mp4',
+        'special.sauce.24.mp4',
+        'special.sauce.25.mp4',
+        'special.sauce.26.mp4',
+        'special.sauce.27.mp4',
+        'special.sauce.28.mp4',
+        'special.sauce.29.mp4',
+        'special.sauce.30.mp4',
+        'special.sauce.31.mp4',
+        'special.sauce.32.mp4',
+        'special.sauce.33.mp4',
+        'special.sauce.34.mp4',
+        'special.sauce.35.mp4',
+        'special.sauce.36.mp4',
+        'special.sauce.37.mp4',
+        'special.sauce.38.mp4',
+        'special.sauce.39.mp4',
+        'special.sauce.40.mp4',
+        'talking.chicken.mp4',
+        'talking.freaking.fantastic.mp4',
+        'talking.pick.those.notes.out.of.that.scale.to.use.for.your.leads.mp4',
+        'talking.picking.notes.out.of.those.scales.and.arranging.them.so.its.pleasing.to.your.ear.however.you.want.to.be.creative.with.it.you.know.mp4',
+        'talking.see.what.i.mean.mp4',
+        'talking.think.of.anything.right.now.man.mp4',
+        'talking.we.done.did.so.many.mp4',
+        'talking.your.killing.me.smalls.mp4'];
+
+	// create audio tag
+    var audiocontainer = document.getElementById('audiocontainer');
+    var ae = document.createElement('audio');
+    ae.id = 'audioplayer';
+    ae.src = songList[0];
+    
+    audiocontainer.appendChild(ae);
+    // create controls
+    var btnPlay = document.createElement('button');
+    var btnPrev = document.createElement('button');
+    var btnNext = document.createElement('button');
+    var testDiv = document.createElement('div');
+    btnPlay.innerHTML = 'Play/Pause';
+    btnPrev.innerHTML = 'Previous song';
+    btnNext.innerHTML = 'Next song';
+	testDiv.id = "test";
+    audiocontainer.appendChild(btnPlay);
+    audiocontainer.appendChild(btnPrev);
+    audiocontainer.appendChild(btnNext);
+    audiocontainer.appendChild(testDiv);
+
+	//add event handlers
+    ae.onplay = function () {
+		testDiv.innerHTML = 'Now playing #' + (i+1) + ' ' + songList[i];
+	};
+    ae.onended = function(){
+                             NextSong();
+    };
+    btnPlay.onclick = function() {
+		if (!ae.paused) ae.pause(); 
+		else ae.play();
+    };
+    btnPrev.onclick = PrevSong;
+    btnNext.onclick = NextSong;
+    
+    function PrevSong() {
+        i = (i > 0)? i - 1 : songList.length - 1; // choose previous index
+        ae.setAttribute("src", songList[i]);
+        ae.play();
+	}
+    function NextSong() {
+        i = (i < songList.length - 1)? i + 1 : 0; // choose next index
+        ae.setAttribute("src", songList[i]);
+        ae.play();
+	}
+
+</script>
+</body>
+</html>
