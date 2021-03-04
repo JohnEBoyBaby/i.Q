@@ -1,4 +1,8 @@
 # i.Q
+I AM COMING
+https://www.youtube.com/watch?v=8D1nbz6tDrk
+FOR THAT NUMBER ONE SPOT.
+
 TRUTH is
 the WAY
 to LIFE
