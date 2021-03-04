@@ -8,6 +8,10 @@ the WAY
 to LIFE
 with G_D.
 
+... rolling with the fatness ...
+https://www.youtube.com/watch?v=Fiu9h8ZTPoQ
+... and you don't even know what the half is ...
+
 YOU ARE FREE TO USE ANY AND ALL OF THESE AUDIO, IMAGE, VIDEO, BINARY, DATABASE, TEXT SOURCE CODE FILES COMMERCIALLY.
 
 8‘These people honor me with their lips, but their hearts are far from me. 9 They worship me in vain; they teach as doctrine the precepts of men.’” 10 TRUTH called the crowd to him and said, “Listen and understand.…".
