@@ -10,9 +10,12 @@ with G_D.
 
 YOU ARE FREE TO USE ANY AND ALL OF THESE AUDIO, IMAGE, VIDEO, BINARY, DATABASE, TEXT SOURCE CODE FILES COMMERCIALLY.
 
-8‘These people honor me with their lips, but their hearts are far from me. 9 They worship me in vain; they teach as doctrine the precepts of men.’” 10 TRUTH called the crowd to Him and said, “Listen and understand.…".
-
+8‘These people honor me with their lips, but their hearts are far from me. 9 They worship me in vain; they teach as doctrine the precepts of men.’” 10 TRUTH called the crowd to him and said, “Listen and understand.…".
 Matthew 15:8-10
+
+and their sandcastle virtues are all swept aWAY ... the tidal destruction ... the MORAL melee ...
+https://www.youtube.com/watch?v=u9bk2MrMGaA
+... as the last wave uncovers the new fangled WAY ... and your wise men don't how it feels ... to be THIQQ as BRIQQ ...
 
 ALL OF THE INCLUDED MULTIMEDIA AUDIO AND IMAGE FILES CAME FROM 1 OF 3 SOURCES ALL OF WHICH ARE FREE AND OPEN SOURCE:
 1. Original audio recordings and image animations, photography & editing by me, John Edgar Flaherty IV, johneboybaby@yahoo.com ! :-)
