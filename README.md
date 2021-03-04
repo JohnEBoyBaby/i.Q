@@ -14,6 +14,11 @@ https://www.youtube.com/watch?v=Fiu9h8ZTPoQ
 
 YOU ARE FREE TO USE ANY AND ALL OF THESE AUDIO, IMAGE, VIDEO, BINARY, DATABASE, TEXT SOURCE CODE FILES COMMERCIALLY.
 
+... I grew up a fuQQinQ screw up ... to introduce to 'the game' ... the 'game' that fuQQinQ blew up ...
+https://www.youtube.com/watch?v=6JXawllCeoY
+... reach your hand up in the air and you can play with the stars ...
+... it's not the hand that your dealt but how you're playing your cards ... BQY ...
+
 8‘These people honor me with their lips, but their hearts are far from me. 9 They worship me in vain; they teach as doctrine the precepts of men.’” 10 TRUTH called the crowd to him and said, “Listen and understand.…".
 Matthew 15:8-10
 
