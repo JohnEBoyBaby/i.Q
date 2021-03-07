@@ -1,0 +1,6 @@
+ManagementClass oMClass = new ManagementClass ("Win32_NetworkAdapterConfiguration"); 
+ManagementObjectCollection colMObj = oMCLass.GetInstances(); 
+foreach(ManagementObject objMO in colMObj) 
+{ 
+     Console.WriteLine(objMO["MacAddress"].ToString()); 
+}
