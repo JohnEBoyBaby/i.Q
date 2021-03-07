@@ -4,8 +4,8 @@
 If any of you has a grievance against another, 
    HOW DARE YOU GO TO 'law' BEFORE THE UNRIGHTEOUS instead of before the RIGHTEOUS!
 2 Do you not know that the RIGHTEOUS WILL JUDGE THE WORLD?
-   And if RIGHTEOUS are to judge the world, ...
-      ... are RIGHTEOUS not competent to judge trivial cases?
+   And if RIGHTEOUS are to judge the world, 
+      are RIGHTEOUS not competent to judge trivial cases?
 3 Do you not know that the RIGHTEOUS will judge angels?
    How much more the things of this life!…
 1st book of Corinthians Chapter 6 Verses 1-3
