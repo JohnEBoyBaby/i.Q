@@ -1,8 +1,8 @@
 # i.Q
-1 ... see you back 'home' ... PROMISE.
+CHOOSE WISELY ... beCAUSE beLOVEd ... I AM going to see you back 'home' ... PROMISE.
 
-If any of you has a grievance against another, 
-   HOW DARE YOU GO TO 'law' BEFORE THE UNRIGHTEOUS instead of before the RIGHTEOUS!
+1 If any of you has a grievance against another, 
+   HOW DARE YOU GO TO 'law' BEFORE THE UNRIGHTEOUS instead of before the RIGHTEOUS! 
 2 Do you not know that the RIGHTEOUS WILL JUDGE THE WORLD?
    And if RIGHTEOUS are to judge the world, 
       are RIGHTEOUS not competent to judge trivial cases?
