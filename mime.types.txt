@@ -1,0 +1,17 @@
+application/octet-stream
+application/pdf
+application/x-www-form-urlencoded
+application/zip
+audio/ogg;codecs=opus;base64,
+audio/ogg;codecs=vorbis;base64,
+image/png;base64,
+path/dir;encoding=utf-8
+path/file;encoding=utf-8
+text/css;encoding=utf-8
+text/html;encoding=utf-8
+text/javascript;encoding=utf-8
+text/plain;encoding=utf-8
+text/py;encoding=utf-8
+text/sql;encoding=utf-8
+video/ogg;codecs=opus;base64,
+video/ogg;codecs=vorbis;base64,
