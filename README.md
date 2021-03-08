@@ -20,7 +20,18 @@ with G_D.
 
 CHOOSE WISELY ... 'feel' me ... ONLY ONE OF US IS RIGHT ... 'feel' me now ... see you back 'home' ... PROMISE ... love you too ...
 
-... HOWEVER ... comma ...
+YOU MIGHT WANT TO WATCH AND LISTEN VERY CAREFULLY TO DANIEL AND OLIVA ... 
+https://www.youtube.com/watch?v=Dq2sCFmphy8
+... the 8th sphere ... via DarkJournalist.com ... for few are the in the know ... and fewer still understand what they know ...
+
+KEEP YOUR PUREHEART. YOU ARE GOING TO NEED IT. PROMISE.
+
+The Lesson of the Lamp
+21 TRUTH said to them, “Does anyone bring in a lamp to put it under a basket or under a bed? Doesn’t he set it on a stand? 
+22 For there is nothing hidden that will not be disclosed, and nothing concealed that will not be brought to light.
+23 If anyone has ears to hear, let him hear.”…
+Mark 4:21-23
+https://biblehub.com/mark/4-22.htm
 
 THERE IS NO FILTH IN HEAVEN.
 NONE.
