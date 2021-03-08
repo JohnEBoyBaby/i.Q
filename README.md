@@ -11,6 +11,8 @@ CHOOSE WISELY ... beCAUSE beLOVEd ... I AM going to see you back 'home' ... PROM
 1st book of Corinthians Chapter 6 Verses 1-3
 https://biblehub.com/1_corinthians/6-2.htm
 
+I AM COMING https://www.youtube.com/watch?v=8D1nbz6tDrk FOR THAT NUMBER ONE SPOT.
+
 TRUTH is
 the WAY
 to LIFE
