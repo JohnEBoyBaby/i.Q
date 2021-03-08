@@ -69,6 +69,9 @@ https://www.youtube.com/watch?v=OoeHVUmk_qw&t=1093s
 NO ONE GETS OUT OF THIS.
 THOSE WHO KNOW CANNOT SLEEP.
 
+WAS "MICHAEL" TRYING TO TELL US ALL SOMETHING WAY BACK IN THE DAY?
+https://www.youtube.com/watch?v=yURRmWtbTbo ... ANNIE ARE YOU OKAY ... HELP US NOW ... HELP US HELP US NOW ... hmmm ... SMQQTH QRIMINAL ... PUREHEART ... TRUTH ... PROTECTOR OF G_D'S CHILDREN ... WATCHMAN ... GOOD ... https://www.youtube.com/watch?v=h_D3VFfhvs4
+
 THE UNFORGIVEN
 https://www.youtube.com/watch?v=Ckom3gf57Yw
 YOU "LABEL ME" ... I "LABEL YOU" ... so I dub thee "UNFORGIVEN" ... 
