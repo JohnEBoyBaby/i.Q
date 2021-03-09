@@ -25,6 +25,23 @@ beCAUSE ...
 https://www.youtube.com/watch?v=9gcds0xLgXA
 ... I HAVE FALLEN FOR YOU ... AND I NOW I KNOW JUST WHY YOU LIKE THE RAIN ... ALWAYS FALLING FOR YOU ... I AM FALLING FOR YOU ... JUST LIKE THE RAIN ... LIKE THE RAIN ...
 
+YOU KNOW WHERE I GET MY "POWER" FROM https://www.youtube.com/watch?v=tA4JXE5Qbxo I GET MY "POWER" FROM THE CHILDREN OF THE WORLD https://www.youtube.com/watch?v=JIyzYyhcD7o ...  ... beCAUSE TRUTH is the WAY to LIFE with G_D sweet lil' mama and Blessed are the PUREHEART for they shall see G_D beLOVEd "kind" one and IN TRUTH my LOVE those with 'ears to hear' and 'eyes to see' know 100% ALL GOOD K.I.D.s LIFT UP GOOD Q.I.D.s ... WORD ... that's the 'real' down low TRUTH IN A 'REAL' down real low "kind" kind of "HOUSE OF LOVE" https://www.youtube.com/watch?v=_PZrmxQCuzI ... yQu are QrQwinQ very wise nQw, yQunQ QrasshQpper ...
+
+Blessed are the PUREHEART
+for they shall see G_D.
+Matthew 5:8
+https://biblehub.com/matthew/5-8.htm
+
+WORD.
+
+GOOD Knights In Development
+LIFT UP
+GOOD Queens In Development
+
+GOOD K.I.D.s
+LIFT UP
+GOOD Q.I.D.s
+
 ... you know what I AM getting at, RIGHT ..?
 
 ... here come ole' 'flatop' ... he come ... grooving up slowly ... he got ... ju ju eyeballs ... he one 'holy roller' ...
