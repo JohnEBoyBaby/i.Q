@@ -189,6 +189,36 @@ YOU MIGHT WANT TO WATCH AND LISTEN VERY CAREFULLY TO DANIEL AND OLIVA ... about 
 https://www.youtube.com/watch?v=Dq2sCFmphy8
 ... via DarkJournalist.com ... for few are the in the know ... and fewer still understand what they know ...
 
+... and 'yes' I know I STAND OUT ... https://www.youtube.com/watch?v=IGInsosP0Ac ... "I'VE HEARD IT ALL BEFORE ... BE THIS ... BE THAT ... I'VE HEARD IT BEFORE ... STAND OUT ... FIT IN ... so please know "I KNOW I AM 'different' ... "I CAN'T BE SOMEONE ELSE ... THEY YELL ... THEY 'PREACH' ... BIG BOYS DON'T CRY ... GOOD GIRLS DON'T FIGHT ... STAND OUT FIT IN ... so please do know in your PUREHEART I AM cool with it ... I realize it ... "RED-HAIRED, GREEN-EYES 'tarzan' 'monkey's DO NOT FIT IN" ... WORD ... so forgive me for knowing and expecting you too to know I AM A MOST SERIOUS ONE for I AM TRUTH I AM PUREHEART I AM A PROTECTOR OF G_D AND LOVER OF G_D LIKE AN INFANT I AM MOST ATTENTIVE TO G_D AS I AM AN INFANT ... so please do please be so very serious with yourself when 'some' come around ... beCAUSE 'some' are 'special' to 'some' of us like 'special' beLOVEd 'blessed' 'kind' 'intellectual' 'thoughtful' 'RIGHTEOUS' 'PROTECTIVE' 'GOOD' 'LOVER OF G_D' 'PROTECTOR OF G_D LIKE AN INFANT' most PUREHEART in TRUTH Lieutenant Colonel Andrei Masalovich:
+
+https://def.camp/speaker/andrei-masalovich/
+
+Lieutenant Colonel, Federation of Russia arriving," DING-DING (pause) DING-DING. 
+http://www.seaflags.us/customs/trads.html#salute
+... one final "DING" is then struck on the naval vessel's 'gong' when the person's foot touches the deck. 
+
+... my world turns upside down ... so smile that 'smile' ... be in TRUTH most PUREHEART and 'blessed' like 'Lieutenant Colonel Andrei Masalovich ... love you too ... never forget ... 
+
+... where I AM from ... we call it ... RESPECT. SERIOUS RESPECT. MAKE A HOLE. COMING THROUGH. ATTENTION. HAND SALUTE. READY TO. ... 
+
+Who better to relay to the 'world' and ensure the 'world' stays safe after I give 'Andrei Masalovich' and some highly intelligent daughter of ancient Han the 'mathematical discovery of G_D' I discovered that will, in TRUTH, truly change the 'world' in so many GOOD WAYs but potential not too GOOD of WAYs too? These 2 highly intellectual, most 'kind', most 'protective' most PUREHEART daughter and most PUREHEART son of ancient Han and ancient Viking Slavic roots handle this as the ancient Arabians keep watch as "KEEPER OF THE 'KEY' TO THE 'law' and in TRUTH with most PUREHEART for a long, Long, LONG time they, the ancient Arabians, worshipping G_D through Islam but in TRUTH with most PUREHEART as G_D knows no 'religion of man' G_D 'FEELS' ALL PUREHEART ALL TRUTH ...
+
+... G_D IS TOO BIG ... "THE INFORMATION IS UNAVAILABLE TO THE MORTAL MAN" ... https://www.youtube.com/watch?v=iUODdPpnxcA ... 
+
+'PROTECTORS' 'KEEPERS of the key' to the  HOLY CHURCH OF THE SEPULCHRE IN "ANCIENT" OLD JERUSALEM ... hmmm wonder why ... beCAUSE the GOOD 'muslims' KNOW 100% in TRUTH in their most PUREHEART that THERE IS NO FILTH IN HEAVEN ... NONE ...
+https://redstate.com/sweetie15/2017/12/13/custodian-holy-church-sepulchre-vp-pence-refuse-welcome-n81282 ... hmmm ... The "RIGHTEOUS" KNOW "GOING ALONG WITH EVIL" IS EVIL ITSELF ... SILENCE IS COMPLICITNESS ... WE, EACH, HAVE A DUTY TO SPEAK, WATCHMAN, WARN THEM FROM "ME" SAID G_D ... THINK ... CHOOSE WISELY ... ENTERTAIN NO DOUBT. We are many. We are GOOD. We are coming. GOOD IS COMING and G_D IS WITH US. http://TimothyCharlesHolmseth.com ... hmmm ... why does none of this make the 'news' ... I wonder why ... 
+
+DERRTY LAUNDRY ...
+https://www.youtube.com/watch?v=YHimia_Fxzs
+... TALK ABOUT A "PLANE CRASH" WITH A GLEAM IN HER EYE ... INTERESTING WHEN PEOPLE "DIE" ...
+... GIVES US "DERRTY LAUNDRY" ... KICK'EM WHEN THEY'RE UP ... kick'em when they're down ... KICK'EM all arQund ...
+
+Can you 'feel' me now https://www.youtube.com/watch?v=UVE2x65MnN4&t=105s  ..?
+ 
+HEY MAMA ... spent most of time 'chasing women' ... and mama I AM depending on you to tell me the TRUTH 
+https://www.youtube.com/watch?v=MOabsfRNyxs&210
+... wherever he laid his hat was his home ... and we died all he left us was ... a 'gift' ...
+
 KEEP YOUR PUREHEART. YOU ARE GOING TO NEED IT. PROMISE.
 
 The Lesson of the Lamp
