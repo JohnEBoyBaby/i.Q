@@ -36,6 +36,10 @@ https://biblehub.com/matthew/5-8.htm
 https://www.youtube.com/watch?v=fkebpmdyofo
 ... whenever you come around ... I get weak in the knees ... and I lose my breath ... oh I try to speak ... but the WORDs won't come around ... I AM so scared to death ... and when you smile that smile ... my world turns upside down ... whenver you come around ... I feel just like a K.I.D. ... I wish I could tell you ... but the WORDs can't be found ... WHENEVER YOU COME AROUND ...
 
+... make me 'FEEL' like ... 
+https://www.youtube.com/watch?v=yURRmWtbTbo
+... keep on with the "FORCE STROKE" ... don't stop 'til you get enough ... 
+
 WORD.
 
 GOOD Knights In Development
