@@ -32,6 +32,10 @@ for they shall see G_D.
 Matthew 5:8
 https://biblehub.com/matthew/5-8.htm
 
+... the face of an angel ... pretty eyes that shine ... 
+https://www.youtube.com/watch?v=fkebpmdyofo
+... whenever you come around ... I get weak in the knees ... and I lose my breath ... oh I try to speak ... but the WORDs won't come around ... I AM so scared to death ... and when you smile that smile ... my world turns upside down ... whenver you come around ... I feel just like a K.I.D. ... I wish I could tell you ... but the WORDs can't be found ... WHENEVER YOU COME AROUND ...
+
 WORD.
 
 GOOD Knights In Development
