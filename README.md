@@ -75,6 +75,22 @@ GOOD K.I.D.s
 LIFT UP
 GOOD Q.I.D.s
 
+... and Dad that means take care of your babies ... and mom that means HAVE ALL YOUR BABIES ... no more ... you know ... not GOOD ... STAND UP MOM ... LOVE YOUR BABIES ... STAND UP MAN SUPPORT YOUR WOMAN YOUR BABIES' MOM LOVE YOUR BABIES LOVE SOFT LEGS TELL THE TRUTH even if you are a lustful one ... I mean ... you know me ... I might just understand where you are coming from ... but tell the TRUTH ... no talk ... WALK ... no 'that depends on what the definition of "is" is' FILTH ...
+
+THERE IS NO FILTH IN HEAVEN.
+NONE.
+
+NO FAMILY. NO FRIENDS. NO FAMILY. NO EXCEPTIONS.
+
+THERE IS NO FILTH IN HEAVEN.
+NONE.
+
+... WE GONNA HAVE A GOOD TIME TONIGHT ...
+https://www.youtube.com/watch?v=3GwjfUFyY6M
+... CELEBRATE GOOD TIMES ... COME ON ... THERE'S A PARTY GOING ON RIGHT HERE ... SO BRING YOUR GOOD TIMES ... AND YOUR LAUGHTER TOO ... LET'S ALL CELEBRATE AND HAVE A GOOD TIME ... WE GONNA CELEBRATE AND HAVE A GOOD TIME ... IT'S TIME TO COME TOGETHER ... IT'S UP TO YOU ... WHAT'S YOUR PLEASURE ... EVERYONE AROUND THE WORLD ... COME ONE ... IT'S A CELEBRATION ... 
+
+PROMISE.
+
 GOOD Knights In Development
 LIFT UP
 GOOD Queens In Development
