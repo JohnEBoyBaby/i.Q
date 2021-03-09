@@ -17,6 +17,8 @@ beCAUSE ... https://www.youtube.com/watch?v=eXvBjCO19QY ... I SEE NO CHANGES ...
 
 ... all but I SEE YOU ... I SEE "CHANGES" from old Jonathan Kleck https://www.youtube.com/watch?v=uKwBp8-c_YE to the new Jonathan Kleck https://www.youtube.com/watch?v=NUjuJxJky9M Quite clearly ... do you ..?
 
+TRUTH with most PUREHEART to your PUREHEART from my PUREHEART with most GOOD INTENT of 'her' 'crossed legs' and his 'support staff' ancient Han most PUREHEART natural nature in LIFE as the WAY in TRUTH to G_D ... https://www.youtube.com/watch?v=WEOyI6QtjkE Babangon Tayo https://www.youtube.com/watch?v=15mEzGE7OcI POWER TO THE PUREHEART PILIPINAS AND TO ALL "RISE UP!" "BABANGON TAYO!" ... https://www.youtube.com/watch?v=K0XN2NGqDcM ... "LET'S GO! GO FORWARD!" "SUSULONG TAYO!" ...
+
 TRUTH is the WAY to LIFE with G_D.
 https://www.youtube.com/watch?v=9v3Qp18n-2U
 
