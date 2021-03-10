@@ -282,7 +282,7 @@ NO ONE GETS OUT OF THIS.
 THOSE WHO KNOW CANNOT SLEEP.
 
 WAS "MICHAEL" TRYING TO TELL US ALL SOMETHING WAY BACK IN THE DAY?
-https://www.youtube.com/watch?v=yURRmWtbTbo ... ANNIE ARE YOU OKAY ... HELP US NOW ... https://www.youtube.com/watch?v=h_D3VFfhvs4&t=287s ... HELP US HELP US NOW ... hmmm ... SMQQTH QRIMINAL ... PUREHEART ... TRUTH ... PROTECTOR OF G_D'S CHILDREN ... WATCHMAN ... GOOD ... https://www.youtube.com/watch?v=h_D3VFfhvs4 ... TRUTH ...
+https://www.youtube.com/watch?v=yURRmWtbTbo ... ANNIE ARE YOU OKAY ... HELP US NOW ... https://www.youtube.com/watch?v=h_D3VFfhvs4&t=287s ... HELP US HELP US NOW ... you've been hit by a ... SMQQTH QRIMINAL ... PUREHEART ... TRUTH ... PROTECTOR OF G_D'S CHILDREN ... WATCHMAN ... GOOD ... https://www.youtube.com/watch?v=h_D3VFfhvs4 ... TRUTH ...
 
 THE UNFORGIVEN
 https://www.youtube.com/watch?v=Ckom3gf57Yw
