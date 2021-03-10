@@ -1,4 +1,6 @@
 # i.Q
+... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... that is very hard to do ... Bruce Lee
+
 HIT'em with a little GHETTO GOSPEL ... my GHETTO GOSPEL ...
 https://www.youtube.com/watch?v=Do5MMmEygsY
 ... I sit ... recollect and reminisce ... GOOD DAYS ... the younger ... my heart goes to them ... 
