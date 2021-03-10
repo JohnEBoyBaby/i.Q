@@ -108,6 +108,10 @@ Well I dreamed I saw a KNIGHT in armor coming saying something about a QUEEN ...
 https://www.youtube.com/watch?v=z9C2NxO_dJs
 ... children were crying and colors were flying ... all around the 'chosen ones' ... flying mother nature's silver seed to a new home in the sun ... https://www.youtube.com/watch?v=X3IA6pIVank ... PUREHEART ... https://www.youtube.com/watch?v=Dc5x8EEXUK4 ... Blessed are the PUREHEART for they shall see G_D ... https://www.youtube.com/watch?v=aBV0EfMnsmg ... NOTHING MEANS MORE TO ME THAN TRUTH THAN PUREHEART THAN G_D NOTHING ... https://www.youtube.com/watch?v=AStDkXM2Y3I ... PUREHEART ... https://www.youtube.com/watch?v=YvKkXSgCPs4&t=148s ... sanbu 散步 ... wo san sanbu 我散散步 ... I take a walk ... women san sanbu 我們散步  ... we take a walk ... sanbu 散步 ... take a walk ... https://translate.google.com/?sl=en&tl=zh-TW&text=Take%20a%20walk%0AI%20take%20a%20walk%0AWe%20take%20a%20walk&op=translate ... sanbu ... take a walk ... https://www.youtube.com/watch?v=BYaE5RKEQbo ... PUREHEART ... MATTHEW 5:8 ... TRUTH.
 
+I THINK IT'S A NATIONAL DISGRACE HOW WE HAVE 'COMMERCIALIZED' IT ...
+https://www.youtube.com/watch?v=FYbavuReVF4
+... now when he was a young man he never thought he'd see ... how did you get so funQy ... he's my favorite 'honQy' ... dancing my the Nile ... roQQin' for a mile ... he gave his LIFE ...
+
 TRUTH is the WAY to LIFE with G_D.
 https://www.youtube.com/watch?v=9v3Qp18n-2U
 
