@@ -579,6 +579,10 @@ https://www.youtube.com/watch?v=ZrjiJp8zr5Y
 ... a ricochet biscuit is the kind of a biscuit that's supposed to bounce back off the wall and into your mouth ...
 if don't bounce back ... you go hungry ... baaah Baaah BAAAH ... what do you want for nothing ... RUBBER BISCUIT ..?
 
+... so don't worry ... I AM coming ...
+https://www.youtube.com/watch?v=FTWH1Fdkjow&t=99s
+beCAUSE you ain't seen nothing yet ... I AM A SOUL MAN ...
+
 WORD.
 
 ResQpectfully (or not),
