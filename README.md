@@ -24,7 +24,13 @@ https://www.youtube.com/watch?v=Do5MMmEygsY
 
 ... ... ... ... ... ... and peace ... young warrior ... without the sound of guns ... LORD ... HEAR ME speak! ... ... ... ... ... ...
 
-... and SQ "I THQUGHT" UP "THIS SQNG" "TQ SHQW 'MY APPRECIATION' FQR LQVING ME SQ LONG" ... YQU DON'T KNQW HQW MUCH YQU MEAN TQ ME ... 
+Have you ever seen a lil' K.I.D. who be doin' what I do ..? same ole' clowns ... pretending they 'proud' ... but when you leave town they go around running their mouths ... something like a 'hater' man ... talking about about a 'player' as if I AM not gonna 'see you later' man ... beCAUSE I keep a 'hater' GUILTY ... obey no rules ... let the young do Do DO ...
+https://www.youtube.com/watch?v=WZ_rXp6nYKQ
+... I AM basically coming from something to nothing ... when I say 'nothing' I mean 'pocket full of "lint and buttons" ... people alWAYs saying it must be nice ... but understand the money's GOOD but I AM still from the hood ... I know a few ... who could 'put you where you need to be put' ... let the 'girls do me' while 'you do  you' ... so yo' ... what da' "HOOK" gon' be ..?
+
+PUREHEART ... that's the "HOOK" ... KEEP YOUR PUREHEART ... you're gonna need it ... PROMISE.
+
+and SQ "I THQUGHT" UP "THIS SQNG" "TQ SHQW 'MY APPRECIATION' FQR LQVING ME SQ LONG" ... YQU DON'T KNQW HQW MUCH YQU MEAN TQ ME ... 
 
 https://www.youtube.com/watch?v=y7gnzVuHfdg
 
