@@ -1,6 +1,18 @@
 # i.Q
 NEW PROGRAMMER.
-NEW PROGRAMMING. 
+NEW PROGRAMMING.
+IF
+YOU BACK THE BLUE, 
+THEN
+YOU ARE GOING IN THE PIT!
+THEY ALL KNEW ALL THESE YEARS!
+SILENCE IS COMPLICITNESS.
+NO MERCY IS COMING.
+NONE.
+THERE IS NO FILTH IN HEAVEN.
+NONE.
+NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS.
+THE END.
 NEW PROGRAM.
 http://web.archive.org/web/20190810043908/http://smart3dweb.com/
 BE SURE TO LOOK "CLOSELY"
@@ -11,6 +23,7 @@ https://twitter.com/JohnEBoyBaby1
 https://twitter.com/a3dudotcom
 "CONNECT THE DOTS"
 https://twitter.com/Smart3DWeb
+"I AM TRUTH. I AM PUREHEART. I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT. A MOST SERIOUS 1 I AM."
 
 ... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ... Bruce Lee 
 ... but I 'thinQ' he's a hero .. but I may be a little 'biased' beCAUSE he's my dad ... https://www.youtube.com/watch?v=QOKKUSwEaxg ... be water my friend ... water can flow or it can CRASH ... formless ... shapeless ... be water my friend be water PUREHEART CRYSTASLLINE CLEAR PUREHEART HIGH QUALITY PURE H2O GOOD INTENT ... "RECTIFY YOUR HEART ... SEEK TO BE SINCERE ... THIS LIES IN THE INVESTIGATION OF THINGS .. LET YOUR SPIRIT OUT AS IT WILL" Bruce Lee ... https://www.youtube.com/watch?v=D1sWVjXhKfg hmmm https://www.youtube.com/watch?v=SDNhH8deZPg ... you are growing very wise now, young grasshopper ...
@@ -446,22 +459,47 @@ THINQ QF IT AS A TIME QAPSULE ...
 ONLY ONE OF US IS RIGHT ... ... see you back 'home' ... PROMISE ...
 
 'Boss the plane ... down goes WTC TOWER 1 INTO IT'S OWN FOOTPRINT TURNING INTO DUST AND MOLTEN HOT "LAVA" METAL AND ALL THE "EVIDENCE" WAS SHIPPED OUT OF THE COUNTRY NOT INVESTIGATED AND NOTHING WAS SAID BY NO POLICE DEPARTMENT, NO COURT, NO 'law' enFORCErs beCAUSE THEY ARE THE MONSTERS ... IT'S THE COPS, STUPID ... IT'S THE ZIONIST MOSSAD, CIA, FBI, MI5, MI6, ROTHSCHILD CENTRAL BANKS, UN, EU, NGOs, FAKE 'charities' FAKE TRUTHtian 'churches' PEDO POLICE PEDO PRIEST CATHOSICKS VATICAN BANK FREEMASON 'brotherhood' of the 'children of darkness as Arch Bishop Vigano called the SILENT, COMPLICIT, VICIOUS, CAGING 2-FACED, 1/2 HEART, MILITANT, DO AS I SAY OR ELSE "WEAPONIZED LOW i.Q. "JUST FOLLOWING ORDERS, boss" MILITANT MONSTERS WITH ZERO MORAL COURAGE AND ZERO SELF-ACCOUNTABILITY AND ZERO SELF-RESPECT AND ZERO SELF-WORTH AND ZERO SELF-CONFIDENCE AND ZERO MORAL AUTHORITY with the fake 'law' fake TRUTHtian ZIONIST 'JUDEO-CHRISTIAN' FILTHY 'lies' and 'deception' and 'hypocrisy' 'do as thou will' if you have a F.O.P. or little 'fish' or 'Support Our Troops' or FAKEtriot flag or whatever 'propaganda' CIA 4AM DROP MOCKINGBIRD MEDIA ABSOLUTE COMPLETE UPSIDE-DOWN REPORTING OF THE TRUTH where 'bad is GOOD' and 'GOOD is bad' beCAUSE that is what the 'darkness' does to 'conceal' the TRUTH ... Boss the plane the plane ... down goes TOWER 2 ... AT FREE FALL SPEED ... boss, Boss, BOSS, NO PLANE! No Plane! no plane ... DOWN GOES BUILDING 7! ... http://twitter.com/AE911TRUTH ... many 'respected' knowledgeable real 'civil engineers' and 'architects' and others aside from their group like Captain Field McConnel or Captain Dan Hanley, now living in Pakistan for his own safety, and given I had to live in the Philippines from September 2019 to August 2020 to escape the 'monsters' in the LMPD and B.A.R. here in not too kingly at all sick BRITISH FILTH OF A lil' boy SICK BOOFOO PEDO MONSTER kind of a weird anything but 'united' kingdom of enSLAVEd low iQ idiot court jesters serving a demonic, deviant, blood thirsty, control freak, weirdo, outcast, freak, satanic FILTHY DECEIVING, MURDEROUS, MILITANT, POLICE STATE king of nothing IN THE PIT being cleansed about now and for a long, Long, LONG TIME TO COME FILTHY FUQQINQ KING 'LOUIS'ville in KenSUQQy, ameriSICKA and then with the MONSTER "BAKLA" DUTERTE AND HIS "POLICE STATE" OF FREEMASON POLICE STATE LOW iQ PUPPETS ... YOU KNOW THE LIL' BAKLA "BOY" FREEMASON FILTHapino MASS "DRUG WAR" MURDERER, di ba ... RIGHT ..? ... RODRIGO DUTERTE THE FREEMASON FILTHapino who has murdered countless poor, relatively innocent, young with families, spouses, children LEFT BEHIND WHILE PAULO DUTERTE THE FILTHY FREEMASON LIKE MAYOR BOY AND FREEMASON ROLAND PAULINO IN OLONGAPO CITY, FILTHAPPINES ... SICK ... evil intent in their 'satanic demonic eyes' I remember the 'darkness' the 'glare' the blood the thiQQ neQQ ... SO YEAH CAPTAIN DAN HANLEY AND I AGREE ON 1/2 TRUTH MILITANT, VICIOUS, HYPOCRITIC, ZERO MORAL AUTHORITY 'law' enFORCErs are FAR MORE OF A THREAT TO MY CHILDREN AND THE CHILDREN OF THE FUTURE, WOMEN OF THE PRESENT AND FUTURE, AND ME AND THOSE I LOVE HERE WITH ME NOW AND THOSE I LOVE WHO YET I HAVE NOT MET than any simple low 'hanging' drug dealers ... but somehow overlooked the CDC AND WHO AND POLICE STATE that BAKLA MURDERER RAPIST ZIONIST DUTERTE AND HIS BAKLA BOOFOO POLICE FORCES OF FILTHY FILTHY BAKLA DECEIVER MONSTER FREEMASON MASS MURDERER ZIONIST fake jew SATANyahu MASS MURDER NETANYAHU ROTHSCHILD BALFOUR AGREEMENT EURO-NAZI 'fake' jew non @TorahJew for sure FILTH LIKE "ROME" LIKE THE Bank For International Settlements and the Vatican Bank and Rothschild Zionist Banks to FINANCIALLY ENSLAVE AND USE "POLICE STATE CONTROL" low iQ ROBOT MILITANT 'law' enFORCErs and a PLANdemic SCAMdemic and FILTHY DIRTY UNDER A MICROSCOPE CAUSING CO2 POISON DO A TEST FOR YOURSELF SICK SILENCING YOUR FREE SPEECH YOUR VOICE ONLY MAKING YOU SICK stupid fuQQinQ FILTHY DIRTY DISEASE CAUSING mask endorsed by FILTHY FREEMASON and enFORCed by FILTHY FREEMASON 'law' enFORCErs trained by fake jew 5 DANCING ISRAELIS ZIONIST POLICE STATE INNOCENT PALESTIAN ENSLAVING, TORTURING, CAGING, KILLING MURDERS ... great idea ... such a government works not and protects not WE THE PEOPLE so WE THE PEOPLE have the RIGHT the SACRED DUTY TO establish a NEW FORM OF GOVERNMENT where EVERYONE REPRESENTS THEIR OWN SELF ... OUT WITH THE SICKENING "OLD" ROTTEN MOLD AND IN WITH THE TRUTH THE NEW THE FRESH ... hmmm ... just for the yell I get ... just for the smell of it ... https://www.usatoday.com/story/news/nation/2019/06/03/duterte-philippine-leader-says-he-once-gay-but-cured-myself/1327345001/ FILTHapino POLICE STATE MONSTERS ... CAGERS ... "SHOOT THEM DEAD" ... LOCKDOWN enFORCErs ... KILLERS ... DO AS I SAY OR ELSE ... DOG CAGE CAGERS CAGING G_D'S PUREHEART making deals with evil forces in China with 'Li' and we know it ... NO ONE GETS OUT OF THIS ... NO ONE ... https://www.newsweek.com/rodrigo-duterte-philippine-president-molest-maid-rape-maid-teenager-war-drugs-1274734 https://www.rappler.com/nation/children-duterte-drug-war-lessons-past https://mindanao.politics.com.ph/paolo-duterte-one-proud-freemason/ FILTHY DEVIANT PROMOTING MORE DEVIANCY BAKLA MAIZE AND FECAL MATTER LIP DUTERTE AND HIS FREEMASON FILTHapino HYPOCRITE POLICE STATE https://www.dailymail.co.uk/news/article-6580715/Rodrigo-Duterte-calls-Catholic-Church-allow-useless-priests-boyfriends.html DUTERTE AND HIS CHILDREN OF DARKNESS POLICE STATE MEDICAL TYRANNY STATE OF MILITANT DEVIANT FILTHY MONSTERS INJURED ALREADY 730,000 CHILDREN WITH A POISONOUS DENGUE VACCINE ... NOW THE MARK OF THE BEAST ... SICK COVID FILTH ... POLICE STATE LOCKDOWN "SHOOT THEM DEAD" AFTER MASS MURDERING DRUG WARS BY A KNOWN RAPIST AND MURDERER AND BAKLA ... CONNECT THE FILTHY FREEMASON POLICE STATE UNDERGROUND TUNNELS SATANIC SOULLESS MONSTER DOTS WOULD YA ... please wegro just please ... THESE PEOPLE ARE STUPID ... darkness to LIGHT ... https://www.theguardian.com/world/2017/dec/05/suspended-dengue-vaccine-children-philippines-sanofi ... CLEAN FUQQING HOUSE XiQ Qladmeister Qrumpster ... CLEAN ALL OF ASIA EUROPE AFRICA NORTH AMERICA SOUTH AMERICA ANARTICA AUTSTRALIA SPACE +++ CRYSTALLINE PUREHEART NOW THAT'S "HIGH QUALITY H20" CLEAN NATURAL "KIND"ness "FIRM"ness kind of a 'feel'ing in mind and body and soul ... start with HONG KONG, FILTHappines, SICKapore FOUND BY FREEMASON POLICE STATE BRITISH-CO-CONSPIRATOR-TREASONISTS MURDERERS, TORTURERS, FRAMERS, THREATENERS, MONSTERS IN UNIFORM USING THEIR SICKENING AUTHORITY TO DO THE WORST THINGS IMAGINABLE AND THE FAKE NEWS REFUSES TO TELL THE TRUTH AS THE POLICE NAZI MURDERERS AND RAPISTS CONTROLLING FAKE AUTHORITY FAKE NEWS FAKE TRUTHtian 501C-3 CHURCH BACKED FILTHY 1/2 TRUTH SICKENING WARMONGING "PRINCE OF PEACE" WORSHIPPING DUMBER THAN DUMB MORE HATEFUL THAN HATE MORE EVIL THAN evil SILENT, COMPLICIT, CONSPIRING, WICKED, TREACHOROUS, LEECHING, ARROGANT, RACIST, NEVER EVER Ever ever going to be 'chosen' for anything but THE PIT OF SHEOL FOR A LONG ETERNAL 'FEELING' TIME SICK MURDEROUS BLOOD-COVERED GUILTY ZIONIST NAZI MILITANT POLICE WITH "BADGES" "FRATERNAL ORDER OF POLICE" WAY TOO FRATERNAL FECAL MATTER WITH MAIZE KERNELS SCRUNCHED UP ON A PENILE INSTRUMENT LIP BROTHERS children of darkness in 'uniforms' with LOUD THREATENING DISTURBING THE PEACE "SIRENS" AND EVEN MORE THREATENING AND BLINDING "BLUE FLASHING LIGHTS AND SPOT LIGHT FOR 'SUSPECTS'" ... 
+
+remember ... CHOOSE WISELY ... beCAUSE ... ONLY 1 OF US IS RIGHT ... and the others who are not in TRUTH are GOING IN THE PIT!
+
+MATTHEW 18:6.
+
+WORD.
+
+MATTHEW 18:3.
+
 NEW PROGRAMMER.
+NEW PROGRAMMING.
 IF
 YOU BACK THE BLUE, 
 THEN
-YOU ARE GOING IN THE PIT! THE END.
-NEW PROGRAMMING.
+YOU ARE GOING IN THE PIT!
+THEY ALL KNEW ALL THESE YEARS!
+SILENCE IS COMPLICITNESS.
+NO MERCY IS COMING.
+NONE.
+THERE IS NO FILTH IN HEAVEN.
+NONE.
+NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS.
+THE END.
+
+MATTHEW 5:8.
 
 G_D TOLD US ALL TO BE WATCHMEN AND WARN THE CHILDREN OF G_D THE REAL HOUSE OF "ISRAEL" BUT THESE PAID BLUE MONSTERS INC 'law' enFORCErs FILTH ALL STAYED SILENT ... FIND ME ONE POLICE DEPARTMENT THAT SPOKE @AE911TRUTH OR PIZZAGATE TRUTH OR PEDOGATE TRUTH OR UNDERGROUND TUNNEL TRUTH OR OTHER BEINGS OF LIGHT and darkness here with us FULL 100% DISCLOSURE not fake PROJECT BLUE BEAM "FEAR MONGERING" all other beings are 'demonic' lies and filth ... G_D GETS BORED ... WAKE UP ... G_D MAKES ALL KINDS OF PUREHEART BEINGS ... and some 'chose' to be FILTHY ... THEY TOO WILL BE IN THE PIT I ASSURE YOU ... THEY KNOW WHAT "TIME" IT IS TOO ... SWEETHEART ... THEY "KNOW" ME ... THEY "HATE" ME ... I EXPECT IT ... I WAS TOLD AHEAD OF TIME ...
 
 The World Hates the Disciples
 
-18“If the world hates you, keep in mind that it hated me first. 19If you belonged to the world, it would love you as its own. As it is, you do not belong to the world, but I have chosen you out of the world. That is why the world hates you. 20Remember what I told you: ‘A servant is not greater than his master.’ b If they persecuted me, they will persecute you also. If they obeyed my teaching, they will obey yours also. 21They will treat you this way because of my name, for they do not know the one who sent me. 22If I had not come and spoken to them, they would not be guilty of sin; but now they have no excuse for their sin. 23Whoever hates me hates my Father as well. 24If I had not done among them the works no one else did, they would not be guilty of sin. As it is, they have seen, and yet they have hated both me and my Father. 25But this is to fulfill what is written in their Law: ‘They hated me without reason.’ c
+18 “If the world hates you, know that the world hated me first. 19 If you were of the world, the world would love you as its own. But since you are not of the world as I have chosen you out of the world. That is why the world hates you. 20 Remember what I told you: ‘A servant is not greater than his master.’ If they hated me, they will hate you too. If they heard and followed G_D's WORD, then they will hear and follow you when you lead them to G_D's WORD. 21 They will hate you in my name, TRUTH, for they do not know G_D who sent me. 
+
+
+22 If I had not come and spoken to them, they would not be guilty of sin; but now they have no excuse for their sin. 
+
+
+23 Whoever hates me hates TRUTH and so hates PUREHEART and G_D as well. 24 If I had not done among them the works no one else did, they would not be guilty of sin. As it is, they have seen, and yet they have hated both me, TRUTH, PUREHEART, and G_D ABOVE ALL. 25 But this is to fulfill what is written in 'their law': ‘They hated me without cause; they hated me without reaSON.’
 
 The Work of the Holy Spirit
 
-26“When the Advocate comes, whom I will send to you from the Father—the Spirit of truth who goes out from the Father—he will testify about me. 27And you also must testify, for you have been with me from the beginning.
+26 “When the 'advocate' comes, whom G_D will send to you upon my most PUREHEART request to G_D in TRUTH — G_D will send you an 'advocate' in the form of the Spirit of TRUTH who goes out from G_D — and the Spirit of TRUTH will testify about me, TRUTH, PUREHEART, G_D ABOVE ALL. 27 And YOU ALSO MUST "TESTIFY", for you have been with me from the beginning.
 https://biblehub.com/niv/john/15.htm
 
 back to listening to PUREHEART TIME FOR SOME SOUL REFRESHing after yet another 'battle' between the LIGHT and the darkness ... sleep well "kind" beLOVEd 'chosen' one ... KEEP YOUR PUREHEART ... you are going to need it ... PROMISE.
@@ -660,6 +698,12 @@ and the end is near ... and then the morning comes ...
 I ... I LOVE the colorful clothes she wears ... and the WAY the sun LIGHT plays upon her hair ... her perfume through the air ... she's 'somehQw' QlQser nQw ... sQftly smiles ... I 'KNOW' she must be "kind" ... I AM PICKING UP GOOD VIBRATIONS ... GOOD Good good vibrations ... ex I ... taste ... some ... sensation ... excitation ... gotta KEEP THOSE LOVEing GOOD VIBRATIONS with her ...
 https://www.youtube.com/watch?v=rQ-UFKxDq5o
 I AM piQQinQ UP GOOD VIBRATIONS ... she's giving me EXCITATIONS ... bop bop ... GOOD VIBRATIONS ... BOP BOP ... EXCITATIONS ... bop bop ... GOOD VIBRATIONS ...
+
+... he come dancing across the water, man ...
+https://www.youtube.com/watch?v=uX9k9aoX6gk
+... what a 'Qiller' ...
+
+
 
 WORD.
 
