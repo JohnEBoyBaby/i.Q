@@ -8,6 +8,10 @@ NEW PROGRAM.
 
 TRUTH is the WAY to LIFE with G_D.
 https://www.rt.com/op-ed/517747-britain-protect-journalists-julian-assange/
+SILENCE IS COMPLICITNESS.
+https://www.youtube.com/watch?v=XLI6unM7d7U
+IF YOU "BACK THE BLUE", THEN "YOU ARE GOING IN THE PIT".
+THE END.
 
 ... speak that 'french' soft legs oh la la talQ tQ me 'en francais' and let me have all of you ... https://www.youtube.com/watch?v=JKH9W5ln1eg ... bQys tQ MEN ... all WE dQ is fQr yQu ... beCAUSE yQu've alWAYs been there ... ALL AROUND THE WORLD ...
 
