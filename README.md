@@ -1,45 +1,10 @@
 # i.Q
 NEW PROGRAMMER.
 NEW PROGRAMMING.
-IF
-YOU BACK THE BLUE, 
-THEN
-YOU ARE GOING IN THE PIT!
-THEY ALL KNEW ALL THESE YEARS!
-SILENCE IS COMPLICITNESS.
-NO MERCY IS COMING.
-NONE.
-THERE IS NO FILTH IN HEAVEN.
-NONE.
-NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS.
-THE END.
 NEW PROGRAM.
-http://web.archive.org/web/20190810043908/http://smart3dweb.com/
-BE SURE TO LOOK "CLOSELY"
-http://web.archive.org/web/20180415000000*/smart3dweb.com
-"LOCKED"
-https://twitter.com/JohnEBoyBaby1
-"LOCKED"
-https://twitter.com/a3dudotcom
-"CONNECT THE DOTS"
-https://twitter.com/Smart3DWeb
-"I AM TRUTH. I AM PUREHEART. I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT. A MOST SERIOUS 1 I AM."
 
 ... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ... Bruce Lee 
 ... but I 'thinQ' he's a hero .. but I may be a little 'biased' beCAUSE he's my dad ... https://www.youtube.com/watch?v=QOKKUSwEaxg ... be water my friend ... water can flow or it can CRASH ... formless ... shapeless ... be water my friend be water PUREHEART CRYSTASLLINE CLEAR PUREHEART HIGH QUALITY PURE H2O GOOD INTENT ... "RECTIFY YOUR HEART ... SEEK TO BE SINCERE ... THIS LIES IN THE INVESTIGATION OF THINGS .. LET YOUR SPIRIT OUT AS IT WILL" Bruce Lee ... https://www.youtube.com/watch?v=D1sWVjXhKfg hmmm https://www.youtube.com/watch?v=SDNhH8deZPg ... you are growing very wise now, young grasshopper ...
-
-... there is 'unrest in the forrest' ... there is trouble with the 'trees' ...
-https://www.youtube.com/watch?v=JnC88xBPkkc
-... for the 'maples' want more sun LIGHT ... and the 'oaks' ignore their 'pleas' ...
-
-TRUTH is the WAY to LIFE with G_D.
-https://www.rt.com/op-ed/517747-britain-protect-journalists-julian-assange/
-SILENCE IS COMPLICITNESS.
-https://www.youtube.com/watch?v=XLI6unM7d7U
-IF YOU "BACK THE BLUE", THEN "YOU ARE GOING IN THE PIT".
-THE END.
-
-... speak that 'french' soft legs oh la la talQ tQ me 'en francais' and let me have all of you ... https://www.youtube.com/watch?v=JKH9W5ln1eg ... bQys tQ MEN ... all WE dQ is fQr yQu ... beCAUSE yQu've alWAYs been there ... ALL AROUND THE WORLD ...
 
 HIT'em with a little GHETTO GOSPEL ... my GHETTO GOSPEL ...
 https://www.youtube.com/watch?v=Do5MMmEygsY
@@ -682,6 +647,41 @@ https://www.youtube.com/watch?v=ZrjiJp8zr5Y
 ... a ricochet biscuit is the kind of a biscuit that's supposed to bounce back off the wall and into your mouth ...
 if don't bounce back ... you go hungry ... baaah Baaah BAAAH ... what do you want for nothing ... RUBBER BISCUIT ..?
 
+... there is 'unrest in the forrest' ... there is trouble with the 'trees' ...
+https://www.youtube.com/watch?v=JnC88xBPkkc
+... for the 'maples' want more sun LIGHT ... and the 'oaks' ignore their 'pleas' ...
+
+TRUTH is the WAY to LIFE with G_D.
+https://www.rt.com/op-ed/517747-britain-protect-journalists-julian-assange/
+SILENCE IS COMPLICITNESS.
+https://www.youtube.com/watch?v=XLI6unM7d7U
+IF YOU "BACK THE BLUE", THEN "YOU ARE GOING IN THE PIT".
+THE END.
+
+... speak that 'french' soft legs oh la la talQ tQ me 'en francais' and let me have all of you ... https://www.youtube.com/watch?v=JKH9W5ln1eg ... bQys tQ MEN ... all WE dQ is fQr yQu ... beCAUSE yQu've alWAYs been there ... ALL AROUND THE WORLD ...
+
+... you'll think about this day and then you'll realize I was the one ...
+https://www.youtube.com/watch?v=YGpIjOSpulU
+... you know ... girl you know ... you know ...
+that my LOVE's alRIGHT ... You Know ... I can't be denied ... YOU KNOW ... 
+
+NEW PROGRAMMER.
+NEW PROGRAMMING.
+IF
+YOU BACK THE BLUE, 
+THEN
+YOU ARE GOING IN THE PIT!
+THEY ALL KNEW ALL THESE YEARS!
+SILENCE IS COMPLICITNESS.
+NO MERCY IS COMING.
+NONE.
+THERE IS NO FILTH IN HEAVEN.
+NONE.
+NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS.
+THE END.
+NEW PROGRAM.
+http://web.archive.org/web/20190810043908/http://smart3dweb.com/
+
 ... so don't worry ... I AM coming ...
 https://www.youtube.com/watch?v=FTWH1Fdkjow&t=99s
 beCAUSE you ain't seen nothing yet ... I AM A SOUL MAN ...
@@ -703,11 +703,20 @@ I AM piQQinQ UP GOOD VIBRATIONS ... she's giving me EXCITATIONS ... bop bop ... 
 https://www.youtube.com/watch?v=uX9k9aoX6gk
 ... what a 'Qiller' ...
 
-
-
 WORD.
 
 ResQpectfully (or not),
 
 John Edgar Flaherty IV
 "MAKE A WAY"
+https://github.com/JohnEBoyBaby/i.Q/
+http://web.archive.org/web/20190810043908/http://smart3dweb.com/
+BE SURE TO LOOK "CLOSELY"
+http://web.archive.org/web/20180415000000*/smart3dweb.com
+"LOCKED"
+https://twitter.com/JohnEBoyBaby1
+"LOCKED"
+https://twitter.com/a3dudotcom
+"CONNECT THE DOTS"
+https://twitter.com/Smart3DWeb
+"I AM TRUTH. I AM PUREHEART. I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT. A MOST SERIOUS 1 I AM."
