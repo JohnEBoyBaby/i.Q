@@ -18,13 +18,23 @@ https://www.youtube.com/watch?v=Do5MMmEygsY
 
 ... ... ... ... ... ... and peace ... young warrior ... without the sound of guns ... LORD ... HEAR ME speak! ... ... ... ... ... ...
 
-... and SO "I THOUGHT" UP "THIS SONG" "TO SHOW ME APPRECIATE FOR LOVING ME SO LONG" ... YOU DON'T KNOW HOW MUCH YOU MEAN TO ME ... 
+... and SQ "I THQUGHT" UP "THIS SQNG" "TQ SHQW 'MY APPRECIATION' FQR LQVING ME SQ LONG" ... YQU DON'T KNQW HQW MUCH YQU MEAN TQ ME ... 
+
 https://www.youtube.com/watch?v=y7gnzVuHfdg
-... YOU WERE RIGHT THERE ... and I thanQ yQu ... dah dum dah dum daaah dum ba dop hum hum hum da dap ... and I "THANK YOU" ... 
+
+... YOU WERE RIGHT THERE ... and I thanQ yQu ... dah dum dah dum daaah dum ba dop hum hum hum da dap ... and I "THANK YOU" BOYS2MEN
+
+PUREHEART.
 
 "Your 'gift' little drummer boy given out of the simple desperation of a PURE LOVE is the one favored above all."
+https://www.youtube.com/watch?v=HRbTrensuiY
 LITTLE DRUMMER BQY - THE GIFT QF LOVE 1968 ... 
-... hmmm ... John E Boy baby was born August 12, 1968 ... Hmmm HMMM ...
+https://www.tokenrock.com/numerology/my_life_path/?myMonth=8&myDay=12&myYear=1968&num=0
+... hmmm ... John E Boy baby was born August 12, 1968 ... hmmm Hmmm HMMM ...
+
+Blessed are the PUREHEART
+for they shall see G_D.
+Matthew 5:8
 
 ... on the TURNING AWAY ...
 https://www.youtube.com/watch?v=ojf18wT_Xtk 
