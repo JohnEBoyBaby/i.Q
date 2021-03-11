@@ -107,7 +107,96 @@ come on Eileen ...
 https://www.youtube.com/watch?v=4vaN01VLYSQ&t=193s
 ... for the 'smell of it' ...
 
-... and let us TOGETHER END THESE UNFORGIVABLE 'POLICE STATE, ENDLESS WARS, MASS SUFFERING, ENSLAVEMENT, AND DEATH' and FAKE NEWS PROMOTING THEIR EVIL PLANdemic and ENDLESS WARS ARE INDEED "DANGEROUS" TO US ALL both here and ultimately to decide your 'fate' you know in the Navy a 'rate' is a 'job' so we, sailors, have a little saying it goes 'PICK YOUR RATE, PICK YOUR FATE" so when the FILTHY SILENT COMPLICIT MONSTERS CHOSE TO TAKE SACRED "OATHS" NOW THEY HAVE NO EXCUSE FOR NOT TELLING THE TRUTH beCAUSE FOR YEARS judges, lawyers, suits, dresses, smiling government 'just going along' 'just doing my job' 'just taking of MY MY MY ME ME ME MY FAMILY MY FAMILY MY FAMILY' 'just following orders' BROWN-SHIRT-NAZI FILTH have zero excuse as they ALL HAD A RESPONSIBLITY TO BE "IN THE KNOW" "TO DIG DEEP" "TO BE ON THE FRONTLINES SOUNDING THE ALARM" "TO BE DOING WHAT I AM DOING FOR FREE so the B.A.R. and courts of FILTH not at all supreme court I assure you they are all going in the PIT with their enFORCEr henchmen low iQ vicious demonic MONSTER "COPS" BAD BOY BAD BOY WHAT YOU GONNA DO WHEN WE COME FOR YOU ... THE HUNTER HAS BECOME THE HUNTED .. beCAUSE THERE IS NO FILTH IN HEAVEN ... NONE ... so cop, judge, lawyer, doctor, banker, PEDO https://vimeo.com/122151811 MONSTER POLICE PRIEST JUDGES DOCTORS AND MORE AND MORE AND MORE AND THEY KNOW WE KNOW right cop, right judge, right priest, pastor, preacherman you fake TRUTHtian sick fake jew rabbi of zionist murderous FILTH FROM THE PIT you and yYOUR FAKE NEWS AND FAKE AUTHORITY FAKE GOVERNMENT FAKE REPRESENTATION FAKE 'law' CAN GO MATTHEW 18:6 YOURSELF IN THE MIDDLE OF THE SEA WITH A NICE LARGE MILLSTONE AROUND YOUR FILTHY SILENT, COMPLICIT, UNFORGIVEN BACK THE BLUE SUPPORTING FILTHY "FRIENDS" "BROTHERS" "FAMILY" ...  https://www.youtube.com/watch?v=-ZlmHvd_RZU "JUST PULL IT" huh Larry as WTC-7 FELL FREE FALL SPEED AND YOU HAD NO EXCUSE LIKE YOU DID WITH PLANES HITTING THE TWIN TOWERS YOU SATANIC EVIL MURDEROUS FUQQSTIQQ ... YOU ARE GOING IN THE PIT WITH ALL YOUR BENEFITTING FAMILY AND SUPPORTERS YOU ZIONIST NAZI FREEMASON FAKE JEW MONSTER ... YOU ALL KNEW ... YOU ALL HAD A DUTY TO KNOW ... YOU ALL REMAINED SILENT ... YOU ARE ALL COMPLICIT ... GUILTY ... MILLIONS DEAD ... YOU FILTHY TRAITORS! SELFISH WORTHLESS GARBAGE. FILTHY. MONSTER. https://www.rt.com/shows/documentary/318869-afghan-overdose-opium-trade/ ... NO ONE GETS OUT OF THIS ... NO MERCY IS COMING. NONE.
+... I AM talQinQ tQ the 'MAN IN THE MIRROR' ...
+https://www.youtube.com/watch?v=QOnABvJWS30
+... I AM asking ... no message could be any Qlearer ...
+
+... I AM ROLLING THUNDER ... POURING RAIN ... I CQMINQ QN LIKE A hurryCAINe ... WHITE "LIGHT"eninQ's flashing aQrQss the sQy ... 
+
+IF
+
+'you' ARE into 'evil'
+
+THEN 
+
+'YOU' ARE NOT A 'FRIEND OF MINE'.
+
+
+IF
+
+'you' ARE NOT into 'evil'
+
+THEN 
+
+'YOU' ARE a 'FRIEND OF MINE'.
+
+https://www.youtube.com/watch?v=etAIpkdhU9Q
+
+... beCAUSE ...
+
+... I WQN'T TAQE NQ PRISQNERS ... I WQN'T SPARE NQ LIVES ... I HAVE GOT THE POWER ... I AM GONNA TAKE YOU TO 'HELL' ... YOU HAVE GOT ME RINGING ... HELLS BELLS ...
+
+NEW PROGRAMMER.
+NEW PROGRAMMING.
+NEW PROGRAM.
+
+GOOD K.I.D.s
+LIFT UP
+GOOD Q.I.D.s
+
+Blessed are the PUREHEART
+for they shall see G_D.
+Matthew 5:8
+
+Tradition and Worship
+8 and then TRUTH spoke to 'WE THE PEOPLE' saying "These people honor me, TRUTH, with their lips, but their hearts are far from me".
+
+9 "'THEY' WORSHIP ME, TRUTH, IN VAIN; they teach as doctrine the precepts of men." 
+
+10 then TRUTH called the 'US' to close to TRUTH and said, "Listen and understand.…"
+https://biblehub.com/matthew/15-9.htm
+
+JUST SAY NO BOOFOO!
+JUST SAY NO MONSTERS!
+
+THERE IS NO FILTH IN HEAVEN.
+NONE.
+
+NO 'FAMILY'. NO 'FRIENDS'. NO 'FAVORITES'. NO 'EXCEPTIONS'.
+NONE.
+
+NO MERCY IS COMING.
+NONE.
+
+KEEP YOUR PUREHEART ... you are going to need it ... see you back 'home' ... PROMISE.
+
+PRINCIPLES over personalities.
+
+SILENCE IS COMPLICITNESS.
+
+K.I.S.S.
+KEEP IT SIMPLE SILLY.
+
+TRUTH is
+the WAY
+to LIFE
+with G_D.
+
+IF
+
+'you' ARE into 'evil'
+
+THEN 
+
+'YOU' ARE NOT a 'FRIEND OF MINE'.
+
+https://www.youtube.com/watch?v=etAIpkdhU9Q
+
+... beCAUSE ...
+
+... I WQN'T TAQE NQ PRISQNERS ... I WQN'T SPARE NQ LIVES ... I HAVE GOT THE POWER ... I AM GONNA TAKE YOU TO 'HELL' ... YOU HAVE GOT ME RINGING ... HELLS BELLS ...
+
+... and let us TOGETHER END THESE UNFORGIVABLE 'FILTHY MONSTERS OF "BACK THE 'BLUE MONSTERS INC.'" FILTHY FILTH BEYOND FILTH DECEIVING SILENT COMPLICIT VICIOUS CAGING THREATENING HARASSING INSTILLING 'FEAR' OF 'AHRIMAN' 'WORRY' 'PLANdemic FAKE FALSE FLAG MEDIAL TYRANNY, FAKE FALSE FLAG PLANned SHOOTINGS TO make all the dumbfuQQs scream for 'more "law" enFORCErs RIGHT Mr. Larry Silverstein Mr. SILENT AND COMPLICIT ON @ASE911TRUTH "JUST PULL IT" WTC BUILDING 7 'Boss Boss Boss NO PLANE No Plane no plane' ... welcome to 'fantasy island' ... sick, soulless, hard-hearted, unrepented, living a lie, hypocritic, zero moral authority, zero moral courage, zero self-accountability, zero TRUTH, zero PUREHEART, wolves in sheep's sQin's wQQl over 'our' 'eyes' pulling, loud obnoxious DISTURBING THE PEACE representin' DerrtyENT DTP CaliforniaLOVE Big Papa Ghetto Gospel frightened every day of our LIFE living in fear of 'Those you are taught to trust the most ... Q' sick, demonic, deviant, diseased-militant-minded, frightening, low iQ, 'just following orders' do anything to 'us' for 'fake paper fake value worthless pension whore BLOOD COVERED FILTHY BLOOD MONEY' to 'take care of "their family" BLUE WALL OF SILENCE FILTH blue light flashing intimidating WEAPONIZED BLUE MONSTERS INC. POLICE STATE, ENDLESS WARS, MASS SUFFERING, ENSLAVEMENT, AND DEATH' and FAKE NEWS PROMOTING THEIR EVIL PLANdemic and ENDLESS WARS ARE INDEED "DANGEROUS" TO US ALL both here and ultimately to decide your 'fate' you know in the Navy a 'rate' is a 'job' so we, sailors, have a little saying it goes 'PICK YOUR RATE, PICK YOUR FATE" so when the FILTHY SILENT COMPLICIT MONSTERS CHOSE TO TAKE SACRED "OATHS" NOW THEY HAVE NO EXCUSE FOR NOT TELLING THE TRUTH beCAUSE FOR YEARS judges, lawyers, suits, dresses, smiling government 'just going along' 'just doing my job' 'just taking of MY MY MY ME ME ME MY FAMILY MY FAMILY MY FAMILY' 'just following orders' BROWN-SHIRT-NAZI FILTH have zero excuse as they ALL HAD A RESPONSIBLITY TO BE "IN THE KNOW" "TO DIG DEEP" "TO BE ON THE FRONTLINES SOUNDING THE ALARM" "TO BE DOING WHAT I AM DOING FOR FREE so the B.A.R. and courts of FILTH not at all supreme court I assure you they are all going in the PIT with their enFORCEr henchmen low iQ vicious demonic MONSTER "COPS" BAD BOY BAD BOY WHAT YOU GONNA DO WHEN WE COME FOR YOU ... THE HUNTER HAS BECOME THE HUNTED .. beCAUSE THERE IS NO FILTH IN HEAVEN ... NONE ... so cop, judge, lawyer, doctor, banker, PEDO https://vimeo.com/122151811 MONSTER POLICE PRIEST JUDGES DOCTORS AND MORE AND MORE AND MORE AND THEY KNOW WE KNOW right cop, right judge, right priest, pastor, preacherman you fake TRUTHtian sick fake jew rabbi of zionist murderous FILTH FROM THE PIT you and yYOUR FAKE NEWS AND FAKE AUTHORITY FAKE GOVERNMENT FAKE REPRESENTATION FAKE 'law' CAN GO MATTHEW 18:6 YOURSELF IN THE MIDDLE OF THE SEA WITH A NICE LARGE MILLSTONE AROUND YOUR FILTHY SILENT, COMPLICIT, UNFORGIVEN BACK THE BLUE SUPPORTING FILTHY "FRIENDS" "BROTHERS" "FAMILY" ...  https://www.youtube.com/watch?v=-ZlmHvd_RZU "JUST PULL IT" huh Larry as WTC-7 FELL FREE FALL SPEED AND YOU HAD NO EXCUSE LIKE YOU DID WITH PLANES HITTING THE TWIN TOWERS YOU SATANIC EVIL MURDEROUS FUQQSTIQQ ... YOU ARE GOING IN THE PIT WITH ALL YOUR BENEFITTING FAMILY AND SUPPORTERS YOU ZIONIST NAZI FREEMASON FAKE JEW MONSTER ... YOU ALL KNEW ... YOU ALL HAD A DUTY TO KNOW ... YOU ALL REMAINED SILENT ... YOU ARE ALL COMPLICIT ... GUILTY ... MILLIONS DEAD ... YOU FILTHY TRAITORS! SELFISH WORTHLESS GARBAGE. FILTHY. MONSTER. https://www.rt.com/shows/documentary/318869-afghan-overdose-opium-trade/ ... NO ONE GETS OUT OF THIS ... NO MERCY IS COMING. NONE.
 YOU MONSTERS YOU FAKE NEWS ARE "VERY DANGEROUS TO OUR DEMOCRACY" AND FRANKLY TAKE YOUR REPUBLIC AND "REPRESENTATIVES WHO COULD NOT REPRESENT THEIR OWN FILTHY SELF HONORABLY AND GO FAR AWAY ... WE CAN EACH REPRESENT OURSELVES AND PROTECT OUR OURSELVES ... WE NEED YOU MONSTERS YOU LIARS YOU CAGERS YOU enFORCErs YOU LAWYERS YOU DOCTORS YOU BIG PHARMA MEDICAL TYRANNICAL PILL PUSHERS ... YOU MONSTERS ... LIKE WE NEED A HOLE IN THE HEAD ... BE GONE .... SHAMED ... GO FAR AWAY AND NEVER RETURN 'SCAR' ...
 https://www.youtube.com/watch?v=ZggCipbiHwE
 ... TRUTH is the WAY to LIFE with G_D ...
