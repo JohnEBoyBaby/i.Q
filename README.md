@@ -1,10 +1,23 @@
 # i.Q
 NEW PROGRAMMER.
-NEW PROGRAMMING.
+NEW PROGRAMMING. 
 NEW PROGRAM.
+http://web.archive.org/web/20190810043908/http://smart3dweb.com/
+BE SURE TO LOOK "CLOSELY"
+http://web.archive.org/web/20180415000000*/smart3dweb.com
+"LOCKED"
+https://twitter.com/JohnEBoyBaby1
+"LOCKED"
+https://twitter.com/a3dudotcom
+"CONNECT THE DOTS"
+https://twitter.com/Smart3DWeb
 
 ... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ... Bruce Lee 
 ... but I 'thinQ' he's a hero .. but I may be a little 'biased' beCAUSE he's my dad ... https://www.youtube.com/watch?v=QOKKUSwEaxg ... be water my friend ... water can flow or it can CRASH ... formless ... shapeless ... be water my friend be water PUREHEART CRYSTASLLINE CLEAR PUREHEART HIGH QUALITY PURE H2O GOOD INTENT ... "RECTIFY YOUR HEART ... SEEK TO BE SINCERE ... THIS LIES IN THE INVESTIGATION OF THINGS .. LET YOUR SPIRIT OUT AS IT WILL" Bruce Lee ... https://www.youtube.com/watch?v=D1sWVjXhKfg hmmm https://www.youtube.com/watch?v=SDNhH8deZPg ... you are growing very wise now, young grasshopper ...
+
+... there is 'unrest in the forrest' ... there is trouble with the 'trees' ...
+https://www.youtube.com/watch?v=JnC88xBPkkc
+... for the 'maples' want more sun LIGHT ... and the 'oaks' ignore their 'pleas' ...
 
 TRUTH is the WAY to LIFE with G_D.
 https://www.rt.com/op-ed/517747-britain-protect-journalists-julian-assange/
