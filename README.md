@@ -65,7 +65,7 @@ https://www.youtube.com/watch?v=RdR6MN2jKYs
 
 "Just like last night only better ... razzle ... dazzle ... SIR ..!"
 https://www.youtube.com/watch?v=mnIBk-0KLi0&t=90s
-"I 'see' ... Qaptian, these are exaQtly the "kind" kind of GO-GETTERS I AM want working for new GET US BACK TO HEAVEN prQjeQt ... gentle wo(man) IT'S PARTY TIME ..."
+"I 'see' ... Qaptian, these are exaQtly the "kind" kind of GO-GETTERS I AM want working for my new "GET US BACK TO HEAVEN" prQjeQt ... gentle wo(man) IT'S PARTY TIME ..."
 
 WORD?
 
