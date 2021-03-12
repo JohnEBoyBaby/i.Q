@@ -1,5 +1,5 @@
 # i.Q
-NEW PROGRAMMER. NEW PROGRAMMING.
+NEW PROGRAMMER. NEW https://www.youtube.com/watch?v=7Y7HwQmo8tk https://qanon.pub/?q=freemason children of darkness RIGHT Arch Bishop Vigano ..? https://www.truthislight.com/2014/05/police-and-freemasonry-irrefutable.html ... RIGHT ..! LISTEN REAL "GOOD" https://www.youtube.com/watch?v=OoeHVUmk_qw&t=1083s ... https://qanon.pub/?q=those%20you%20are%20taught%20to%20trust%20the%20most "These people are sick. Q" PROGRAMMING.
 
 GEE ..! https://www.youtube.com/watch?v=U7mPqycQ0tQ ... now that's the 'kind' kind I like ... I LOVE SOFT LEGS ... I LOVE TRUTH ... I LOVE PUREHEART ... worth FIQHTINQ FQR ... most PUREHEART daughters of ancient Han ... 'crossed legs' ... 'soft legs' ... moi, raison d'etre ... PUREHEART ... TRUTH ... LOVE ... GOOD ... I seek not to be 'right' I SEEK TO BE GOOD ... I HAVE NO 'FRIENDS' ... I AM TRUTH ... https://www.goodreads.com/quotes/9857984-a-speaker-of-truth-has-no-friends--african-proverb ... TRUTH HAS NO 'FRIENDS' ... GIRLS BRING 'da bQys' QUT ... WORD ..? BE GOOD ... or be gone ... WORD.
 
