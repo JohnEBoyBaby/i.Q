@@ -1,7 +1,7 @@
 # i.Q
-NEW PROGRAMMER. NEW PROGRAMMING. 
+NEW PROGRAMMER. NEW PROGRAMMING.
 
-GEE ..! https://www.youtube.com/watch?v=U7mPqycQ0tQ ... now that's the 'kind' kind I like ... I LOVE SOFT LEGS ... I LOVE TRUTH ... I LOVE PUREHEART ...
+GEE ..! https://www.youtube.com/watch?v=U7mPqycQ0tQ ... now that's the 'kind' kind I like ... I LOVE SOFT LEGS ... I LOVE TRUTH ... I LOVE PUREHEART ... worth FIQHTINQ FQR ... most PUREHEART daughters of ancient Han ... 'crossed legs' ... 'soft legs' ... moi, raison d'etre ... PUREHEART ... TRUTH ... LOVE ... GOOD ... I seek not to be 'right' I SEEK TO BE GOOD ... I HAVE NO 'FRIENDS' ... I AM TRUTH ... ... TRUTH HAS NO 'FRIENDS' ... BE GOOD ... or be gone ... WORD.
 
 NEW PROGRAM.
 
