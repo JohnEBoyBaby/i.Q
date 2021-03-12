@@ -29,6 +29,46 @@ HIT'em with a little GHETTO GOSPEL ... my GHETTO GOSPEL ... https://www.youtube.
 
 Have you ever seen a lil' K.I.D. who be doin' what I do ..? same ole' clowns ... pretending they 'proud' ... but when you leave town they go around running their mouths ... something like a 'hater' man ... talking about about a 'player' as if I AM not gonna 'see you later' man ... beCAUSE I keep a 'hater' GUILTY ... obey no rules ... let the young do Do DO ... https://www.youtube.com/watch?v=WZ_rXp6nYKQ ... I AM basically coming from something to nothing ... when I say 'nothing' I mean 'pocket full of "lint and buttons" ... people alWAYs saying it must be nice ... but understand the money's GOOD but I AM still from the hood ... unless you want a 'foot' ... I know a few ... who could 'put you where you need to be put' ... let the 'girls do me' while 'you do you' ... so yo' ... what da' "HOOK" gon' be ..? ... all I need is TRUTH and PUREHEART and G_D ABOVE ALL and maybe some GOOD CRYSTALLINE CLEAN PUREHEART HIGH QUALITY H20-based CREAMY QREAM oh la la ... yes ma'm more please I WOULD LOVE SOME MORE OF YOUR "QREAM" thank you 'kind' one ... I LOVE SOFT LEGS ... I LOVE PUREHEART ... I LOVE TRUTH ... I PROTECT AND LOVE G_D LIKE AN INFANT ...
 
+THANK YOU http://BruceLipton.com for your TRUTH and most PUREHEART GOOD INTENT and KINDness for ALL OF US and FOR THE SPECIAL INVITE ... 
+
+https://www.brucelipton.com/?mailpoet_router&endpoint=view_in_browser&action=view&data=WzIxLCJmNWQzM2EzYWNlZTAiLDEzMDEwNSwiMWg0bm1ldmJtdGdrOGdnMHNrY3c0dzB3Z2M0MHdnYzAiLDU1NTEsMF0
+
+OH YES I WOULD ABSOLUTELY 100% LOVE TO "HEAR" LISTEN  REALLY, Really, really GOOD tQ GREG AND BRUCE ON TRUTH AND PUREHEART AT THE "CELLULAR" LEVEL so I tQQ may 'see' ... I HOPE YOU ALL SIGNUP tQQ ... see ya' there ... love you tQQ ...
+
+beCAUSE if it don't bounce back ...
+https://www.youtube.com/watch?v=ZrjiJp8zr5Y 
+... you go 'hungry' ... baaah Baaah BAAAH ...
+
+"And you got what, a 6-8 week training program here? A 'real tough' one?
+https://www.youtube.com/watch?v=einZgVrnfG0&t=117s
+Which is perfect for me ... chiQQs dig me ... it's not the just the 'uniform' ... it's the stories ... I want tQ party with yQu ... the 2 of us together ..? FORGET IT ..! I AM going to go out 'on a limb' here ... well okay hQtshQt ... we're gQnna 'see' ... 'rain' or 'shine' ..."  
+
+"... how's it goin' Eisenhauer" ... 
+https://www.youtube.com/watch?v=w6Oy4Prsai0&t=27s
+
+
+"Well, explain yQurselves ..."
+https://www.youtube.com/watch?v=zCHTzumpk4Q
+"Well, sir, we were gQing tQ the 'bingQ parlQr' ... the 'instruQtions' gQt all fQuled UP' ..."
+https://www.youtube.com/watch?v=D7hVIAn2gv8
+I AM going to 'put it ALL ON THE LINE' ... for ... TRUTH ... for PUREHEART ... for G_D ABOVE ALL ...
+
+... I AM a 'SOUL' man ...
+https://www.youtube.com/watch?v=FTWH1Fdkjow
+... RAW QIND ...
+https://www.youtube.com/watch?v=RdR6MN2jKYs
+... MOVE'em ON ... RIDE'em IN ... RAW QIND ...
+
+WORD?
+
+Blessed are the PUREHEART
+for they shall see G_D.
+Matthew 5:8
+
+IT IS I who is here to THANK YOU 'kind' beLOVEd 'blessed' 'chosen' intellectual PUREHEART HIGH QUALITY PURE H2O 'CRYSTALLINE' SPIRIT "WATER" 'CLEAN' 'NATURAL' 'crossed legs' 'soft legs' gentle, nurturing, supporting, wonderful, loving PUREHEART LOVEr of TRUTH as the WAY in LIFE and the ONLY WAY BACK TO G_D my LOVE Lynne, Greg, Bruce https://www.humanitysteam.org/thank-you-smarter and team. THANK YOU ALL FOR 'INVITATION' ...
+
+GREAT IDEA. I SIGNED UP. I HOPE ALL OF "YOU" SIGNUP TOO ... 
+
 I AM THE FIRST tQ SWING ... with that gimme whatcha got 'thing' ... show me LOVE ... holler what ... FIRST BASE ... ya'll living like the worst race ... for 'your people' and 'your kind' ... SECOND LESSON ... BREAK THROUGH YOUR MIND ... IT'S ABOUT TIME ... WISDOM RHYME ... with this world today ... https://www.youtube.com/watch?v=HNGaa5Opfmc BATTER UP ... a whole lot of 'tryin' just to get up that hill ... IT'S OUR TURN 'AT BAT' ... ain't nothing wrong with that ...
 
 PUREHEART ... that's the "HOOK" ... so please do KEEP YOUR PUREHEART ... you're gonna need it ... PROMISE.
