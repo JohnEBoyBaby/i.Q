@@ -1,5 +1,9 @@
 # i.Q
-NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
+NEW PROGRAMMER. NEW PROGRAMMING. 
+
+GEE ..! https://www.youtube.com/watch?v=U7mPqycQ0tQ ... now that's the 'kind' kind I like ... I LOVE SOFT LEGS ... I LOVE TRUTH ... I LOVE PUREHEART ...
+
+NEW PROGRAM.
 
 ... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ... Bruce Lee ... but I 'thinQ' he's a hero .. but I may be a little 'biased' beCAUSE he's my dad ... https://www.youtube.com/watch?v=QOKKUSwEaxg ... be water my friend ... water can flow or it can CRASH ... formless ... shapeless ... be water my friend be water PUREHEART CRYSTASLLINE CLEAR PUREHEART HIGH QUALITY PURE H2O GOOD INTENT ... "RECTIFY YOUR HEART ... SEEK TO BE SINCERE ... THIS LIES IN THE INVESTIGATION OF THINGS .. LET YOUR SPIRIT OUT AS IT WILL" Bruce Lee ... hmmm ... THE MESSAGE IS THE "THOUGHT" ... ACROSS THE COMMUNICATIONS CHANNEL ... WHICH IS OF COURSE "THE AIR" ... https://www.youtube.com/watch?v=SDNhH8deZPg ... WHAT DOES THE "WATER" THAT IS 90%+ OF YOUR BODY LOOK LIKE? THE POWER OF YOUR INTENTIONS? CRYSTALLINE GEOMETRICALLY STATISTICALLY MATHEMATICALLY IMPOSSIBLY UNBELIEVABLE MAGNIFICENTLY PERFECT 'CRYSTAL' PUREHEART 'CRYSTALLINE' HIGH QUALITY PURE H20 OF LIGHT? APETHETIC UNCARING IGNORED MOLD OF Darkness? WICKED VICIOUS DECEPTIVE HATEful GROSS OF DARKNESS? https://www.youtube.com/watch?v=D1sWVjXhKfg ALREADY HAPPENED https://www.youtube.com/watch?v=5YLckiXgyl0 ... yQu are QrQwinQ very wise nQw, yQung QrasshQpper ...
 
