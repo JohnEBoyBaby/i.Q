@@ -13,6 +13,11 @@ https://www.youtube.com/watch?v=Ke5jCvlbXX0
 
 Blessed are the PUREHEART for they shall see G_D. Matthew 5:8 https://biblehub.com/matthew/5-8.htm
 
+"Your 'gift' little drummer boy given out of the simple desperation of a PURE LOVE is the one favored above all." https://www.youtube.com/watch?v=HRbTrensuiY hmmm ... LITTLE DRUMMER BQY - THE GIFT QF LOVE 1968 ... Hmmm ... https://www.tokenrock.com/numerology/my_life_path/?myMonth=8&myDay=12&myYear=1968&num=0 ... HMMM ... John E Boy baby was born August 12, 1968 ... hmmm Hmmm HMMM ... TRUTH ... PUREHEART ... GOOD 'INTENT' ... THE 'POWER' OF YOUR 'GOOD' INTENTions ...
+
+PUREHEART.
+TRUTH.
+
 ... the face of an angel ... pretty eyes that shine ... https://www.youtube.com/watch?v=fkebpmdyofo ... whenever you come around ... I get weak in the knees ... and I lose my breath ... oh I try to speak ... but the WORDs won't come around ... I AM so scared to death ... and when you smile that smile ... my world turns upside down ... whenver you come around ... I feel just like a K.I.D. ... I wish I could tell you ... but the WORDs can't be found ... WHENEVER YOU COME AROUND ...
 
 HIT'em with a little GHETTO GOSPEL ... my GHETTO GOSPEL ... https://www.youtube.com/watch?v=Do5MMmEygsY ... I sit ... recollect and reminisce ... GOOD DAYS ... the younger ... my heart goes to them ...
@@ -46,7 +51,6 @@ Which is perfect for me ... chiQQs dig me ... it's not the just the 'uniform' ..
 "... how's it goin' Eisenhauer" ... 
 https://www.youtube.com/watch?v=w6Oy4Prsai0&t=27s
 
-
 "Well, explain yQurselves ..."
 https://www.youtube.com/watch?v=zCHTzumpk4Q
 "Well, sir, we were gQing tQ the 'bingQ parlQr' ... the 'instruQtions' gQt all fQuled UP' ..."
@@ -58,6 +62,10 @@ https://www.youtube.com/watch?v=FTWH1Fdkjow
 ... RAW QIND ...
 https://www.youtube.com/watch?v=RdR6MN2jKYs
 ... MOVE'em ON ... RIDE'em IN ... RAW QIND ...
+
+"Just like last night only better ... razzle ... dazzle ... SIR ..!"
+https://www.youtube.com/watch?v=mnIBk-0KLi0&t=90s
+"I 'see' ... Qaptian, these are exaQtly the "kind" kind of GO-GETTERS I AM want working for new GET US BACK TO HEAVEN prQjeQt ... gentle wo(man) IT'S PARTY TIME ..."
 
 WORD?
 
@@ -80,10 +88,6 @@ and SQ "I THQUGHT" UP "THIS SQNG" "TQ SHQW 'MY APPRECIATION' FQR LQVING ME SQ LO
 https://www.youtube.com/watch?v=y7gnzVuHfdg
 
 ... YOU WERE RIGHT THERE ... and I thanQ yQu ... dah dum dah dum daaah dum ba dop hum hum hum da dap ... and I "THANK YOU" BOYS2MEN
-
-PUREHEART.
-
-"Your 'gift' little drummer boy given out of the simple desperation of a PURE LOVE is the one favored above all." https://www.youtube.com/watch?v=HRbTrensuiY LITTLE DRUMMER BQY - THE GIFT QF LOVE 1968 ... https://www.tokenrock.com/numerology/my_life_path/?myMonth=8&myDay=12&myYear=1968&num=0 ... hmmm ... John E Boy baby was born August 12, 1968 ... hmmm Hmmm HMMM ...
 
 Blessed are the PUREHEART for they shall see G_D. Matthew 5:8
 
