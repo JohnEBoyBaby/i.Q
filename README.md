@@ -551,6 +551,10 @@ with G_D.
 IN TRUTH I tell you, unless you change, soften your PUREHEART, be in TRUTH most PUREHEART and become like innocent, most PUREHEART little children, you will never enter the Kingdom of HEAVEN.
 Matthew 18:3
 
+... leave your memory ...
+https://www.youtube.com/watch?v=nm6YsuFyrkA
+... I LOVE YOU so ... you're never alone ...
+
 WORD.
 
 ResQpectfully (or not),
