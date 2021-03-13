@@ -25,7 +25,14 @@ http://7zip.org
 
 which is about to become many, Many, MANY more than 7 and SO VERY MUCH MORE SEQURE TQQ ... shhh Shhh SHHH ... it really is a 'secret' that only G_D allowed me to 'discover' ... YOU CANNOT POSSIBLY CONVINCE YOURSELF THAT I WOULD DO ALL THIS AND HUMILIATE MYSELF AND BE NOT TELLING YOU THE 100% MATHEMATICAL WORLD IS ABOUT TO CHANGE beCAUSE of what G_D showed me that I will only release to the 'world' if the 'world' is clean more like HEAVEN and there is real 'justice' in TRUTH and NO CAGES FOR LIVING SOULS and NO REPRESENTATIVEs and NO FILTHY UNRIGHTEOUS COURTS OF B.A.R. or other 'official' 'law' 'experts' let the 'RIGHTEOUS' judge and if any among us is not 'TRUSTWORTHY' to the "RIGHTEOUS" then let me, included, my children, included, be cast into the sea but NEVER CAGE MY CHILD KILL ME BUT DO NOT CAGE ME DO NOT TORTURE ANY LIVING SOUL IN A CAGE ... I WILL BE SEEING YOUR FILTHY DEVIANT MOCKING G_D FACE BACK "HOME" FILTHY MONSTER IF YOU DISAGREE WITH ME ... I PROMISE.  THERE IS NO FILTH IN HEAVEN. NONE. A MOST SERIOUS ONE I AM. NO FAMILY. NO FRIENDS. NO FAVORITES. NO FILTH. NONE. TRUTH IS THE WAY TO LIFE WITH G_D. SILENCE IS COMPLICITNESS. PRINCIPLES over personalities. NO FILTH. NONE. ... and then I will happily release my new 'mathematical discoveries' to make your 'world' better beLOVEd one I LOVE else I would not be here with you now EXPOSED IN THE LIGHT IN TRUTH for all the world to see WITHOUT FEAR ... READY TO DIE IN TRUTH but EVEN MORE READY TO LIVE IN TRUTH WITH MOST PUREHEART ... ENTERTAIN NO DOUBT ... WE are many ... We are GOOD ... We are coming ... GOOD IS COMING and G_D IS WITH US ... I haven't told them about it yet ... move along ... Move Along ... MOVE ALONG ... to unzip if you do not have an app already that you use to decompress or unzip compressed files.
 
+3. DOWNLOAD LUA
 https://www.lua.org/download.html
+I HAVEN'T DECIDED IF I "LOVE" "LUA'S LOVE YET" OR NOT I THINK I CAN DO THE SAME IN JAVASCRIPT but I do LOVE "LOVE" so just in case:
+OPTIONALLY DOWNLOAD AND THINK OF "LOVE" 
+https://github.com/LOVE2d/LOVE/
+
+and for the 'justice' 'free' 'liberty for all' 'rights of the people' 'in order to form a more perfect union' 'hold these TRUTHs to be self-evident' 
+
 https://github.com/LOVE2d/LOVE/blob/master/license.txt
 https://www.lua.org/license.html
 https://gcc.gnu.org/onlinedocs/libstdc++/manual/license.html
@@ -122,3 +129,10 @@ int main(void)
 
 	return 0;
 }
+/*
+"
+That to secure these rights, Governments are instituted among Men, deriving their just powers from the consent of the governed, –That whenever any Form of Government becomes destructive of these ends, it is the Right of the People to alter or to abolish it, and to institute new Government, laying its foundation on such principles and organizing its powers in such form, as to them shall seem most likely to effect their Safety and Happiness. Prudence, indeed, will dictate that Governments long established should not be changed for light and transient causes; and accordingly all experience hath shewn, that mankind are more disposed to suffer, while evils are sufferable, than to right themselves by abolishing the forms to which they are accustomed. But when a long train of abuses and usurpations, pursuing invariably the same Object evinces a design to reduce them under absolute Despotism, it is their right, it is their duty, to throw off such Government, and to provide new Guards for their future security.
+"
+
+https://qanon.pub/?q=But%20when%20a%20long%20train%20of%20abuses%20and%20usurpations%2C%20pursuing%20invariably%20the%20same%20Object%20evinces%20a%20design%20to%20reduce%20them%20under%20absolute%20Despotism%2C%20it%20is%20their%20right%2C%20it%20is%20their%20duty%2C%20to%20throw%20off%20such%20Government%2C%20and%20to%20provide%20new%20Guards%20for%20their%20future%20security.
+*/
