@@ -1,8 +1,30 @@
 /*
 ... TRUTH is the WAY to LIFE with G_D ... GIVE "REAL" CREDIT "REAL" REWARDS to those most deserving ... WORD. ... yQu knQw hQw we dQ ... We DQ ... WE DQ ...
+3 EASY STEPS .. STEP BY STEP:
 
+1. READ THIS ARTICLE TO UNDERSTAND WHAT WE ARE DOING:
 http://heavycoder.com/tutorials/lua_embed.php
+
+2. DOWNLOAD THE GNC GCC FREE POWERFUL OPEN SOURCE FASTEST MACHINE INSTRUCTION PRODUCING "C" LANGUAGE COMPILER KNOWN here:
 http://mirror.linux-ia64.org/gnu/gcc/releases/gcc-10.2.0/
+ NOTE: if you download the gcc compiler above from the .zip file in this JohnEBoyBaby/i.Q github 'repository' directory then you will find there are 7 files, 000-006, that were split using:
+ 
+https://pinetools.com/split-files
+
+and then you will need to these 7 files to be joined together into 1 file using:
+
+https://pinetools.com/join-files
+
+in order to have the original 1 file that was TOO BIG TO UPLOAD HERE AT 137MB:
+
+gcc-10.2.0.master.gz
+
+which uses the file format abbreviated here as "GZ" representing 'GZip' 'zipped' meaning 'compressed' file format that you can then use:
+
+http://7zip.org
+
+which is about to become many, Many, MANY more than 7 and SO VERY MUCH MORE SEQURE TQQ ... shhh Shhh SHHH ... it really is a 'secret' that only G_D allowed me to 'discover' ... YOU CANNOT POSSIBLY CONVINCE YOURSELF THAT I WOULD DO ALL THIS AND HUMILIATE MYSELF AND BE NOT TELLING YOU THE 100% MATHEMATICAL WORLD IS ABOUT TO CHANGE beCAUSE of what G_D showed me that I will only release to the 'world' if the 'world' is clean more like HEAVEN and there is real 'justice' in TRUTH and NO CAGES FOR LIVING SOULS and NO REPRESENTATIVEs and NO FILTHY UNRIGHTEOUS COURTS OF B.A.R. or other 'official' 'law' 'experts' let the 'RIGHTEOUS' judge and if any among us is not 'TRUSTWORTHY' to the "RIGHTEOUS" then let me, included, my children, included, be cast into the sea but NEVER CAGE MY CHILD KILL ME BUT DO NOT CAGE ME DO NOT TORTURE ANY LIVING SOUL IN A CAGE ... I WILL BE SEEING YOUR FILTHY DEVIANT MOCKING G_D FACE BACK "HOME" FILTHY MONSTER IF YOU DISAGREE WITH ME ... I PROMISE.  THERE IS NO FILTH IN HEAVEN. NONE. A MOST SERIOUS ONE I AM. NO FAMILY. NO FRIENDS. NO FAVORITES. NO FILTH. NONE. TRUTH IS THE WAY TO LIFE WITH G_D. SILENCE IS COMPLICITNESS. PRINCIPLES over personalities. NO FILTH. NONE. ... and then I will happily release my new 'mathematical discoveries' to make your 'world' better beLOVEd one I LOVE else I would not be here with you now EXPOSED IN THE LIGHT IN TRUTH for all the world to see WITHOUT FEAR ... READY TO DIE IN TRUTH but EVEN MORE READY TO LIVE IN TRUTH WITH MOST PUREHEART ... ENTERTAIN NO DOUBT ... WE are many ... We are GOOD ... We are coming ... GOOD IS COMING and G_D IS WITH US ... I haven't told them about it yet ... move along ... Move Along ... MOVE ALONG ... to unzip if you do not have an app already that you use to decompress or unzip compressed files.
+
 https://www.lua.org/download.html
 https://github.com/LOVE2d/LOVE/blob/master/license.txt
 https://www.lua.org/license.html
