@@ -556,6 +556,12 @@ I AM 'cute' ... I AM 'Cute' ... I AM 'CUTE' ...
 她說 “我很可愛” ...
 그녀는 "나는 귀여워"라고 말했다. ...
 
+There is a young cowboy ... lives on the range ... his horse and his cattle are his only companions ... thinking about 'women' ...
+https://www.youtube.com/watch?v=QXUvEmXefKk
+... sings out a 'song' which is 'soft' but is QLEAR ... GOOD NIGHT YOU MOON (moom is 'LUA' in portuguese) 'LIGHT 'ladies' ... ROCK A BYE SWEET BABY JAMES ... deep greens and blues are the 'colors' I chQQse ... won't you let me go down in my 'dreams' ... ROCK A BYE MY SWEET BABY ...
+
+I sang that song rocking my 1st son in my arms night after night after night ... it's JohnJohn's 'song' ... Casey Flynny Flynn and Tiffany Rie Baby Marie have their own songs I just made up and started singing and never forgot and just sang their 'song' to them as I held them as infants ... teardrop ... TearDrop ... TEARDROP ... I MISS MY BABY LADY AND MY GENTLE BABY MEN as 'babies' now that they are all 'grown up' ... hmmm ... Hmmm ... HMMM ... G_D IS WITH US ... GOOD IS COMING ... ENTERTAIN NO DOUBT ... G_D IS WITH US ..!
+
 Blessed are the PUREHEART for they shall see G_D.
 Matthew 5:8
 
@@ -566,7 +572,20 @@ with G_D.
 
 "THE TESTING TIME" ... https://www.youtube.com/watch?v=EA4zjRBROtY ... but if you will hear me out ... I THINK ... YOU WILL AGREE ... you wouldn't have it any other WAY ...
 
+... you can 'play the game' ... you can 'act out the part' ...
+https://www.youtube.com/watch?v=GfJWqjoekow
+... one thing can lead to another ... it doesn't take any 'sacrifice' ... oh father and mother sister and brother ... SHOWER THE PEOPLE THAT YOU LOVE WITH LOVE ... SHOW THEM THE 'WAY" THAT YOU 'FEEL' ... THINGS ARE GONNA BE MUCH BETTER if we only will ...
+... you can run but you cannot hide ... this is widely known ... besides what you plan to do with your foolish pride when you're all by yourself alone ..?
+
+... NOWHERE MAN ... 
+https://www.youtube.com/watch?v=skFAQ7WPvYY
+... he's a 'real' 'nowhere man' ... making all his 'nowhere plans' ... isn't he a bit like you and me ..?
+
 IT HAD TO BE THIS WAY.
+
+... you know she's happy as can 'be' ... you know she said so ...
+https://www.youtube.com/watch?v=WrAV5EVI4tU
+... and I feel 'fine' ...
 
 Sometimes you can't TELL the public the truth.
 YOU MUST SHOW THEM.
@@ -577,8 +596,54 @@ https://qanon.pub/?q=Sometimes%20you%20can%27t%20TELL%20the%20public%20the%20tru
 
 https://qanon.pub/?q=this%20is%20not%20going%20away
 
+Those 'you were taught to trust' the most ...
+
+... she said that living with me was brinQinQ her dQwn ... yeah ... she would never be 'free' when I was arQund ...
+https://www.youtube.com/watch?v=SyNt5zm3U_M
+... she's gQt a tiQQet tQ ride ... and she dQn't care ... I dQn't knQw why she's ridinQ so hiQh ...
+
+"
+That to secure these rights, Governments are instituted among Men, deriving their just powers from the consent of the governed, –That whenever any Form of Government becomes destructive of these ends, it is the Right of the People to alter or to abolish it, and to institute new Government, laying its foundation on such principles and organizing its powers in such form, as to them shall seem most likely to effect their Safety and Happiness. Prudence, indeed, will dictate that Governments long established should not be changed for light and transient causes; and accordingly all experience hath shewn, that mankind are more disposed to suffer, while evils are sufferable, than to right themselves by abolishing the forms to which they are accustomed. But when a long train of abuses and usurpations, pursuing invariably the same Object evinces a design to reduce them under absolute Despotism, it is their right, it is their duty, to throw off such Government, and to provide new Guards for their future security.
+"
+
+https://qanon.pub/?q=But%20when%20a%20long%20train%20of%20abuses%20and%20usurpations%2C%20pursuing%20invariably%20the%20same%20Object%20evinces%20a%20design%20to%20reduce%20them%20under%20absolute%20Despotism%2C%20it%20is%20their%20right%2C%20it%20is%20their%20duty%2C%20to%20throw%20off%20such%20Government%2C%20and%20to%20provide%20new%20Guards%20for%20their%20future%20security.
+
+... people, don't you understand ... a child needs a helping hand ... or he'll grow to be an 'angry' young man someday ...
+TAKE A LOOK AT  YOU AND ME ... ARE WE TOO BLIND TO SEE ...
+https://www.youtube.com/watch?v=2Ox1Tore9nw
+... OR DO WE SIMPLY TURN OUR HEADS AND LOOK THE OTHER WAY ...
+
 IN TRUTH I tell you, unless you change, soften your PUREHEART, be in TRUTH most PUREHEART and become like innocent, most PUREHEART little children, you will never enter the Kingdom of HEAVEN.
 Matthew 18:3
+
+GO HAVE SO "TAHO" you'll feel 'smarter' more 'healthy' better and remember I LOVE YOU ... NEVER FORGET ... EVER Ever ever ...
+
+MAKE YOUR DELICIOUS WARM "TOFU WITH FLAVOR" BROWN SUGARY DESSERT AT HOME GOOD Q.I.D. K.I.D. for your lil' Q.I.D.s K.I.D.s tQQ ... thanQ yQu tQQ ... LOVE ya' bye ...
+
+https://panlasangpinoy.com/filipino-street-food-homemade-taho-recipe/ 
+
+USING SILKEN TOFU (for a NUTRITIOUS SWEET HEALTHY FLAVORFUL USE OF 'tofu' FINALLY) affordable here:
+
+https://www.amazon.com/silken-tofu/s?k=silken+tofu 
+
+... and please 'FEEL' 'FREE' WITH SOME DELICIOUS soft, suckable, lickable, deliciously wiggly jiggly gelatin 'pearls' of ancient Han knQwledge 
+
+https://www.amazon.com/sago-pearls/s?k=sago+pearls 
+
+... and while you are enjoying your 'new found LOVE of taho' remember my GOOD 'taho' 'matanda' 'old one' please PRAY for my dear old friend, taho 'street vendor', 94 year old, Andres, and his nephew, Larry, most PUREHEART in TRUTH of GOOD NATURAL DELICIOUS PUREHEART "TAHO Taho taho" on the island of the soft legs PUREHEART 'maitim, kayumagni, maputi' intellectual 'kind' 'firm' 'most serious' 'most suffered' 'most patient' 'most deserving' daughters and sons of ancient Han traveled far aWAY settling among the 'ita' the 'natives' kind of most PUREHEART ganda and pogi 'malakas' 'feeling' 'kind' kind of PILIPINAS I LOVE ... along with some NATURAL 'brown' SUGAR for a most CREAMY CREAM of CREAMiness DELIGHTful 'HEALTHY' 'FUN' 'ENTERTAINING' 'ANCIENT' 'SPIRTUALLY UPLIFTING' 'NUTRITION FOR THE BODY, MIND AND SOUL' in TRUTH most PUREHEART 'EXHILARATING' 'STIMULATING' 'experience':
+
+https://www.amazon.com/s?k=organic+brown+sugar
+
+CHRIST you know it ain't easy ...
+https://www.youtube.com/watch?v=v-1OgNqBkVE
+... the WAY things are going ... they're going to 'CRUCIFY' me ...
+
+THE BALLAND OF JOHN & LANI ... ahem ... I mean ... THE BALLAD OF JOHN & YOKO ... WORD.
+
+... Are you lonesome tonight ..? Do you miss me tonight ..? Are you sorry we drifted apart ..?
+https://www.youtube.com/watch?v=hwbzxENP2eE
+Do you GAZE AT YOUR BALD HEAD ..? And WISH YOU HAD HAIR ..? Does you heart fill with pain ..? Shall I come back again ..?
+tell me dear ... are yQu lQnesQme tQniQht ..?
 
 ... leave your memory ...
 https://www.youtube.com/watch?v=nm6YsuFyrkA
