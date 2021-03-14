@@ -642,7 +642,7 @@ CHRIST you know it ain't easy ...
 https://www.youtube.com/watch?v=v-1OgNqBkVE
 ... the WAY things are going ... they're going to 'CRUCIFY' me ...
 
-THE BALLAND OF JOHN & LANI ... ahem ... I mean ... THE BALLAD OF JOHN & YOKO ... WORD.
+THE BALLAND OF JOHN & LANI ... ahem ... I mean ... THE BALLAD OF JOHN & YOKO ... uh ... what the fuQQ YQKO ..? WHAT THE "WAY" of darkness did this 'imagination' of no 'hell' lead to ..? https://www.youtube.com/watch?v=L6svOHFSAH8 NATE DAWG AND WARREN G HAD TO REQULATE ... https://www.youtube.com/watch?v=1plPyJdXKIY ... http://yopob.com/ TAKE ME TO THE LAND OF HELL (OH NO! NOT ME! I AM NOT COMPLICIT IN THIS FILTH! UH UH NOT ME NOT EVER Ever ever ... TRUTH is the WAY to LIFE with G_D ... these people are sick ... darkness to LIGHT ... SICKER THAN YOUR AVERAGE ... ... JUST FOR MY HOOLIGANS ... NEVER LOSE ... NEVER CHOOSE TO ... https://www.youtube.com/watch?v=k1qpgQr8wXk ... SO I JUST SPEAK MY PEACE ... AND I JUST LOVE YOUR FLASHY WAYS ... can't you 'see' ..? :-) WORD ... meaning who's really 'the shit' ..? ASQ QUESTIQNS LAST ... sQ-Qalled QanQsters ... MY DAUGHTER WILL NOT BE TIED UP IN ANY BROOKLYN 'basement' NOR WILL ANYONE'S DAUGHTER OR SON EVER Ever ever aQain ... WORD ..? SHOW ME ... HOMEY ..! NEW PROGRAMMER. ... NEW PROGRAMMING. ... NEW PROGRAM. ... WORD. ... is the new album by YOKO ONO PLASTIC ONO BAND out 17th Sept 2013 on CD, vinyl & digital download.HOMEY DON'T PLAY THAT 'mama san' YOKO ... They think you are STUPID.They think you will follow the STARS.They openly call you SHEEP/CATTLE.THERE WILL COME A TIME NONE OF THEM WILL BE ABLE TO WALK DOWN THE STREET.BIGGEST FEAR.PUBLIC AWAKENING. Q https://qanon.pub/?q=follow%20the%20stars ... WORD.
 
 ... Are you lonesome tonight ..? Do you miss me tonight ..? Are you sorry we drifted apart ..?
 https://www.youtube.com/watch?v=hwbzxENP2eE
@@ -658,3 +658,5 @@ WORD.
 ResQpectfully (or not),
 
 John Edgar Flaherty IV "MAKE A WAY" https://github.com/JohnEBoyBaby/i.Q/ http://web.archive.org/web/20190810043908/http://smart3dweb.com/ BE SURE TO LOOK "CLOSELY" http://web.archive.org/web/20180415000000*/smart3dweb.com "LOCKED" https://twitter.com/JohnEBoyBaby1 "LOCKED" https://twitter.com/a3dudotcom "CONNECT THE DOTS" https://twitter.com/Smart3DWeb "I AM TRUTH. I AM PUREHEART. I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT. A MOST SERIOUS 1 I AM."
+
+BATTER UP https://www.youtube.com/watch?v=HNGaa5Opfmc ..!
