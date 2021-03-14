@@ -661,6 +661,6 @@ John Edgar Flaherty IV "MAKE A WAY" https://github.com/JohnEBoyBaby/i.Q/ http://
 
 BATTER UP https://www.youtube.com/watch?v=HNGaa5Opfmc ..!
 
-GLORY! GLORY!
+sQ hush lil' baby dQn't yQu Qry ... GLORY! GLORY!
 https://www.youtube.com/watch?v=yTwJvVTQ6-0
-HALLELUJAH!
+HALLELUJAH ..! TRUTH IS MARCHING ON ..!
