@@ -660,3 +660,7 @@ ResQpectfully (or not),
 John Edgar Flaherty IV "MAKE A WAY" https://github.com/JohnEBoyBaby/i.Q/ http://web.archive.org/web/20190810043908/http://smart3dweb.com/ BE SURE TO LOOK "CLOSELY" http://web.archive.org/web/20180415000000*/smart3dweb.com "LOCKED" https://twitter.com/JohnEBoyBaby1 "LOCKED" https://twitter.com/a3dudotcom "CONNECT THE DOTS" https://twitter.com/Smart3DWeb "I AM TRUTH. I AM PUREHEART. I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT. A MOST SERIOUS 1 I AM."
 
 BATTER UP https://www.youtube.com/watch?v=HNGaa5Opfmc ..!
+
+GLORY! GLORY!
+https://www.youtube.com/watch?v=yTwJvVTQ6-0
+HALLELUJAH!
