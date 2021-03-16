@@ -19,6 +19,69 @@ WE LOVE YOU JFK, JFK JR, PRINCESS DI ... https://www.youtube.com/watch?v=1wXf08-
 
 and NOW ... THE TRUTH ... now you have the 'rest of the story' ... NEWS https://www.youtube.com/watch?v=7Y7HwQmo8tk courtesy of Philadelphia LIBERTY bell ringer, KINNINIGAN ... https://www.youtube.com/watch?v=WBbGKGq3sZY ... HOWARD HUGHES and SECRET SPACE PROGRAM ... and SOME MUCH NEEDED EDWARD SNOWDEN, MARIA BUTINA, SETH RICH, JULIAN ASSANGE ... https://www.youtube.com/watch?v=XLI6unM7d7U ... STAY STRONG BELOVED KIND ONE IN TRUTH WITH MOST PUREHEART JULIAN beCAUSE IN TRUTH WITH MOST PUREHEART WE PRAY FOR YOU WE ARE WITH YOU ALWAYS FOR WE WILL NEVER FORGET YOU AND YOUR LOVE FOR G_D FOR TRUTH FOR PUREHEART FOR ALL OF "US" WE LOVE YOUR "SACRIFICE" YOUR ... 'GIVING OF LIFE AS "SACRIFICE"' ... RIGHT Neil Young sing it for me HEART OF GOLD seeking one sing CQRTEZ THE QILLER "SO THAT OTHERS COULD GO ON..." ... WE LOVE YOU JULIAN ASSANGE https://www.youtube.com/watch?v=7NZEJR_Syfs TRUTH WE ARE WITH YOU JULIAN STAY STRONG JULIAN GOOD IS COMING and G_D IS WITH US AS YOU ARE SITTING AWAY "LONELY" GETTING AWAY ONLY IN "YOUR MIND" SO GET AWAY "SOMETIME" I SAY TO YOU NOW JULIAN G_D "FEEL" MY PRAYER MY LORD MY G_D IN TRUTH I BEG OF YOU MY LOVE MY G_D HELP JULIAN NOW AND LET HIM "FEEL" MY PRAYER LET HIS MOTHER AND FATHER "FEEL" MY PRAYER IN TRUTH IN MOST PUREHEART AND G_D ACT NOW YOU THINK "GINA MARIA COLVIN HILL" is ... https://www.youtube.com/watch?v=XdvJQjduujQ JUST AN AVERAGE 'housewife' ..? "THEY DON'T MIND HELPING PEOPLE WHO HELP THEIR SELVES." ... G_D WINS! GO WITH G_D! Bigger than you can imagine ... darkness to LIGHT! https://www.youtube.com/watch?v=qbsKvjRls9U PULL THE OTHER LEG ... IT PLAYS JINGLE BELLS ... PLEASE ACT NOW G_D RIGHT NOW PLEASE OH LORD G_D HELP JULIAN AS JULIAN IS SITTING IN ISOLATION "RIGHT NOW" BEING "TORTURED" "DYING" IN A "CAGE" SURROUNDED BY WEREWOLVES OF LONDON ... https://www.youtube.com/watch?v=qae25976UgA ... WHY ARE THE WEREWOLVES OF LONDON "CAGING" "KILLING" JULIAN ASSANGE AND WHY IS THE WEAK FAKEtriot Austrialian, Canadian, New Zealand, Ireland, French, German, Spanish, Greek, ameriSICKan PEDOgon not saying anything ..? beCAUSE THEY ARE SICK AS FUQQ ... CAGING JULIAN FOR WHAT ..? FOR TELLING THE TRUTH WITH MOST PUREHEART SERVING G_D not 'checkboard pattern' FREEMASON FILTHY MONSTERS IN LONDON AMERISICKA PEDOGON BLOOD MONEY FEDERAL RESERVE DUTCH EAST INDIA OPIUM WARS BALFOUR AGREEMENT ROTHSCHILD "FAKE JEW" "REAL JEWS NEED NO LAND FOR TRUTH FOR G_D LIVES ANYWEHRE THE REAL IN TRUTH WITH MOST PUREHEART AND GOOD INTENT WHO SEEK NOT TO CONTROL BUT TO HELP AND LOVE AND CHANGE AND SOFTEN HEARTS SO WE ALL "FINISH THE RACE" TOGETHER UNLIKE THE "ZIONIST" WARMONGERING MURDEROUS FILTHY FREEMASON INFILITRATORS SECRET SOCIETIES ... REPUGNANT ... ROME ..! TEARDROP TearDrop teardrop JULIAN ASSANGE +++ AND SO MANY MORE "DEAD" and alive 'lonely' suffering ... "NO MORE TURNING AWAY" ... https://www.youtube.com/watch?v=Dq2sCFmphy8 ... 8th SPHERE ..? TRUTH ... by IN TRUTH MOST PUREHEART 'darkJOURNALIST's 'Daniel' and the beautiful 'Oliva' ... https://qanon.pub/?q=freemason children of darkness RIGHT Arch Bishop Vigano ..? https://www.truthislight.com/2014/05/police-and-freemasonry-irrefutable.html ... RIGHT ..! LISTEN REAL "GOOD" https://www.youtube.com/watch?v=OoeHVUmk_qw&t=1083s ... https://qanon.pub/?q=those%20you%20are%20taught%20to%20trust%20the%20most "These people are sick. Q" "These people should be hanging. Q" "Those you 'were taught' to 'trust the most' are the most GUILTY OF SIN. Q" ... "No one gets out of this. Q" ... "You are witnessing the systematic destruction of the old guard. Q" ... Nothing can stop what is coming. NOTHING. Q" ... https://qanon.pub/?q=talking%20to You are learning. How many coincidences before it becomes mathematically impossible? Wait until you learn who has been talking to you here. Q " ... 
 
+'twas the day after ... time to see 'what time it is' and 'who is who in the zoo' so if you 'need' a 'somebody' who can do a certain 'something' that 'few can do' then you know 'what's UP' but please keep either WAY be GOOD tell the TRUTH be the 'real' you ALL THE TIME not 'some' of the time no part-time TRUTHtians 'feel' me ..? cool. WORD. Blessed are the PUREHEART for they shall see G_D. Matthew 5:8 ... There is no escaping G_D. Go with G_D. G_D WINS ... Q ... I AM not frightened of dying. There's no reaSON for it. We all got to go sometime ... Roger Waters, Pink Floyd ... ON THE TURNING AWAY ... Elvis ... IN THE GHETTO ... SmashMouth ... Walkin' on the 'son' ... I AM TRUTH. YOU ARE TRUTH. REPEAT AFTER ME "I AM TRUTH. I AM PUREHEART." beCAUSE YOU ARE ... remember who you are ...  you have forgotten more than you know ... look 'harder' ... 'deeper' ...
+
+TO EXPRESS ONE'S SELF HONESTLY NOT LYING TO ONE'S SELF AND TO EXPRESS MYSELF HONESTLY 'that' 'my friend' is very hard to do.
+Bruce Lee
+
+IF I AM GOING TO PUNCH, I AM GOING TO DO IT, man, I AM GOING TO DO IT.
+Bruce Lee
+
+Water can flow or it can CRASH ... be water my friend ...
+Brue Lee
+
+... some new 'thing' might GROW ... therefore, it is a very 'rich' period ... maybe ...
+Bruce Lee
+https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s
+
+EVERYBODY STOP TALKING NOW ... ATTENTION ... I TOLD YOU ALL ...
+https://www.youtube.com/watch?v=XpPqZRYAuCM
+I'VE BEEN READING WHAT YOU'RE SAYING ... GOT EVERYBODY SCARED ... SCARED OF WHAT ... AIN'T NOTHING TO BE SCARED OF ... and I AM GOING TO 'whoop' 'him' ... SPEED ... for the distance if 'necessary' ... then I'LL 'whoop' him ... YOU MUST LISTEN TO ME ... HE'S TOO UGLY TO BE THE WORLD CHAMP ... THE WORLD CHAMP needs to be 'pretty' like 'me' ...
+Cassius Marcellus Clay
+Muhammad Ali
+1942/1/17
+https://en.wikipedia.org/wiki/Muhammad_Ali
+
+I alWAYs like to 'think' I AM A BAD MOTHER FUCKER ... a VICIOUS MOTHER FUCKER ... I KNOW WHAT 'GREATNESS' IS ...
+The 'real' 'deal' 'REAL' 'BIG' MOTHER FUCKING 'MIKE' 'IRON MIKE' Michael "G_D's WARRIOR" IN TRUTH WITH MOST PUREHEART 'champion of the people ' ...
+'he' goes to a level where I AM 'afraid' to go ...
+BIG MIKE Tyson
+1966/6/30
+https://en.wikipedia.org/wiki/Mike_Tyson
+
+John Edgar Flaherty IV
+TRUTH
+1968/8/12
+'me' telling the TRUTH as alWAYs ... WORD.
+
+... one day in driving in Louisville looking I stopped in a 'barber shop' and Ibn Ali, a tall, maitim, smooth skin, 'if you want to lose your money, then bet on 'sonny' thinking 'spirit of cassius' 'spirit of TRUTH' 'spirit of clay' that G_D formed 'man from the earth's' 'clay' 'kind' kind of 'clay' most PUREHEART honored 'muhammad' ali floating like a butter fly and stinging like a bee your hands can't hit what your eyes can't see ... , smiling, thick 'pretty' shiny natural black 'buhok' 'hair' not too long 1 IRON not too short 9 IRON but a perfect 'stack' JUST RIGHT 5 IRON ... right GOLDiLOCKs JUST RIGHT ... I'M PRETTY ... I SHOOK UP THE WORLD ... now ask  yourself a very GOOD Question how is 'the champ's' nephew living in the back of a barber shop with his lil' maputing babae 'lighter lacking pigment' soft legs smiling with her 'man' and all those you know EDDIE MURPHY 'GOONY GOOGOO' 'COMING TO AMERICA' 'barber shop' 'characters' talking and Talking and TALKING 'shit' ... the more you know ... The More You Know ... BIG BANNERS OF ALI SMILING ALL OVER TOWN while his own nephew has nothing ... yeah ... tell the real TRUTH these phony fake TRUTHtians 'round here ... "I AM NOT 'white' ... I AM NOT NO SLAVE ... I AM 'muhammad' ... https://www.youtube.com/watch?v=B6DefSfqZ4w ... ali means most HIGH ... I AM NO LONGER A SLAVE ... TRUTH ... PUREHEART ... WHAT'S MY NAME ..? YOU KNOW HOW GREAT I AM ... I don't have to tell ... YOU ARE MY OPPOSER ... https://www.youtube.com/watch?v=_ybnXgMMb5g&t=1017s ... YOU WANT ME TO GO SOMEWHERE AND "FIGHT" BUT YOU WON'T EVEN STAND UP FOR ME HERE AT HOME ..!
+
+GREAT GRAND FATHER OF TRUTH
+John Edgar Flaherty (Sr)
+PUREHEART
+1883/12/25
+https://www.findagrave.com/memorial/36551613/john-edgar-flaherty
+
+GRAND FATHER OF TRUTH
+John Edgar Flaherty (Jr)
+PUREHEART
+1922/7/13
+https://www.findagrave.com/memorial/46967051/john-edgar-flaherty
+
+FATHER OF TRUTH
+John Edgar Flaherty III
+PUREHEART
+03/19/1948
+... just so you know and have a chance to do so if you 'feel' it is RIGHT for you to do then please know as I write this, 6:03pm EST, 2021/3/16, here in lQuisville, kentuQQy, ameriQa, my 'father', John Edgar Flaherty III, is 'fighting for his LIFE' and if G_D takes him back 'home' now and I can't see or talk to 'him' things won't too different from RIGHT now alone any fuQQinQ FULL OF RIGHTEOUS RAGE AM I not too 'kind' of a WAY that all 'my family' tells me is the only 'WAY' the 'WAY' I 'must' follow beCAUSE all I 'CAN DO' is send a voice mail message to my 'locked down' in a 'hospital' dying father to a fuQQinQ phone number I have sent 1000 text messages since returning home from living in the Philippines in September 2020 but never get a reply so I SIT AWAY ... I GET AWAY only in my mind ... I SIT AWAY sometimes ... teardrop ... TearDrop ... TEARDROP ... G_D "FEELS" MY MOST PUREHEART PRAYERS AND KNOWS MY PUREHEART "INTENT" SO I AM GOOD ... wiping tears aWAY ... I AM GOOD ... I KNOW G_D WILL "MAKE A WAY" and I TRUST G_D's plan for 'me' for 'my parents' for 'my grandparents' for 'my great grandparents' for my 'children' for my 'extended family' for all I LOVE WITH MOST PUREHEART that are so 'poor' complain so little and do so much for so many with nearly nothing and smile and are ever so gracious and grateful when I notice their PUREHEART ... these 'street people' ... WHY DON'T YOU CALL ME MY NAME, man ..? I AM TRUTH. I AM PUREHEART. I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT.
+
+... this is the 'legend' of 'Cassius Clay' ... the most 'beautiful' 'fighter' in the 'world' today ...
+https://www.youtube.com/watch?v=_ybnXgMMb5g
+... THEY KNOW IT ..!
+THE MORE YOU KNOW ... The More You Know ... the more you know ...
+SAY MY "NAME" ..! Say My "Name" ..! say my "name" ..!
+
+Cool.
+
 NEW PROGRAMMING.
 
 GEE ..! https://www.youtube.com/watch?v=U7mPqycQ0tQ ... now that's the 'kind' kind I like ... I LOVE SOFT LEGS ... I LOVE TRUTH ... I LOVE PUREHEART ... worth FIQHTINQ FQR ... most PUREHEART daughters of ancient Han ... 'crossed legs' ... 'soft legs' ... moi, raison d'etre ... PUREHEART ... TRUTH ... LOVE ... GOOD ... I seek not to be 'right' I SEEK TO BE GOOD ... I HAVE NO 'FRIENDS' ... I AM TRUTH ... https://www.goodreads.com/quotes/9857984-a-speaker-of-truth-has-no-friends--african-proverb ... TRUTH HAS NO 'FRIENDS' ... GIRLS BRING 'da bQys' QUT ... WORD ..? BE GOOD ... or be gone ... WORD.
