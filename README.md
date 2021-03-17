@@ -5,7 +5,49 @@ What, then, shall we say in response ..? https://www.biblehub.com/romans/8-31.ht
 
 G_D IS FOR "US", WHO CAN BE AGAINST US ..? 
 
-... he who did not spare his own son but gave him up for us all ... WORTH DYING FOR ... WHAT ABOUT ALI ..? LQUISVILLE LIP! https://www.youtube.com/watch?v=im9W4WYa5I0 ... the ... 'PROMISE' ... oh la la now that's the 'firm' 'feeling' PUREHEART FAST POWERFUL oh la la I lie too https://www.youtube.com/watch?v=U7mPqycQ0tQ ... WORTH GIVING UP MY LIFE FOR ... ANYTIME ... ANYWHERE ... ONLY 1 OF US IS RIGHT and I KNOW G_D IS WITH ME ... beCAUSE that's the oh la la soft legs ... WHAT'S MY NAME ... soft legs What's my name ... I AM TRUTH ... what's my name ... I AM PUREHEART ... go ahead soft legs PUREHEART beLOVEd one in TRUTH say it ... what's my name ... I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT ... WORD. ... ANYTIME ... ANYWHERE ... how will he not also, along with him, freely give us all ..? ... WORD ..? ... https://www.youtube.com/watch?v=6pA_Tou-DPI ... WE BRINQ THE BQ's QUT ... WORD. https://www.youtube.com/watch?v=IGInsosP0Ac ... DO NOT "FIT IN" ... STAND OUT! ... KEEP YOUR PUREHEART ... TELL THE 100% NOLYN TRUTH ... https://www.youtube.com/watch?v=vYV-XJdzupY WONDER WHO "MAKES 'her'" 'put her hand over her 1 eye' ... hmmm ... NOT HER ... WORD ... and ... I HOPE NEIL YOUNG WILL REMEMBER ... some of 'us' ... 'southern bQys' ... DO NEED HIM arQund anyhQw ... https://www.youtube.com/watch?v=Eh44QPT1mPE ... 'it' KEEPS ME SEARCHING FOR A HEART OF GOLD ... https://www.youtube.com/watch?v=EMXvJEB7ue8 ... and you know I KNOW YOU KNOW so KNOW I KNOW  YOU KNOW ... I AM A LOT LIKE YOU ... TAKE A LOOK AT MY LIFE ... AND THERE'S SO MUCH MORE ... THAT MAKES ME THINK ... GIVE ME THINGS THAT DON'T GET LOST ... I NEED SOMEONE TO LOVE ME THE WHOLE DAY THROUGH ... ONE LOOK IN MY "EYES" AND YOU TELL THAT'S TRUE ... I AM ALOT LIKE YOU ... NEED SOME "CHANGE" "REAL" "FIRM" "FEELING" "LOVING" "TRUTHFUL" "PUREHEART" "kind" kind of "CHANGE" ... https://www.youtube.com/watch?v=eXvBjCO19QY ... MATTHEW 18:6. ... JOHN 15:1-22. ... MATTHEW 18:3. ... MATTHEW 5:8 ... SEE YOU BACK "HOME" ... PROMISE. ... CHOOSE WISELY ... A MOST SERIOUS 1 I AM ... WE ARE THE "SULTANS QF SWINQ" ... https://www.youtube.com/watch?v=xZatdZ_bqOc ... Qh and fQr the reQQrd ... I DO GIVE A DAMN ABOUT A "TRUMPET "PLAY"ing 'band' ... https://www.youtube.com/watch?v=IN3DnZgZ3HI ... SONGBIRD ... FOREVER LOVE ... LOVE ME SQME KENNY Q ... TRUTH ... PUREHEART ... soft legs PUREHEART LOVE THAT SOOTHING "SOUND" TOO "kind" one ... WORD. ...
+... he who did not spare his own son but gave him up for us all ... WORTH DYING FOR ... WHAT ABOUT ALI ..? LQUISVILLE LIP! https://www.youtube.com/watch?v=im9W4WYa5I0 ... the ... 'PROMISE' ... oh la la now that's the 'firm' 'feeling' PUREHEART FAST POWERFUL oh la la I lie too https://www.youtube.com/watch?v=U7mPqycQ0tQ ... WORTH GIVING UP MY LIFE FOR ... ANYTIME ... ANYWHERE ... ONLY 1 OF US IS RIGHT and I KNOW G_D IS WITH ME ... 
+
+G_D IS WITH US!
+
+... the 'PROMISE' ...
+
+GOOD IS COMING!
+
+PROMISE.
+
+RIGHT on time ... https://www.youtube.com/watch?v=segxTedNBrQ ... everybody be RIGHT on time ..!
+
+ENTERTAIN NO DOUBT.
+
+WE are many.
+WE are GOOD.
+WE are coming.
+
+GOOD IS COMING and G_D IS WITH US!
+
+What, then, shall we say in response ..? https://www.biblehub.com/romans/8-31.htm ..?
+
+G_D IS FOR "US", WHO CAN BE AGAINST US ..?
+
+... he who did not spare his own son but gave him up for us all ... WORTH DYING FOR ... WHAT ABOUT ALI ..? LQUISVILLE LIP! https://www.youtube.com/watch?v=im9W4WYa5I0 ... the ... 'PROMISE' ... oh la la now that's the 'firm' 'feeling' PUREHEART FAST POWERFUL oh la la I lie too https://www.youtube.com/watch?v=U7mPqycQ0tQ ... WORTH GIVING UP MY LIFE FOR ... ANYTIME ... ANYWHERE ... ONLY 1 OF US IS RIGHT and I KNOW G_D IS WITH ME ... beCAUSE that's the oh la la soft legs ... WHAT'S MY NAME ... soft legs What's my name ... I AM TRUTH ... what's my name ... I AM PUREHEART ... go ahead soft legs PUREHEART beLOVEd one in TRUTH say it ... what's my name ... I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT ... WORD. ... ANYTIME ... ANYWHERE ... "GET 'him' FOR ME." ... 
+
+ONLY 1 OF 'US' IS RIGHT ..? See you back 'home' ... PROMISE. CHOOSE WISELY.
+
+TRUTH is
+the WAY
+to LIFE
+with G_D.
+
+"I WOULD LIKE TO DEDICATE MY "FIGHT" TO THE GREAT G_D ..."
+IRON MIKE TYSON
+
+A REAL TRUTHtian PROMISE KEEPER.
+
+WORD?
+
+LOOK AT THE TIME "SENT" BELOW I DID NOT "PLAN" THAT AT ALL ... it literally just happens just 'unfolds' and later I recognize G_D IS EVERYWHERE IN EVERYTHING if I only take time to 'see' ... SENT TIME FROM MY PHONE BELOW TO SHOW YOU 'ALL' WHAT JUST HAPPENED WAS 09:36:06 PM EST in Louisville, Kentucky, ameriQa tonight just 6 minutes at 10;42 as I write this ... 3, 6, 9 Mr. Tesla ... https://www.youtube.com/watch?v=54q2OfUjpdQ ... https://www.youtube.com/watch?v=GnEWOYKgI4o ... https://www.youtube.com/watch?v=3K-12i0jclM ... you have more than you know ... it had to be this WAY ... you were saying, kind intelligent Nikola ..?
+
+beCAUSE that's kind I like https://www.youtube.com/watch?v=U7mPqycQ0tQ 100% "MY FINAL ANSWER" YES 'that' 'oh la la' 'soft legs' 'crossed legs' PUREHEART in TRUTH is 100% NOLYN 100% TRUTH the kind I like 'oh la la' soft legs ... WHAT'S MY NAME ... soft legs What's my name ... I AM TRUTH ... what's my name ... I AM PUREHEART ... go ahead soft legs PUREHEART beLOVEd one in TRUTH say it ... what's my name ... I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT ... WORD. ... ANYTIME ... ANYWHERE ... how will he not also, along with him, freely give us all ..? ... WORD ..? ... https://www.youtube.com/watch?v=6pA_Tou-DPI ... WE BRINQ THE BQ's QUT ... WORD. https://www.youtube.com/watch?v=IGInsosP0Ac ... DO NOT "FIT IN" ... STAND OUT! ... KEEP YOUR PUREHEART ... TELL THE 100% NOLYN TRUTH ... https://www.youtube.com/watch?v=vYV-XJdzupY WONDER WHO "MAKES 'her'" 'put her hand over her 1 eye' ... hmmm ... NOT HER ... WORD ... and ... I HOPE NEIL YOUNG WILL REMEMBER ... some of 'us' ... 'southern bQys' ... DO NEED HIM arQund anyhQw ... https://www.youtube.com/watch?v=Eh44QPT1mPE ... 'it' KEEPS ME SEARCHING FOR A HEART OF GOLD ... https://www.youtube.com/watch?v=EMXvJEB7ue8 ... and you know I KNOW YOU KNOW so KNOW I KNOW  YOU KNOW ... I AM A LOT LIKE YOU ... TAKE A LOOK AT MY LIFE ... AND THERE'S SO MUCH MORE ... THAT MAKES ME THINK ... GIVE ME THINGS THAT DON'T GET LOST ... I NEED SOMEONE TO LOVE ME THE WHOLE DAY THROUGH ... ONE LOOK IN MY "EYES" AND YOU TELL THAT'S TRUE ... I AM ALOT LIKE YOU ... NEED SOME "CHANGE" "REAL" "FIRM" "FEELING" "LOVING" "TRUTHFUL" "PUREHEART" "kind" kind of "CHANGE" ... https://www.youtube.com/watch?v=eXvBjCO19QY ... MATTHEW 18:6. ... JOHN 15:1-22. ... MATTHEW 18:3. ... MATTHEW 5:8 ... SEE YOU BACK "HOME" ... PROMISE. ... CHOOSE WISELY ... A MOST SERIOUS 1 I AM ... WE ARE THE "SULTANS QF SWINQ" ... https://www.youtube.com/watch?v=xZatdZ_bqOc ... Qh and fQr the reQQrd ... I DO GIVE A DAMN ABOUT A "TRUMPET "PLAY"ing 'band' ... https://www.youtube.com/watch?v=IN3DnZgZ3HI ... SONGBIRD ... FOREVER LOVE ... LOVE ME SQME KENNY Q ... TRUTH ... PUREHEART ... soft legs PUREHEART LOVE THAT SOOTHING "SOUND" TOO "kind" one ... WORD. ...
 
 NEW PROGRAMMER.
 NEW PROGRAMMING.
