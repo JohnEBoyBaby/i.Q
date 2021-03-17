@@ -11,7 +11,7 @@ What, then, shall we say in response ..? https://www.biblehub.com/romans/8-31.ht
 
 G_D IS FOR "US", WHO CAN BE AGAINST US ..? 
 
-... he who did not spare his own son but gave him up for us all ... WORTH DYING FOR ... WHAT ABOUT ALI ..? LQUISVILLE LIP! https://www.youtube.com/watch?v=im9W4WYa5I0 ... the ... 'PROMISE' ... oh la la now that's the 'firm' 'feeling' PUREHEART FAST POWERFUL oh la la I lie too https://www.youtube.com/watch?v=U7mPqycQ0tQ ... WORTH GIVING UP MY LIFE FOR ... ANYTIME ... ANYWHERE ... ONLY 1 OF US IS RIGHT and I KNOW G_D IS WITH ME ... 
+... he who did not spare his own son but gave him up for us all ... WORTH DYING FOR ... WHAT ABOUT ALI ..? LQUISVILLE LIP! https://www.youtube.com/watch?v=im9W4WYa5I0 ... the ... 'PROMISE' ... oh la la now that's the 'firm' 'feeling' PUREHEART FAST POWERFUL oh la la I like too https://www.youtube.com/watch?v=U7mPqycQ0tQ ... WORTH GIVING UP MY LIFE FOR ... ANYTIME ... ANYWHERE ... ONLY 1 OF US IS RIGHT and I KNOW G_D IS WITH ME ... 
 
 G_D IS WITH US!
 
