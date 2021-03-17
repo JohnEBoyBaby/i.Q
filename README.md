@@ -29,7 +29,19 @@ What, then, shall we say in response ..? https://www.biblehub.com/romans/8-31.ht
 
 G_D IS FOR "US", WHO CAN BE AGAINST US ..?
 
-... he who did not spare his own son but gave him up for us all ... WORTH DYING FOR ... WHAT ABOUT ALI ..? LQUISVILLE LIP! https://www.youtube.com/watch?v=im9W4WYa5I0 ... the ... 'PROMISE' ... oh la la now that's the 'firm' 'feeling' PUREHEART FAST POWERFUL oh la la I lie too https://www.youtube.com/watch?v=U7mPqycQ0tQ ... WORTH GIVING UP MY LIFE FOR ... ANYTIME ... ANYWHERE ... ONLY 1 OF US IS RIGHT and I KNOW G_D IS WITH ME ... beCAUSE that's the oh la la soft legs ... WHAT'S MY NAME ... soft legs What's my name ... I AM TRUTH ... what's my name ... I AM PUREHEART ... go ahead soft legs PUREHEART beLOVEd one in TRUTH say it ... what's my name ... I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT ... WORD. ... ANYTIME ... ANYWHERE ... "GET 'him' FOR ME." ... 
+... he who did not spare his own son but gave him up for us all ... WORTH DYING FOR ... WHAT ABOUT ALI ..? LQUISVILLE LIP! https://www.youtube.com/watch?v=im9W4WYa5I0 ... the ... 'PROMISE' ... oh la la now that's the 'firm' 'feeling' PUREHEART FAST POWERFUL oh la la I lie too https://www.youtube.com/watch?v=U7mPqycQ0tQ ... WORTH GIVING UP MY LIFE FOR ... ANYTIME ... ANYWHERE ... ONLY 1 OF US IS RIGHT and I KNOW G_D IS WITH ME ... beCAUSE that's the oh la la soft legs ... WHAT'S MY NAME ... soft legs What's my name ... I AM TRUTH ... what's my name ... I AM PUREHEART ... go ahead soft legs PUREHEART beLOVEd one in TRUTH say it ... what's my name ... I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT ... WORD. ... ANYTIME ... ANYWHERE ... "GET 'him' FOR ME." WORD ..? TRUTH is 'ill' ... and I thought yQu knew it ... https://www.youtube.com/watch?v=rzRqEWJYwX4 ... beCAUSE everybQdy knQws that he gQt that infQ ... ICE QUBE WRITE A SENTENCE ... yQu knQw HQW WE DQ IT ..! ... just wakinQ UP in the mQrning ... got a call from a girl I want to dig oQt ... and if I hit switch ... I Qan make her ... drQp ... SHAQE'em UP ... SHAQE'EM UP ... ShaQe'em ... https://www.youtube.com/watch?v=h4UqMyldS7Q&t=32s ... tQday was a GOOD DAY ... it was GOOD day ... WHAT'S MY NAME ... LET ME DQ THE DAMN THANG ..! EATinQ FRESH FRUIT sweep yQur wQman right Qff Qf her feet ..! https://www.youtube.com/watch?v=mq-Ru6kQhE4&t=127s ... What's My Name ..? what's my name ..? TRUTH. PUREHEART. PROTECTOR AND LOVER OF G_D LIKE AN INFANT. PUREHEART. TRUTH.
+
+'The Greatest of All Time' ... forever time ... https://www.youtube.com/watch?v=l20SGIynIPg ... in the Kingdom of HEAVEN
+2 TRUTH invited a little child to stand among them.
+
+3 “Verily I tell you,” TRUTH spoke to all with ears to hear and eyes to see, “Unless you change and become like little children, you will never enter the Kingdom of HEAVEN. 
+
+4Therefore, whoever humbles himself like this little child is the greatest in the kingdom of heaven.…
+Matthew 18:3
+
+... https://www.youtube.com/watch?v=h4UqMyldS7Q
+
+WORD.
 
 ONLY 1 OF 'US' IS RIGHT ..? See you back 'home' ... PROMISE. CHOOSE WISELY.
 
