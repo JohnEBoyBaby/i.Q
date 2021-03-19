@@ -1,31 +1,27 @@
 # i.Q
-NEW PROGRAMMER.
-NEW PROGRAMMING.
-NEW PROGRAM.
+NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
 THANK YOU GITHUB!
 
 https://www.recalbox.com/diyrecalbox/
 
-WHQLLY SQFT PUSSY QATBALLS QATWQMAN!
+WHQLLY SQFT PUSSY QATBALLS, QATWQMAN!
 
 https://SOLAR2D.com
 
-NQW THAT'S TRUE LOVE QATWQMAN ... yes Yes YES it is QatDaddy ... I LOVE YOU QATWQMAN ... aaah I LOVE YOU tQQ QatDaddy ... WORD.
+NQW THAT'S TRUE LOVE, QATWQMAN ... yes Yes YES it is, QatDaddy ... I LOVE YOU, QATWQMAN ... aaah I LOVE YOU tQQ, QatDaddy ... ahhh pussy Qat LOVE ... Ahhh AHHH ... PUREHEART ... TRUTH ... Matthew 5:8 ... Matthew 15:9 ... Matthew 18:3 ... Matthew 18:6 ... John 15:1-22 ... Matthew 5:8 ... WORD.
 
 https://LOVE2D.org
 
-... JOY TO THE WORLD ...
-https://www.youtube.com/watch?v=Ke5jCvlbXX0
-... LET EVERY PUREHEART PREPARE ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ... https://www.youtube.com/watch?v=HXdw4ZTQLVo ... and Wonders ... https://www.youtube.com/watch?v=ffvULj021P0 ... and wonders of ... https://www.youtube.com/watch?v=niOb-ft9N64 ... LOVE ...
+... JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ... https://www.youtube.com/watch?v=HXdw4ZTQLVo ... and Wonders ... https://www.youtube.com/watch?v=ffvULj021P0 ... and wonders of ... https://www.youtube.com/watch?v=niOb-ft9N64 ... LOVE ...
 
-... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ... Bruce Lee ... but I 'think' he's a hero .. but I may be a little 'biased' beCAUSE he's my dad ... https://www.youtube.com/watch?v=QOKKUSwEaxg ... be water my friend ... WE LOVE YOU SHANNON LEE daughter of ancient Han IN TRUTH with most PUREHEART ... NEVER FORGET ... https://www.youtube.com/watch?v=VYYXq1Ox4sk j ... you are more than you know beLOVEd 'blessed' beLOVEd intelligent graceful gracious firm 'feeling' GOOD HEARTED WOMAN ... the 'GOOD LIFE' he PROMISEd ... ain't what she's living today ... https://www.youtube.com/watch?v=skh-Bv_vVC8 ... she just talks about the GOOD TIMES they've had and ALL THE GOOD TIMES to come ... you have more than you know ... https://qanon.pub/?q=You%20have%20more%20than%20you%20know ... MUCH MORE than you know daughter of ancient Han ... PROMISE. 
+... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ... Bruce Lee ... but I 'think' he's a hero .. but I may be a little 'biased' beCAUSE he's my dad ... https://www.youtube.com/watch?v=QOKKUSwEaxg ... be water my friend ... WE LOVE YOU SHANNON LEE daughter of ancient Han IN TRUTH with most PUREHEART ... NEVER FORGET ... https://www.youtube.com/watch?v=VYYXq1Ox4sk j ... you are more than you know beLOVEd 'blessed' beLOVEd intelligent graceful gracious firm 'feeling' GOOD HEARTED WOMAN ... the 'GOOD LIFE' he PROMISEd ... ain't what she's living today ... https://www.youtube.com/watch?v=skh-Bv_vVC8 ... she just talks about the GOOD TIMES they've had and ALL THE GOOD TIMES to come ... you have more than you know ... https://qanon.pub/?q=You%20have%20more%20than%20you%20know ... MUCH MORE than you know daughter of ancient Han ... PROMISE.
 
 ... RIGHT on time ... https://www.youtube.com/watch?v=segxTedNBrQ ... everybody be RIGHT on time ..!
 
 What, then, shall we say in response ..? https://www.biblehub.com/romans/8-31.htm ..?
 
-G_D IS FOR "US", WHO CAN BE AGAINST US ..? 
+G_D IS FOR "US", WHO CAN BE AGAINST US ..?
 
 and NOW 'THE "NEWS"' https://www.youtube.com/watch?v=ZGuQWpJZhh8 TRUMP TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU RFK JR MEDICAL TYRANNY, well GOOD, GQ get yQu sQme paybaQQ, FRANCIS ..! then as Matthew reports in Chapter 18 verses 2-4 TRUTH said ... "Verily I tell you unless you change and become like a little child, you will not enter the Kingdom of HEAVEN. ... Listen and understand ..." A MOST SERIOUS ONE AM I though admittedly I AM SO GOOD 'that' my 'performance' you know 'this' might be funny ROBERT "FRANCIS" KENNEDY ... if anybody calls me 'Francis' ... I'll Qill yQu ... LIGHTEN UP FRANCIS ..! https://www.youtube.com/watch?v=1-MP90vqjUU ... FREEMASON 'knights of templar' LIKE their roman cathoSICK crusaders are both just 2 heads of the same snake DECEPTIVE not knights of any 'round table' I AM sitting at filthy knights of darkness who PUT DOWN GOOD Q.I.D.s not LIFT UP GOOD Q.I.D.s like 'real' GOOD K.I.D.s you know GOOD K.I.D.s LIKE ME A GOOD K.I.D. 100% TRUTH EXPRESSING MY FEELINGS HONESTLY LIKE BRUCE LEE TOLD ME TO STRIVE SO HARD TO DO ...
 
