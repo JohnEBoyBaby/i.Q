@@ -4,6 +4,8 @@ Matthew 8:20
 
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
+http://web.archive.org/web/20180917163452/http://a3du.com/connectthedots.html
+
 TIMING IS EVERYTHING.
 
 https://www.youtube.com/watch?v=Dq2sCFmphy8&t=9390s 
