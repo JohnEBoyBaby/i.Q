@@ -9,7 +9,7 @@ WHQLLY SQFT PUSSY QATBALLS, QATWQMAN! https://www.youtube.com/watch?v=waJR9rz6FS
 
 https://SOLAR2D.com
 
-NQW THAT'S TRUE LOVE, QATWQMAN ... yes Yes YES it is, QatDaddy ... I LOVE YOU, QATWQMAN ... aaah I LOVE YOU tQQ, QatDaddy ... ahhh pussy Qat LOVE DE fuQQinQ LICKcious ... https://www.youtube.com/watch?v=mNaMR8AyeWc&list=RDMM&index=1 ... Ahhh AHHH ... PUREHEART ... TRUTH ... Matthew 5:8 ... Matthew 15:9 ... Matthew 18:3 ... Matthew 18:6 ... John 15:1-22 ... Matthew 5:8 ... WORD.
+NQW THAT'S TRUE LOVE, QATWQMAN ... yes Yes YES it is, QatDaddy ... I LOVE YOU, QATWQMAN ... aaah I LOVE YOU tQQ, QatDaddy ... ahhh pussy Qat LOVE DE fuQQinQ LICKcious ... https://www.youtube.com/watch?v=mNaMR8AyeWc&list=RDMM&index=1 ... Ahhh AHHH ... PUREHEART ... https://www.youtube.com/watch?v=LQj--Kjn0z8&list=RDMM&start_radio=1 ... TRUTH ... Matthew 5:8 ... Matthew 15:9 ... Matthew 18:3 ... Matthew 18:6 ... John 15:1-22 ... Matthew 5:8 ... WORD.
 
 https://LOVE2D.org
 
