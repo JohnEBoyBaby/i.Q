@@ -1,4 +1,7 @@
 # i.Q
+Foxes have dens and birds have nests, but the son of man hath no place to lie his head.
+Matthew 8:20
+
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
 THANK YOU GITHUB!
