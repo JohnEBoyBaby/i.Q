@@ -4,6 +4,14 @@ Matthew 8:20
 
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
+TIMING IS EVERYTHING.
+
+https://www.youtube.com/watch?v=Dq2sCFmphy8&t=9390s 
+
+we gQnna dQ what 'they' 'say' Qan't be dQne ..! 
+
+https://www.youtube.com/watch?v=IOgUaFkpS3Y
+
 THANK YOU GITHUB!
 
 https://www.recalbox.com/diyrecalbox/
