@@ -5,25 +5,105 @@ THANK YOU GITHUB!
 
 https://www.recalbox.com/diyrecalbox/
 
-WHQLLY SQFT PUSSY QATBALLS, QATWQMAN!
+HOLY SQFT HAIRY PUSSY https://www.youtube.com/watch?v=p4BAhnIfMQk QATBALLS, QATWQMAN! https://www.youtube.com/watch?v=-BhccC8TQ7E ... GINA MARIA ... soft legs ... knows ..! WONDERS of ... https://www.youtube.com/watch?v=902ZRdplotE ... LOVE ... what a 'jewel' ... https://www.youtube.com/watch?v=VLZ2kPzQX2Y ... and HEAVEN AND NATURE SING ... https://www.youtube.com/watch?v=05zz1XzRMW4 ... and ALL THE ANGELS IN HEAVEN RISE IN GLORY ... REPEAT THE SOUNDING JOY Repeat The Sounding Joy repeat the sounding joy ... THE GLORIES OF ... RIGHTEOUS http://web.archive.org/web/20180911054622/http://a3du.com/rumpbabum.html AND WONDERS OF ... LOVE ... JOY TO THE WORLD ... LET EVERY HEART ... PREPARE ... ROOM ... and HEAVEN and NATURE sing .. oh la la ... sing it Jewel sing it LOVE sing it angel ... I LOVE YOU ..! http://web.archive.org/web/20180908155403/http://a3du.com/Its.A.Baby.QrinQle.First.TQy.MaQer.TQ.The.QinQ.html ... yQu knQw I AM the 1st tQy maQer tQ the QinQ ... don't you ..? http://web.archive.org/web/20180909210540/http://a3du.com/TheCreationOfAPussy.html YQU DQ NQW ..! THANQ YQU fQr QumminQ please QUM AQAIN and stay QREAMy kind one ..!
 
 https://SOLAR2D.com
 
-NQW THAT'S TRUE LOVE, QATWQMAN ... yes Yes YES it is, QatDaddy ... I LOVE YOU, QATWQMAN ... aaah I LOVE YOU tQQ, QatDaddy ... ahhh pussy Qat LOVE ... Ahhh AHHH ... PUREHEART ... TRUTH ... Matthew 5:8 ... Matthew 15:9 ... Matthew 18:3 ... Matthew 18:6 ... John 15:1-22 ... Matthew 5:8 ... WORD.
+TRUTH.
+PUREHEART.
+
+男人和女人 man and woman
+人子 son of man
+
+Can you 'see' 女 her 'crossed legs'?
+Can you 'see' 子 his 'support staff'?
+
+'See' her 女 crossed legs 女 in GOOD 好 ?
+'See' his 子 support staff 子 in GOOD  好 ?
+
+We have forgotten more than we know ... 
+
+... PROTECT MATTHEW 18:6 AND LOVE MATTHEW 18:3 AND BE PUREHEART MATTHEW 5:8 AND MOST ATTENTIVE TO G_D LIKE AN INFANT ... 
+
+... beLOVED daughters and sons of ancient Han knew long ago beCAUSE ...
+
+learn 學 see the many steps to learn in climbing upward to Heaven?
+
+                      see her crossed legs sitting 'indian style'?
+人子 son of man 和 and 女人 woman
+  see his support staff?
+
+WOMAN 女 + CHILD 子 = 好 GOOD TOGETHER MOM + BABY = GOOD
+see her crossed legs?
+DAUGHTER 女 + SON 子 = 好 GOOD TOGETHER HER + HIM = GOOD
+                  see his support staff?
+
+ancient Han embedded 'her crossed legs' in the kanji that meant LOVE that meant GROW that showed intellect like MATHEMATICS and NUMBER 'she' 'her crossed legs' are there to remind us all that without 'her' there is no LOVE no JOY no LIFE no WAY in TRUTH you will LOVE 'her' and 'her children' and you will PROTECT 'her' and 'her children' son of man ... PROMISE.
+
+grow 生長 see her crossed legs?
+number 數字 see her crossed legs?
+mathematics 數學 see her crossed legs?
+LOVE 愛 see her crossed legs?
+woman 女士 see her crossed legs?
+daughter 女兒 see her crossed legs?
+son 兒子 see his support staff?
+
+Blessed are the PUREHEART
+for they shall see G_D.
+Matthew 5:8
+
+THE POWER OF YOUR INTENTIONS - 'Water "FEELS" and "STORES FEELINGS"'
+https://www.youtube.com/watch?v=D1sWVjXhKfg
+
+... baby never act wild ... very low key on the profile ...
+https://www.youtube.com/watch?v=3KL9mRus19o&t=115s
+... rolling with the fatness ... you don't even know what the half is ...
+
+... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ... Bruce Lee ... but I 'think' he's a hero .. but I may be a little 'biased' beCAUSE he's my dad ... https://www.youtube.com/watch?v=QOKKUSwEaxg ... be water my friend ... WE LOVE YOU SHANNON LEE daughter of ancient Han IN TRUTH with most PUREHEART ... NEVER FORGET ... https://www.youtube.com/watch?v=VYYXq1Ox4sk j ... you are more than you know beLOVEd 'blessed' beLOVEd intelligent graceful gracious firm 'feeling' GOOD HEARTED WOMAN ... the 'GOOD LIFE' he PROMISEd ... ain't what she's living today ... https://www.youtube.com/watch?v=skh-Bv_vVC8 ... she just talks about the GOOD TIMES they've had and ALL THE GOOD TIMES to come ... you have more than you know ... https://qanon.pub/?q=You%20have%20more%20than%20you%20know ... MUCH MORE than you know daughter of ancient Han ... PROMISE.
+
+紅人
+RED PEOPLE
+
+好想你
+I MiSS YOU
+好想你
+Hǎo xiǎng nǐ 
+HOW SHANG NEE
+I MISS YOO TOO
+https://www.youtube.com/watch?v=fdQgPu3iUYk
+... now that's the "kind" kind I like too ...
+
+In TRUTH 真相 can you see a 'field 相 where he works to support and feed her most PUREHEART and her most PUREHEART children he LOVES with most PUREHEART'?
+
+Can you see a 'spirit' 相 coming down from Heaven in TRUTH?
+
+Can you see her 'crossed legs' 真 in TRUTH? 
+
+Can you see 'GOOD' is only she and he, only mom and dad, only baby lady and gentle baby man? 女 + 子
+
+'She' is most PUREHEART and 'he' knows it.
 
 https://LOVE2D.org
 
 ... JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ... https://www.youtube.com/watch?v=HXdw4ZTQLVo ... and Wonders ... https://www.youtube.com/watch?v=ffvULj021P0 ... and wonders of ... https://www.youtube.com/watch?v=niOb-ft9N64 ... LOVE ...
-
-... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ... Bruce Lee ... but I 'think' he's a hero .. but I may be a little 'biased' beCAUSE he's my dad ... https://www.youtube.com/watch?v=QOKKUSwEaxg ... be water my friend ... WE LOVE YOU SHANNON LEE daughter of ancient Han IN TRUTH with most PUREHEART ... NEVER FORGET ... https://www.youtube.com/watch?v=VYYXq1Ox4sk j ... you are more than you know beLOVEd 'blessed' beLOVEd intelligent graceful gracious firm 'feeling' GOOD HEARTED WOMAN ... the 'GOOD LIFE' he PROMISEd ... ain't what she's living today ... https://www.youtube.com/watch?v=skh-Bv_vVC8 ... she just talks about the GOOD TIMES they've had and ALL THE GOOD TIMES to come ... you have more than you know ... https://qanon.pub/?q=You%20have%20more%20than%20you%20know ... MUCH MORE than you know daughter of ancient Han ... PROMISE.
-
-... RIGHT on time ... https://www.youtube.com/watch?v=segxTedNBrQ ... everybody be RIGHT on time ..!
 
 What, then, shall we say in response ..? https://www.biblehub.com/romans/8-31.htm ..?
 
 G_D IS FOR "US", WHO CAN BE AGAINST US ..?
 
 and NOW 'THE "NEWS"' https://www.youtube.com/watch?v=ZGuQWpJZhh8 TRUMP TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU RFK JR MEDICAL TYRANNY, well GOOD, GQ get yQu sQme paybaQQ, FRANCIS ..! then as Matthew reports in Chapter 18 verses 2-4 TRUTH said ... "Verily I tell you unless you change and become like a little child, you will not enter the Kingdom of HEAVEN. ... Listen and understand ..." A MOST SERIOUS ONE AM I though admittedly I AM SO GOOD 'that' my 'performance' you know 'this' might be funny ROBERT "FRANCIS" KENNEDY ... if anybody calls me 'Francis' ... I'll Qill yQu ... LIGHTEN UP FRANCIS ..! https://www.youtube.com/watch?v=1-MP90vqjUU ... FREEMASON 'knights of templar' LIKE their roman cathoSICK crusaders are both just 2 heads of the same snake DECEPTIVE not knights of any 'round table' I AM sitting at filthy knights of darkness who PUT DOWN GOOD Q.I.D.s not LIFT UP GOOD Q.I.D.s like 'real' GOOD K.I.D.s you know GOOD K.I.D.s LIKE ME A GOOD K.I.D. 100% TRUTH EXPRESSING MY FEELINGS HONESTLY LIKE BRUCE LEE TOLD ME TO STRIVE SO HARD TO DO ...
+
+NQW THAT'S TRUE LOVE, QATWQMAN ... yes Yes YES it is, QatDaddy ... I LOVE YOU, QATWQMAN ... aaah I LOVE YOU tQQ, QatDaddy ... ahhh pussy Qat LOVE DE fuQQinQ LICKcious ... https://www.youtube.com/watch?v=mNaMR8AyeWc&list=RDMM&index=1 ... Ahhh AHHH ... PUREHEART ... https://www.youtube.com/watch?v=LQj--Kjn0z8&list=RDMM&start_radio=1 ... TRUTH ... Matthew 5:8 ... Matthew 15:9 ... Matthew 18:3 ... Matthew 18:6 https://www.bitchute.com/search/?query=qanon&kind=video&sort=new TIME TO EXPOSE https://www.youtube.com/watch?v=4shKGP5WqXo&t=355s 100% NOLYN https://www.youtube.com/watch?v=6zDqksmEf6k TRUTH http://web.archive.org/web/20180917163452/http://a3du.com/connectthedots.html FOR ALL TO SEE ... 'somethings' ARE NOT FUNNY AT ALL ..! John 15:1-22 ... 'somethings' ARE VERY FUNNY ..! chQQse wisely young grasshoper ..! Matthew 5:8 ... WORD.
+
+GOOD K.I.D.s
+LIFT UP
+GOOD Q.I.D.s
+
+GOOD Knights In Development
+LIFT UP
+GOOD Queens In Development
+
+... RIGHT on time ... https://www.youtube.com/watch?v=segxTedNBrQ ... everybody be RIGHT on time ..!
 
 CHECK OUT my LIFEPATH number 8 ... https://www.tokenrock.com/numerology/my_life_path/?myMonth=8&myDay=12&myYear=1968&num=0 ... cool ... what is your LIFEPATH ..?
 
