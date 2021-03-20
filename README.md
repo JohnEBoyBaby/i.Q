@@ -13,10 +13,6 @@ https://SOLAR2D.com
 
 https://LOVE2D.org
 
-NQW THAT'S TRUE LOVE, QATWQMAN ... yes Yes YES it is, QatDaddy ... I LOVE YOU, QATWQMAN ... aaah I LOVE YOU tQQ, QatDaddy ... ahhh pussy Qat LOVE DE fuQQinQ LICKcious ... https://www.youtube.com/watch?v=mNaMR8AyeWc&list=RDMM&index=1 ... Ahhh AHHH ... PUREHEART ... https://www.youtube.com/watch?v=LQj--Kjn0z8&list=RDMM&start_radio=1 ... TRUTH ... Matthew 5:8 ... Matthew 15:9 ... Matthew 18:3 ... Matthew 18:6 https://www.bitchute.com/search/?query=qanon&kind=video&sort=new TIME TO EXPOSE https://www.youtube.com/watch?v=4shKGP5WqXo&t=355s TRUTH http://web.archive.org/web/20180917163452/http://a3du.com/connectthedots.html FOR ALL TO SEE ... 'somethings' ARE NOT FUNNY AT ALL ..! John 15:1-22 ... 'somethings' ARE VERY FUNNY ..! chQQse wisely young grasshoper ..! Matthew 5:8 ... WORD.
-
-... RIGHT on time ... https://www.youtube.com/watch?v=segxTedNBrQ ... everybody be RIGHT on time ..!
-
 ... JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ... https://www.youtube.com/watch?v=HXdw4ZTQLVo ... and Wonders ... https://www.youtube.com/watch?v=ffvULj021P0 ... and wonders of ... https://www.youtube.com/watch?v=niOb-ft9N64 ... LOVE ...
 
 What, then, shall we say in response ..? https://www.biblehub.com/romans/8-31.htm ..?
@@ -24,6 +20,10 @@ What, then, shall we say in response ..? https://www.biblehub.com/romans/8-31.ht
 G_D IS FOR "US", WHO CAN BE AGAINST US ..?
 
 and NOW 'THE "NEWS"' https://www.youtube.com/watch?v=ZGuQWpJZhh8 TRUMP TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU RFK JR MEDICAL TYRANNY, well GOOD, GQ get yQu sQme paybaQQ, FRANCIS ..! then as Matthew reports in Chapter 18 verses 2-4 TRUTH said ... "Verily I tell you unless you change and become like a little child, you will not enter the Kingdom of HEAVEN. ... Listen and understand ..." A MOST SERIOUS ONE AM I though admittedly I AM SO GOOD 'that' my 'performance' you know 'this' might be funny ROBERT "FRANCIS" KENNEDY ... if anybody calls me 'Francis' ... I'll Qill yQu ... LIGHTEN UP FRANCIS ..! https://www.youtube.com/watch?v=1-MP90vqjUU ... FREEMASON 'knights of templar' LIKE their roman cathoSICK crusaders are both just 2 heads of the same snake DECEPTIVE not knights of any 'round table' I AM sitting at filthy knights of darkness who PUT DOWN GOOD Q.I.D.s not LIFT UP GOOD Q.I.D.s like 'real' GOOD K.I.D.s you know GOOD K.I.D.s LIKE ME A GOOD K.I.D. 100% TRUTH EXPRESSING MY FEELINGS HONESTLY LIKE BRUCE LEE TOLD ME TO STRIVE SO HARD TO DO ...
+
+NQW THAT'S TRUE LOVE, QATWQMAN ... yes Yes YES it is, QatDaddy ... I LOVE YOU, QATWQMAN ... aaah I LOVE YOU tQQ, QatDaddy ... ahhh pussy Qat LOVE DE fuQQinQ LICKcious ... https://www.youtube.com/watch?v=mNaMR8AyeWc&list=RDMM&index=1 ... Ahhh AHHH ... PUREHEART ... https://www.youtube.com/watch?v=LQj--Kjn0z8&list=RDMM&start_radio=1 ... TRUTH ... Matthew 5:8 ... Matthew 15:9 ... Matthew 18:3 ... Matthew 18:6 https://www.bitchute.com/search/?query=qanon&kind=video&sort=new TIME TO EXPOSE https://www.youtube.com/watch?v=4shKGP5WqXo&t=355s 100% NOLYN https://www.youtube.com/watch?v=6zDqksmEf6k TRUTH http://web.archive.org/web/20180917163452/http://a3du.com/connectthedots.html FOR ALL TO SEE ... 'somethings' ARE NOT FUNNY AT ALL ..! John 15:1-22 ... 'somethings' ARE VERY FUNNY ..! chQQse wisely young grasshoper ..! Matthew 5:8 ... WORD.
+
+... RIGHT on time ... https://www.youtube.com/watch?v=segxTedNBrQ ... everybody be RIGHT on time ..!
 
 CHECK OUT my LIFEPATH number 8 ... 
 https://www.tokenrock.com/numerology/my_life_path/?myMonth=8&myDay=12&myYear=1968&num=0
