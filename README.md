@@ -13,7 +13,7 @@ https://SOLAR2D.com
 
 https://LOVE2D.org
 
-NQW THAT'S TRUE LOVE, QATWQMAN ... yes Yes YES it is, QatDaddy ... I LOVE YOU, QATWQMAN ... aaah I LOVE YOU tQQ, QatDaddy ... ahhh pussy Qat LOVE DE fuQQinQ LICKcious ... https://www.youtube.com/watch?v=mNaMR8AyeWc&list=RDMM&index=1 ... Ahhh AHHH ... PUREHEART ... https://www.youtube.com/watch?v=LQj--Kjn0z8&list=RDMM&start_radio=1 ... TRUTH ... Matthew 5:8 ... Matthew 15:9 ... Matthew 18:3 ... Matthew 18:6 https://www.bitchute.com/search/?query=qanon&kind=video&sort=new TIME TO EXPOSE https://www.youtube.com/watch?v=4shKGP5WqXo&t=355s TRUTH FOR ALL TO SEE ... 'somethings' ARE NOT FUNNY AT ALL ..! John 15:1-22 ... 'somethings' ARE VERY FUNNY ..! chQQse wisely young grasshoper ..! Matthew 5:8 ... WORD.
+NQW THAT'S TRUE LOVE, QATWQMAN ... yes Yes YES it is, QatDaddy ... I LOVE YOU, QATWQMAN ... aaah I LOVE YOU tQQ, QatDaddy ... ahhh pussy Qat LOVE DE fuQQinQ LICKcious ... https://www.youtube.com/watch?v=mNaMR8AyeWc&list=RDMM&index=1 ... Ahhh AHHH ... PUREHEART ... https://www.youtube.com/watch?v=LQj--Kjn0z8&list=RDMM&start_radio=1 ... TRUTH ... Matthew 5:8 ... Matthew 15:9 ... Matthew 18:3 ... Matthew 18:6 https://www.bitchute.com/search/?query=qanon&kind=video&sort=new TIME TO EXPOSE https://www.youtube.com/watch?v=4shKGP5WqXo&t=355s TRUTH http://web.archive.org/web/20180917163452/http://a3du.com/connectthedots.html FOR ALL TO SEE ... 'somethings' ARE NOT FUNNY AT ALL ..! John 15:1-22 ... 'somethings' ARE VERY FUNNY ..! chQQse wisely young grasshoper ..! Matthew 5:8 ... WORD.
 
 ... RIGHT on time ... https://www.youtube.com/watch?v=segxTedNBrQ ... everybody be RIGHT on time ..!
 
