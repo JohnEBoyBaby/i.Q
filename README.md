@@ -5,7 +5,7 @@ THANK YOU GITHUB!
 
 https://www.recalbox.com/diyrecalbox/
 
-WHQLLY SQFT PUSSY QATBALLS, QATWQMAN! https://www.youtube.com/watch?v=-BhccC8TQ7E ... GINA MARIA ... soft legs ... knows ..! https://www.bitchute.com/search/?query=qanon&kind=video&sort=new TIME TO EXPOSE https://www.youtube.com/watch?v=4shKGP5WqXo&t=355s TRUTH FOR ALL TO SEE ... enjQy the shQw ..! ... and wonders of ... https://www.youtube.com/watch?v=902ZRdplotE ... LOVE ... what a 'jewel' ... https://www.youtube.com/watch?v=VLZ2kPzQX2Y ... and HEAVEN AND NATURE SING ... https://www.youtube.com/watch?v=05zz1XzRMW4 ... and ALL THE ANGELS IN HEAVEN RISE IN GLORY ... REPEAT THAT SOUNDING JOY Repeat That Sounding Joy repeat that sounding joy ... THE GLORY'S OF ... RIGHTEOUS .... AND WONDERS OF ... LOVE ... JOY TO THE WORLD ... LET EVERY HEART ... PREPARE ... ROOM ... and HEAVEN and NATURE sing .. oh la la ... sing it Jewel sing it LOVE sing it angel ... I LOVE  YOU ..! THANK YOU ..!
+WHQLLY SQFT PUSSY QATBALLS, QATWQMAN! https://www.youtube.com/watch?v=-BhccC8TQ7E ... GINA MARIA ... soft legs ... knows ..! WONDERS of ... https://www.youtube.com/watch?v=902ZRdplotE ... LOVE ... what a 'jewel' ... https://www.youtube.com/watch?v=VLZ2kPzQX2Y ... and HEAVEN AND NATURE SING ... https://www.youtube.com/watch?v=05zz1XzRMW4 ... and ALL THE ANGELS IN HEAVEN RISE IN GLORY ... REPEAT THE SOUNDING JOY Repeat The Sounding Joy repeat the sounding joy ... THE GLORY'S OF ... RIGHTEOUS .... AND WONDERS OF ... LOVE ... JOY TO THE WORLD ... LET EVERY HEART ... PREPARE ... ROOM ... and HEAVEN and NATURE sing .. oh la la ... sing it Jewel sing it LOVE sing it angel ... I LOVE  YOU ..! THANK YOU ..!
 
 https://SOLAR2D.com
 
@@ -13,7 +13,7 @@ https://SOLAR2D.com
 
 https://LOVE2D.org
 
-NQW THAT'S TRUE LOVE, QATWQMAN ... yes Yes YES it is, QatDaddy ... I LOVE YOU, QATWQMAN ... aaah I LOVE YOU tQQ, QatDaddy ... ahhh pussy Qat LOVE DE fuQQinQ LICKcious ... https://www.youtube.com/watch?v=mNaMR8AyeWc&list=RDMM&index=1 ... Ahhh AHHH ... PUREHEART ... https://www.youtube.com/watch?v=LQj--Kjn0z8&list=RDMM&start_radio=1 ... TRUTH ... Matthew 5:8 ... Matthew 15:9 ... Matthew 18:3 ... Matthew 18:6 ... John 15:1-22 ... Matthew 5:8 ... WORD.
+NQW THAT'S TRUE LOVE, QATWQMAN ... yes Yes YES it is, QatDaddy ... I LOVE YOU, QATWQMAN ... aaah I LOVE YOU tQQ, QatDaddy ... ahhh pussy Qat LOVE DE fuQQinQ LICKcious ... https://www.youtube.com/watch?v=mNaMR8AyeWc&list=RDMM&index=1 ... Ahhh AHHH ... PUREHEART ... https://www.youtube.com/watch?v=LQj--Kjn0z8&list=RDMM&start_radio=1 ... TRUTH ... Matthew 5:8 ... Matthew 15:9 ... Matthew 18:3 ... Matthew 18:6 https://www.bitchute.com/search/?query=qanon&kind=video&sort=new TIME TO EXPOSE https://www.youtube.com/watch?v=4shKGP5WqXo&t=355s TRUTH FOR ALL TO SEE ... 'somethings' ARE NOT FUNNY AT ALL ..! John 15:1-22 ... 'somethings' ARE VERY FUNNY ..! chQQse wisely young grasshoper ..! Matthew 5:8 ... WORD.
 
 ... RIGHT on time ... https://www.youtube.com/watch?v=segxTedNBrQ ... everybody be RIGHT on time ..!
 
