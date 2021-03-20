@@ -20,7 +20,7 @@ HOLY SQFT HAIRY PUSSY https://www.youtube.com/watch?v=p4BAhnIfMQk QATBALLS, QATW
 
 https://SOLAR2D.com
 
-... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ... Bruce Lee ... but I 'think' he's a hero .. but I may be a little 'biased' beCAUSE he's my dad ... https://www.youtube.com/watch?v=QOKKUSwEaxg ... be water my friend ... WE LOVE YOU SHANNON LEE daughter of ancient Han IN TRUTH with most PUREHEART ... NEVER FORGET ... https://www.youtube.com/watch?v=VYYXq1Ox4sk j ... you are more than you know beLOVEd 'blessed' beLOVEd intelligent graceful gracious firm 'feeling' GOOD HEARTED WOMAN ... the 'GOOD LIFE' he PROMISEd ... ain't what she's living today ... https://www.youtube.com/watch?v=skh-Bv_vVC8 ... she just talks about the GOOD TIMES they've had and ALL THE GOOD TIMES to come ... you have more than you know ... https://qanon.pub/?q=You%20have%20more%20than%20you%20know ... MUCH MORE than you know daughter of ancient Han ... PROMISE.
+... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ... Bruce Lee ... "I 'think'" ... he's a hero .. I may be a little 'biased' beCAUSE he's "my dad" ... https://www.youtube.com/watch?v=QOKKUSwEaxg ... be water my friend ... WE LOVE YOU SHANNON LEE daughter of ancient Han IN TRUTH with most PUREHEART ... NEVER FORGET ... https://www.youtube.com/watch?v=VYYXq1Ox4sk j ... you are more than you know beLOVEd 'blessed' beLOVEd intelligent graceful gracious firm 'feeling' GOOD HEARTED WOMAN ... the 'GOOD LIFE' he PROMISEd ... ain't what she's living today ... https://www.youtube.com/watch?v=skh-Bv_vVC8 ... she just talks about the GOOD TIMES they've had and ALL THE GOOD TIMES to come ... you have more than you know ... https://qanon.pub/?q=You%20have%20more%20than%20you%20know ... MUCH MORE than you know daughter of ancient Han ... PROMISE.
 
 https://LOVE2D.org
 
@@ -29,6 +29,22 @@ https://LOVE2D.org
 What, then, shall we say in response ..? https://www.biblehub.com/romans/8-31.htm ..?
 
 G_D IS FOR "US", WHO CAN BE AGAINST US ..?
+
+NO ONE! G_D IS WITH US! GOOD IS HERE! PROMISE! and nothing Nothing NOTHING any 'one' says can do a damn thing about it ... NO FAMILY! NO FRIENDS! NO FAVORITES! NO EXCEPTIONS! joke'em if they can't take a fuQQ ... ask not what your country can do for you ... ASQ WHAT YQU QAN DQ FQR YQUR QQUNTRY ..!
+
+'Take' UP "YOUR" 'Cross'
+36 A man’s enemies will be the members of his own household.’ 
+37 Anyone who loves his father or mother more than TRUTH is not worthy of TRUTH; anyone who loves his son or daughter more than TRUTH is not worthy of TRUTH; 
+38 and anyone who does not take up his cross and follow the WAY of TRUTH is not worthy of TRUTH.
+Matthew 10:36-38
+https://www.biblehub.com/matthew/10-37.htm
+
+NO FAMILY! NO FRIENDS! NO FAVORITES! NO EXCEPTIONS!
+
+He said of his father and mother, 'I do not consider them.' He disregarded his brothers and did not know his own sons, for he kept G_D'S WORD and maintained G_D'S COVENANT.
+Deuteronomy 33:9
+
+NO FAMILY! NO FRIENDS! NO FAVORITES! NO EXCEPTIONS!
 
 and NOW 'THE "NEWS"' https://www.youtube.com/watch?v=ZGuQWpJZhh8 TRUMP TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU RFK JR MEDICAL TYRANNY, well GOOD, GQ get yQu sQme paybaQQ, FRANCIS ..! then as Matthew reports in Chapter 18 verses 2-4 TRUTH said ... "Verily I tell you unless you change and become like a little child, you will not enter the Kingdom of HEAVEN. ... Listen and understand ..." A MOST SERIOUS ONE AM I though admittedly I AM SO GOOD 'that' my 'performance' you know 'this' might be funny ROBERT "FRANCIS" KENNEDY ... if anybody calls me 'Francis' ... I'll Qill yQu ... LIGHTEN UP FRANCIS ..! https://www.youtube.com/watch?v=1-MP90vqjUU ... FREEMASON 'knights of templar' LIKE their roman cathoSICK crusaders are both just 2 heads of the same snake DECEPTIVE not knights of any 'round table' I AM sitting at filthy knights of darkness who PUT DOWN GOOD Q.I.D.s not LIFT UP GOOD Q.I.D.s like 'real' GOOD K.I.D.s you know GOOD K.I.D.s LIKE ME A GOOD K.I.D. 100% TRUTH EXPRESSING MY FEELINGS HONESTLY LIKE BRUCE LEE TOLD ME TO STRIVE SO HARD TO DO ...
 
@@ -52,6 +68,16 @@ The Stiff-Necked will Be Destroyed
 Proverbs 29:26-27
 https://biblehub.com/proverbs/29-27.htm
 
+How many pics can you find of JL & HRC?
+re: Haiti?
+Marching into the Darkness - lyrics.
+Follow the stars.
+It’s everywhere.
+Q
+https://qanon.pub/?q=follow%20the%20stars
+
+Qh a Quick QLIFF's NQTES on 'filth' 'dicknose' 'law' enFORCErs 'checkboard freemason british enFORCer' : "psychedelic drugs", "girls drinking", "A FILTHY 'DICK-NOSE' MONSTER", then, "YOU WOKE UP", "FOUND YOUR COAT", "MADE THE BUS IN SECONDS" FLAT, "YOU WENT INTO A DREAM" ... https://www.youtube.com/watch?v=usNsCeOV4GM&t=96s ... "I READ THE 'NEWS' TODAY OH BQY ..! https://www.youtube.com/watch?v=usNsCeOV4GM&t=211s AND THOUGH THE "HOLES" "WERE RATHER SMALL" ..? 'they' 'HAD TO' 'COUNT' "THEM" 'all' ... and then like you are dying being buried in a 'hole' the screen suddenly just gQes 'WHITE' ... probably just a 'coincidence' ... sure are a lot of coincidences ..! DIQQ-NQSE and uh 'British' 'Accredited' 'Registry' B.A.R.-like court-jester 'knight' of 'darkness' 'paul' ... do you 'smell' it that STANK 'smell' boofoo lips with fecal matter and maize crustily dried and hardened all around the tops of DIRTBAG SCROUNCH LOOKING LIPPED POLICE brothers shown in the 'bottles' video for a GOOD reaSON I assure you to help the [33] FILTHY SNAKE DECEIVERS CAGERS GET a 'laugh' about the 'holes' VERY SMALL HOLES THAT "HAD TO BE COUNTED" ... hmmm THESE PEOPLE ARE SICK Hmmm wonder why 'they' HAD TO 'count' 'holes' HMMM odd to mention in 'song' sung by a 'knight's templar of filth ..? and then when 'john' smelled 'it' and 'john' started to tell the TRUTH and THINK FOR 'his' 'own self' and  'imagine' 'peace' and 'poof' down goes 'john' ..! beCAUSE I 'feel' 'ting'ling 'ting's https://www.youtube.com/watch?v=UelDrZ1aFeY ... something in the WAY 'she' moves attracts like me no other LOVEr ... you know I BELIEVE IN HOW ... somewhere in 'her' 'smile' she knows ... something in 'her' style that shows me ... YOU'RE ASQINQ WILL MY LOVE GRQW ..? YES I KNOW ... YOU STIQQ ARQUND IT MAY SHQW ..! I DEFINITELY KNOW! I 100% KNOW! ... something in the WAY 'she' knows ... and all I have to do is think of 'her' ... something in the things 'she' SHOWS "ME" ... GOOD MORNING EVERYBODY ... https://www.youtube.com/watch?v=ZBgtzwE-FTA ... GET BACK TO WHERE YOU ONCE BELONGED ..! QET BAQQ LORETTA ...!
+
 1 If any of you has a grievance against another, how dare he go to law before the unrighteous instead of before the RIGHTEOUS!
 2 DO YOU NOT KNOW THAT THE RIGHTEOUS WILL JUDGE THE WORLD? And if RIGHTEOUS are to judge the world, are RIGHTEOUS not competent to judge trivial cases of this world? 
 3 DO YOU NOT KNOW THAT THE RIGHTEOUS WILL JUDGE ANGELS? HOW MUCH MORE THE THINGS OF THIS LIFE SHALL THE RIGHTEOUS JUDGE?
@@ -59,8 +85,6 @@ https://biblehub.com/proverbs/29-27.htm
 https://biblehub.com/1_corinthians/6-2.htm
 
 TRUTH.
-
-... the face of an angel ... pretty eyes that shine ... https://www.youtube.com/watch?v=fkebpmdyofo ... whenever you come around ... I get weak in the knees ... and I lose my breath ... oh I try to speak ... but the WORDs won't come around ... I AM so scared to death ... and when you smile that smile ... my world turns upside down ... whenver you come around ... I feel just like a K.I.D. ... I wish I could tell you ... but the WORDs can't be found ... WHENEVER YOU COME AROUND ...
 
 WE LOVE YOU JFK, JFK JR, PRINCESS DI ... https://www.youtube.com/watch?v=1wXf08-42x4 ... THANK YOU FOR TELLING THE TRUTH ... SEE YOU BACK 'HOME' ... PROMISE ... KNOW THY ENEMY https://www.youtube.com/watch?v=S9NoQHgjM_0 so https://www.youtube.com/watch?v=dWjUT1RjNdQ G_D MADE A "FARMER" G_D SAID I NEED SOMEBODY ... TO PLANT "SEED" ... HARVEST ... CARE FOR, LOVE G_D's "ANIMAL" ... G_D said 'I NEED SOMEBODY "STRONG" ENOUGH' ...
 
@@ -79,6 +103,8 @@ HIT'em with a little GHETTO GOSPEL ... my GHETTO GOSPEL ... https://www.youtube.
 Have you ever seen a lil' K.I.D. who be doin' what I do ..? same ole' clowns ... pretending they 'proud' ... but when you leave town they go around running their mouths ... something like a 'hater' man ... talking about about a 'player' as if I AM not gonna 'see you later' man ... beCAUSE I keep a 'hater' GUILTY ... obey no rules ... let the young do Do DO ... https://www.youtube.com/watch?v=WZ_rXp6nYKQ ... I AM basically coming from something to nothing ... when I say 'nothing' I mean 'pocket full of "lint and buttons" ... people alWAYs saying it must be nice ... but understand the money's GOOD but I AM still from the hood ... unless you want a 'foot' ... I know a few ... who could 'put you where you need to be put' ... let the 'girls do me' while 'you do you' ... so yo' ... what da' "HOOK" gon' be ..? ... all I need is TRUTH and PUREHEART and G_D ABOVE ALL and maybe some GOOD CRYSTALLINE CLEAN PUREHEART HIGH QUALITY H20-based CREAMY QREAM oh la la ... yes ma'm more please I WOULD LOVE SOME MORE OF YOUR "QREAM" thank you 'kind' one ... I LOVE SOFT LEGS ... I LOVE PUREHEART ... I LOVE TRUTH ... I PROTECT AND LOVE G_D LIKE AN INFANT ...
 
 THANK YOU http://BruceLipton.com for your TRUTH and most PUREHEART GOOD INTENT and KINDness for ALL OF US and FOR THE SPECIAL INVITE ... enjoyed the show ... especially the 2 beautiful women one with shorter hair and the other with longer hair both smiling and most PUREHEART and lovely elegant intelligent PUREHEART in TRUTH and you know it ... that's the 'kind' kind I like ... I LOVE SOFT LEGS ... I LOVE TRUTH ... I LOVE PUREHEART ... I LOVE G_D ABOVE ALL ... WORD. ... and you know what's UP ...
+
+... the face of an angel ... pretty eyes that shine ... https://www.youtube.com/watch?v=fkebpmdyofo ... whenever you come around ... I get weak in the knees ... and I lose my breath ... oh I try to speak ... but the WORDs won't come around ... I AM so scared to death ... and when you smile that smile ... my world turns upside down ... whenver you come around ... I feel just like a K.I.D. ... I wish I could tell you ... but the WORDs can't be found ... WHENEVER YOU COME AROUND ...
 
 G_D 'FEELS' ALL "PUREHEART PRAYERS' regardless of "religion of 'man" ... G_D is 'tubig' ... https://translate.google.com/?sl=tl&tl=en&text=tubig&op=translate ... G_D is TOO 'BIG' ... G_D is TOO 'little' ... G_D can be anything anytime anywhere in 'places' in a 'WAY' no one understand ONLY G_D KNOWS ABOUT ... ancient daughters and sons of most PUREHEART "ULO ng APO" in the PILIPINAS 'islands' and the ancient daughters and sons of most PUREHEART ancient Hangul sure 'look' and sure 'are closely geographically located near' daughters and sons of most PUREHEART ancient Han, sure 'resemble' in 'looks' hence 'their' WORD 'asian' ... 'asian' meaning of ancient Han PUREHEART ... dont't they ..? https://www.youtube.com/results?search_query=truthstreammedia+WATER+FEELS+SAVES+FEELINGS+EXPERIMENT+PUREHEART+crystalline+HIGH+QUALITY+PURE+NATURAL+H2O+WATER ... can you 'feel' me now  ..? NO MERCY IS COMING MONSTER! NONE! SEE YOU BACK "HOME" ... PROMISE.
 
