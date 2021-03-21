@@ -1,9 +1,18 @@
 # i.Q
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
-THANK YOU GITHUB!
+... well my buQQle 'MAKEs' 'impressiQns Qn the 'inside' of 'her' thiQh ... she asked ... I said ... up 'til nQw there ain't been nQthinQ that I cQuldn't leave behind ...
+LOOP https://youtubeloop.net FEATHERED INDIANS https://www.youtube.com/watch?v=_lsran_Slzc WHILE (you.hold(me,close))
+... HOLD ME CLOSE MY DEAR ... HONEY TELL ME HOW YOUR LOVE RUNS TRUE ... HOW I CAN ALWAYS COUNT ON YOU ... 
+be there when the bullets fly ... I would run acrQss the river just to HOLD YOU TONIGHT ...
 
 https://www.recalbox.com/diyrecalbox/
+
+THANK YOU GITHUB!
+
+NAPPY RQQTS
+https://www.youtube.com/watch?v=QbN6VkleO48
+I LOVE YQU KENTUQQY!
 
 HOLY SQFT HAIRY PUSSY https://www.youtube.com/watch?v=p4BAhnIfMQk QATBALLS, QATWQMAN! https://www.youtube.com/watch?v=-BhccC8TQ7E ... GINA MARIA ... soft legs ... knows ..! WONDERS of ... https://www.youtube.com/watch?v=902ZRdplotE ... LOVE ... what a 'jewel' ... https://www.youtube.com/watch?v=VLZ2kPzQX2Y ... and HEAVEN AND NATURE SING ... https://www.youtube.com/watch?v=05zz1XzRMW4 ... and ALL THE ANGELS IN HEAVEN RISE IN GLORY ... REPEAT THE SOUNDING JOY Repeat The Sounding Joy repeat the sounding joy ... THE GLORIES OF ... RIGHTEOUS http://web.archive.org/web/20180911054622/http://a3du.com/rumpbabum.html AND WONDERS OF ... LOVE ... JOY TO THE WORLD ... LET EVERY HEART ... PREPARE ... ROOM ... and HEAVEN and NATURE sing .. oh la la ... sing it Jewel sing it LOVE sing it angel ... I LOVE YOU ..! http://web.archive.org/web/20180908155403/http://a3du.com/Its.A.Baby.QrinQle.First.TQy.MaQer.TQ.The.QinQ.html ... yQu knQw I AM the 1st tQy maQer tQ the QinQ ... don't you ..? http://web.archive.org/web/20180909210540/http://a3du.com/TheCreationOfAPussy.html YQU DQ NQW ..! THANQ YQU fQr QumminQ please QUM AQAIN and stay QREAMy kind one ..!
 
