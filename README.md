@@ -1,7 +1,11 @@
 # i.Q
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
-I met this 'Qirl' there that brQuQht about Quite a big 'CHANGE' ... she made me HIGHer than all those expensive things ... https://www.youtube.com/watch?v=huKwlgKmj5A ... but I Qver did 'it' in 'Denver' and I just Qan't remember 'her' name ...
+I met this 'Qirl', 'Li Yeona' or us 'RED PEOPLE' 'Yeonna' first name 'Li' from Gyeonggi-do, Korea born 1968 AUGUST 12 just like 'me' 1968/8/12 in Pohang, Korea who was 'there' in April 1988 'TEAM SPIRIT' outside "Qamp 'MOON'chuQ" or was it "QAMP 'MUD'chuQ" if yQu brrr cQld Qut here soft legs let's get a hotel with a 'heated floor' and 'beautiful, soft, padded, quilt' to lie and try to 'talk to each other' 'somehow' beCAUSE you sure are 'something' 'special' and I have to gQ nQw 'Brandy' ... but 'girl' I MISS YOU beCAUSE yQu knQw that's just hQw 'us' 紅人 'RED' PEQPLE 'feel' abQut LIFE in TRUTH and 好想你 I MiSS YOU ..., I met this 'girl' there that brQuQht about Quite a big 'CHANGE' ... she made me HIGHer than all those expensive things ... https://www.youtube.com/watch?v=huKwlgKmj5A ... but I Qver did 'it' in 'Denver' and I just Qan't remember 'her' name ... the more you know ... We are many ... We are GOOD ... We are coming ... GOOD IS COMING and G_D IS WITH US ..! PROMISE ..! PRAY ..!
+
+https://www.youtube.com/watch?v=fdQgPu3iUYk
+
+FIND HER FOR ME won't you please thank you kind ones ... now that's the "kind" kind I like ..! PUREHEART! TRUTH! 
 
 https://LOVE2D.org
 
