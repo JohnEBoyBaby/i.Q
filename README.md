@@ -1,6 +1,8 @@
 # i.Q
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
+I met this 'Qirl' there that brQuQht about Quite a big 'CHANGE' ... she made me HIGHer than all those expensive things ... https://www.youtube.com/watch?v=huKwlgKmj5A ... but I Qver did in 'Denver' and I just Qan't remember 'her' name ...
+
 https://LOVE2D.org
 
 https://SOLAR2D.com
