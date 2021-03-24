@@ -1,6 +1,16 @@
 # i.Q
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
+https://LOVE2D.org
+
+https://SOLAR2D.com
+
+https://LUA.org
+
+https://CodeBlocks.org
+
+https://MorgueFile.com
+
 ... hit'em with a little ghetto gospel ... 
 https://www.youtube.com/watch?v=Do5MMmEygsY
 ... I stop and stare at the younger ... my heart goes to them ...
