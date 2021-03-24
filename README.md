@@ -1,22 +1,50 @@
 # i.Q
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
+... hit'em with a little ghetto gospel ... 
+https://www.youtube.com/watch?v=Do5MMmEygsY
+... I stop and stare at the younger ... my heart goes to them ...
+nowadays things changed ... everyone's ashamed of the 'youth' beCAUSE the TRUTH look strange ...
+don't it make you get teary ... the world looks dreary ...
+there's no need for you to 'fear' TRUTH ... if you take the time to 'hear' TRUTH ...
+
+... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ... Bruce Lee ...
+
+... Qh it's the "SAME OLD TUNE" ... WHERE DQ WE TAQE IT FRQM HERE ... it's been the same WAY fQr years ... WE NEED A CHANGE ..!
+https://www.youtube.com/watch?v=kIB5bA9T5uQ
+... BUT I DQN'T THINQ QLE' TRUTH DQNE IT THIS WAY ..? https://www.savingcountrymusic.com/native-americans-and-country-music/ ARE YQU SURE TRUTH DQNE IT THIS WAY ..? NO FAKEtriots! NO PAYtriots! NO SILENT ALL THESE YEARS ON @AE911TRUTH, ENDLESS WARS BASED ON DECEPTION, FILTHY BLOOD MONEY FAKE VALUE WORTHLESS PENSION WHORE FREEMASON Frateranl Order of PEDOphile POLICE ME ME ME MY FAMILY MY JOB MY DEPARTMENT "JUST FOLLOWING ORDERS" "JUST DOING MY JOB" "JUST GOING TO WORK" "JUST TAKING CARE OF MY FAMILY" "BACK THE BLUE" "BROTHERHOOD OF THE BLUE WALL OF SILENCE" "DO AS I SAY OR ELSE" CAGING RAPING LYING SILENCING FRAMING CAGING CONTROLLING DECEIVING "SATAM" https://www.youtube.com/watch?v=f_NOhAdaNm8 "ADMINISTRATOR" "FAKE SEAL" "SNAKE" "CHILDREN OF DARKNESS" "KNOWLEDGE HIDING" low iQ unable to 'create' SOULLESS archon ahrimam MONSTERS INC https://www.biblehub.com/matthew/10-37.htm SUPPORT OUR TROOP "W" bumper sticker 1/2 TRUTH 1/2 HEART fake TRUTHtians! I AM NAFF! I AM Not A FuQQinQ Fan. ONLY 1 OF US IS RIGHT AND I AM SPEAKING TRUTH, are 'they' ..? the more you know ... CHOOSE WISELY. SEE YOU "BACK HOME" ..! PROMISE. WORD.
+
+NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
+
+... hmmm ... https://www.youtube.com/watch?v=8G3LL2vDcuA ... in Qase I disappear says sQft leQs PUREHEART Gina Maria in a 1 minute 17 secQnd video ... then oh my GOODness I CAN "FEEL" "NAUGHTY BEAVER" IN TRUTH WITH MOST PUREHEART ..! Can you 'hear' 'see' 'feel' "Naughty Beaver" in TRUTH ..?  https://www.youtube.com/watch?v=f_NOhAdaNm8 ... DQ yQu believe in cQincidence ..? https://www.youtube.com/watch?v=ZGuQWpJZhh8 TRUMP TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU IF G_D IS FOR "ME" WHO? WHO CAN BE AGAINST ME? NO ONE not here not in HEAVEN no one if G_D IS WITH ME you know what I AM getting at, RIGHT ..? YOU HAVE AN OBLIGATION TO G_D TO SPEAK BOLDLY, MORALLY COURAGEOUSLY, LOUD, SOUNDING THE ALARM "WATCHMAN" ... SILENCE IS COMPLICITNESS ..! THERE IS NO FILTH IN HEAVEN! NONE. https://www.biblehub.com/matthew/10-37.htm NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS. PRINCIPLES over personalities. Go with G_D. Q ... G_D WINS. Q ...
+
+Verily I tell you unless you change and become like a little child, you will not enter the Kingdom of HEAVEN.
+Matthew 18:3
+
+NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
+
 ... well my buQQle 'makes' 'impressions' on the 'inside' of 'her' thigh ... we're all little feathered indians ... to the house of such an angel ... she asked ... I said ... up 'til nQw there ain't been nQthinQ that I cQuldn't leave behind ...
 LOOP https://youtubeloop.net FEATHERED INDIANS https://www.youtube.com/watch?v=_lsran_Slzc WHILE (you.hold(me,close))
 ... HOLD ME CLOSE MY DEAR ... HONEY TELL ME HOW YOUR LOVE RUNS TRUE ... HOW I CAN ALWAYS COUNT ON YOU ... 
 be there when the bullets fly ... I would run aCROSS the river just to HOLD YOU TONIGHT ...
 
-https://www.recalbox.com/diyrecalbox/
+NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
-THANK YOU GITHUB!
+... JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ...
 
-NAPPY RQQTS
+THANK YOU GITHUB ..!
+
+PUREHEART 'NAPPY' RQQTS IN TRUTH ..!
 https://www.youtube.com/watch?v=QbN6VkleO48
-I LOVE YQU KENTUQQY!
+I LOVE YQU KENTUQQY ..!
+
+PLAYful WAY https://www.recalbox.com/diyrecalbox/ QLD schQQl K.I.S.S. GOOD PUREHEART back to the basiQs with plenty of NEW GOOD LOVE and NEW GOOD WARM LIFE-GIVING SOLAR LIGHT style tQQ ...
 
 HOLY SQFT HAIRY PUSSY https://www.youtube.com/watch?v=p4BAhnIfMQk QATBALLS, QATWQMAN! https://www.youtube.com/watch?v=-BhccC8TQ7E ... GINA MARIA ... soft legs ... knows ..! WONDERS of ... https://www.youtube.com/watch?v=902ZRdplotE ... LOVE ... what a 'jewel' ... https://www.youtube.com/watch?v=VLZ2kPzQX2Y ... and HEAVEN AND NATURE SING ... https://www.youtube.com/watch?v=05zz1XzRMW4 ... and ALL THE ANGELS IN HEAVEN RISE IN GLORY ... REPEAT THE SOUNDING JOY Repeat The Sounding Joy repeat the sounding joy ... THE GLORIES OF ... RIGHTEOUS http://web.archive.org/web/20180911054622/http://a3du.com/rumpbabum.html AND WONDERS OF ... LOVE ... JOY TO THE WORLD ... LET EVERY HEART ... PREPARE ... ROOM ... and HEAVEN and NATURE sing .. oh la la ... sing it Jewel sing it LOVE sing it angel ... I LOVE YOU ..! http://web.archive.org/web/20180908155403/http://a3du.com/Its.A.Baby.QrinQle.First.TQy.MaQer.TQ.The.QinQ.html ... yQu knQw I AM the 1st tQy maQer tQ the QinQ ... don't you ..? http://web.archive.org/web/20180909210540/http://a3du.com/TheCreationOfAPussy.html YQU DQ NQW ..! THANQ YQU fQr QumminQ please QUM AQAIN and stay QREAMy kind one ..!
 
 https://SOLAR2D.com
+
+"The Conversation" says "Watasha" Waylon to HanQ Jr ... HanQ... let's talQ abQut TRUTH ... back then 'they' Qalled TRUTH Qrazy ... nQwadays 'they' Qall TRUTH a saint ... nQw the Qnes that Qalled TRUTH Qrazy still 'riding on TRUTH's name' ... https://www.youtube.com/watch?v=csONW-zWFqs ... be the 'first Qne Qn the bus' ... ready to ride ... whereever TRUTH is I hope TRUTH's happy ... I hope TRUTH's doing well ... I won't asQ yQu knQw mQre questiQns tQ the stQries Qnly HanQ Qan tell ... 
 
 TRUTH.
 PUREHEART.
@@ -92,10 +120,7 @@ Can you see 'GOOD' is only she and he, only mom and dad, only baby lady and gent
 
 'She' is most PUREHEART and 'he' knows it.
 
-https://LOVE2D.org
-
 ... JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ... https://www.youtube.com/watch?v=HXdw4ZTQLVo ... and Wonders ... https://www.youtube.com/watch?v=ffvULj021P0 ... and wonders of ... https://www.youtube.com/watch?v=niOb-ft9N64 ... LOVE ...
-
 What, then, shall we say in response ..? https://www.biblehub.com/romans/8-31.htm ..?
 
 G_D IS FOR "US", WHO CAN BE AGAINST US ..?
