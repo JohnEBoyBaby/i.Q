@@ -20,7 +20,8 @@ https://CodeBlocks.org
 https://MorgueFile.com
 
 https://github.com/xiaolai/everyone-can-use-english 
-(-: NOTE:CHROME CAN AUTO-TRANSLATE from ancient Han to english to help you 'learn' and 'grow' TOGETHER :-)
+
+(-: NOTE: CHROME CAN AUTO-TRANSLATE from ancient Han to english to help you 'learn' and 'grow' TOGETHER :-)
 
 ... hit'em with a little ghetto gospel ... 
 https://www.youtube.com/watch?v=Do5MMmEygsY
