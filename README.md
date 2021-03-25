@@ -5,7 +5,7 @@ I met this 'Qirl', 'LI YEONNA' or 'yQu knQw hQw we dQ', 'us', 'RED PEOPLE' 'YEON
 
 https://www.youtube.com/watch?v=fdQgPu3iUYk
 
-... I WOULD SO LOVE TO KNOW SHE IS HAPPY AND SAFE IN TRUTH MY beLOVEd if yQu 'all' wQuld help me to 'find her' 'kind ones' please be sQ 'kind' to FIND HER FOR ME please ... thank you 'kind ones' in TRUTH with most PUREHEART ... now that's the "kind" kind I like ..! PUREHEART ..! TRUTH ..! teardrop TearDrop TEARDROP ... hear my prayer G_D in TRUTH with most PUREHEART as I cry LORD I LOVE YOU FOREVER NO MATTER WHAT YOU TAKE NO MATTER WHAT YOU DO MY G_D MY CREATOR MY "BABY" I WILL "PROTECT YOU MY LOVE" I WILL "TELL YOU THE TRUTH MY LOVE" "I WILL ALWAYS LOVE YOU UNCONDITIONALLY MOST BELOVED OF ALL I LOVE YOU shhh Shhh SHHH sleep now 'baby' ahhh Ahhh AHHH I LOVE YOU EVEN MORE THAN YOU LOVE MY G_D LOVE ME IF IT IT POSSIBLE FOR I LOVE YOU I LOVE YOU I LOVE YOU THANK YOU G_D ...
+... I WOULD SO LOVE TO KNOW SHE IS HAPPY AND SAFE IN TRUTH MY beLOVEd if yQu 'all' wQuld help me to 'find her' 'kind ones' please be sQ 'kind' to FIND HER FOR ME please beCAUSE https://www.rt.com/news/519004-china-five-eyes-west-xinjiang/ ... so do please 'kind' thoughtful, wonderful, PUREHEART beLOVEd 'blessed' mQst Qapable DO IT NOW RIGHT FUQQINQ NOW DO IT NOW FIND HER NOW for me ahhh Ahhh AHHH THAT "WAS SO NICE AND 'voluntary' of you young grasshopper a GOOD LISTENER you are" AAAH Aaah aaah YES I SEE YOU ... 'sipi sipi' "HOW SHONG NEE" I MISS YOU thank you 'kind ones' in TRUTH with most PUREHEART ... now that's the "kind" kind I like ..! PUREHEART ..! TRUTH ..! teardrop TearDrop TEARDROP ... hear my prayer G_D in TRUTH with most PUREHEART as I cry LORD I LOVE YOU FOREVER NO MATTER WHAT YOU TAKE NO MATTER WHAT YOU DO MY G_D MY CREATOR MY "BABY" I WILL "PROTECT YOU MY LOVE" I WILL "TELL YOU THE TRUTH MY LOVE" "I WILL ALWAYS LOVE YOU UNCONDITIONALLY MOST BELOVED OF ALL I LOVE YOU shhh Shhh SHHH sleep now 'baby' ahhh Ahhh AHHH I LOVE YOU EVEN MORE THAN YOU LOVE MY G_D LOVE ME IF IT IT POSSIBLE FOR I LOVE YOU I LOVE YOU I LOVE YOU THANK YOU G_D ...
 
 https://LOVE2D.org
 
@@ -133,7 +133,7 @@ RED PEOPLE
 I MiSS YOU
 好想你
 Hǎo xiǎng nǐ 
-HOW SHANG NEE
+HOW SHONG NEE
 I MISS YOO TOO
 https://www.youtube.com/watch?v=fdQgPu3iUYk
 ... now that's the "kind" kind I like too ...
