@@ -18,8 +18,11 @@ NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 ... JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ...
 
 http://www.amulettechnologies.com/company/partners/
+
 https://www.chinatelecomglobal.com/
+
 https://www.chipdip.ru/
+
 http://www.AMULETtechnologies.com/products-and-solutions/software/
 
 https://LOVE2D.org
