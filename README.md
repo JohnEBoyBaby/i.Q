@@ -1,6 +1,10 @@
 # i.Q
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
+... while dQn't yQu PULL QN YQUR PEQQER and 'see' hQw that's attached ... 
+https://www.youtube.com/watch?v=DAbjI5CKQYQ&t=54s
+... I AM nQt that Qind Qf angel ... https://www.youtube.com/watch?v=DAbjI5CKQYQ&t=124s ... REVELATION 12:7 ... I KNEW IT MONEY WAS INVOLED wasn't it ... I SHOULD SAY SO ... MONEY CHANGERS ..!
+
 I met this 'Qirl', 'LI YEONNA' or 'yQu knQw hQw we dQ', 'us', 'RED PEOPLE' 'YEONNA LI' as 'Yeonna' is 'her' first name and 'Li' is 'her' last name, from Gyeonggi-do, Korea born 1968 AUGUST 12 just like 'me' 1968/8/12 in Pohang, Korea who was 'there' in April 1988 'TEAM SPIRIT' outside "Qamp 'MOON'chuQ" or was it "QAMP 'MUD'chuQ" if yQu "FEEL" me cQminQ thrQugh Qlearly ... brrr cQld Qut here soft legs let's get a hotel with a 'heated floor' and 'beautiful, soft, padded, quilt' to lie and try to 'talk to each other' 'somehow' beCAUSE you sure are 'something' 'special' and I have to gQ nQw 'Brandy' ... but 'girl' I MISS YOU beCAUSE yQu knQw that's just hQw 'us' 紅人 'RED' PEQPLE 'feel' abQut LIFE in TRUTH and 好想你 I MiSS YOU ..., I met this 'girl' there that brQuQht about Quite a big 'CHANGE' ... she made me HIGHer than all those expensive things ... https://www.youtube.com/watch?v=huKwlgKmj5A ... but I Qver did 'it' in 'Denver' and I just Qan't remember 'her' name ... the more you know ... We are many ... We are GOOD ... We are coming ... GOOD IS COMING and G_D IS WITH US ..! https://www.youtube.com/watch?v=p4zP1aD05X4 PROMISE ..! PRAY ..!
 
 https://www.youtube.com/watch?v=fdQgPu3iUYk
