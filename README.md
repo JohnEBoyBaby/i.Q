@@ -1,6 +1,8 @@
 # i.Q
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
+I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..!
+
 ... hit'em with a little ghetto gospel ... 
 https://www.youtube.com/watch?v=Do5MMmEygsY
 ... I stop and stare at the younger ... my heart goes to them ...
