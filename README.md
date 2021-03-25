@@ -33,9 +33,7 @@ https://SOLAR2D.com
 
 https://FENGARI.io/
 
-https://luvit.io/
-https://github.com/luvit/luvit
-https://github.com/luvit/luvi/releases
+https://OPENRESTy.org/en/
 
 https://LUA.org
 
