@@ -27,10 +27,6 @@ Bruce Lee
 Verily I tell you unless you change and become like a little child, you will not enter the Kingdom of HEAVEN.
 Matthew 18:3
 
-
-NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
-
-
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
 TRUTH.
@@ -38,7 +34,7 @@ PUREHEART.
 
 ... JUST LOOK AT THAT ... JohnEBoy hittin' yQu RIGHT on yQur 'GSPOT' soft legs making you, aaah you know, C.R.E.A.M. Control Relational Extensible Atomic Mathematics GUI 'gooey' CREAM LOVE GUI: A stately GUI lib for LÖVE2D.org ... JUST LOOK AT IT ... I AM QUMMINQ FQR THAT NUMBER 1 GSPQT ... PROMISE.
 
-https://notabug.org/pgimeno/Gspot 
+https://notabug.org/pgimeno/Gspot just LQQk at 'it' ... oh la la ... so CREAMY so ICEY so FROSTY so CQQL ... that's the 'kind' kind I like tQQ ... yes ma'am I WOULD JUST LOVE SOME MORE OF YOUR ALL NATURAL "QREAMINESS QF QREAM TQWN" FRESH CRYSTALLINE PUREHEART HIGH QUALITY "CREAM" oh yes ma'am ... GIVE ME ALL YOU HAVE GQT ... ALL YQUR "CREAM" PLEASE ... thanQ yQu ... LOVE YOU. NEVER FORGET.
 
 ... 'us' 'CREAM' 'LOVERS' have to 'STICK' TOGETHER ..!
 
