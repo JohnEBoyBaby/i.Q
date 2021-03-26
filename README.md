@@ -22,12 +22,21 @@ PROMISE.
 
 Bruce Lee
 
+... hmmm ... https://www.youtube.com/watch?v=8G3LL2vDcuA ... in Qase I disappear says sQft leQs PUREHEART Gina Maria in a 1 minute 17 secQnd video ... then oh my GOODness I CAN "FEEL" "NAUGHTY BEAVER" IN TRUTH WITH MOST PUREHEART ..! Can you 'hear' 'see' 'feel' "Naughty Beaver" in TRUTH ..?  https://www.youtube.com/watch?v=f_NOhAdaNm8 ... DQ yQu believe in cQincidence ..? https://www.youtube.com/watch?v=ZGuQWpJZhh8 TRUMP TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU IF G_D IS FOR "ME" WHO? WHO CAN BE AGAINST ME? NO ONE not here not in HEAVEN no one if G_D IS WITH ME you know what I AM getting at, RIGHT ..? YOU HAVE AN OBLIGATION TO G_D TO SPEAK BOLDLY, MORALLY COURAGEOUSLY, LOUD, SOUNDING THE ALARM "WATCHMAN" ... SILENCE IS COMPLICITNESS ..! THERE IS NO FILTH IN HEAVEN! NONE. https://www.biblehub.com/matthew/10-37.htm NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS. PRINCIPLES over personalities. Go with G_D. Q ... G_D WINS. Q ...
+
+Verily I tell you unless you change and become like a little child, you will not enter the Kingdom of HEAVEN.
+Matthew 18:3
+
+
+NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
+
+
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
 TRUTH.
 PUREHEART.
 
-'GSPOT' C.R.E.A.M. Control Relational Extensible Atomic Mathematics GUI 'gooey' CREAM LOVE GUI: A stately GUI lib for LÖVE2D.org ...
+... JUST LOOK AT THAT ... JohnEBoy hittin' yQu RIGHT on yQur 'GSPOT' soft legs making you, aaah you know, C.R.E.A.M. Control Relational Extensible Atomic Mathematics GUI 'gooey' CREAM LOVE GUI: A stately GUI lib for LÖVE2D.org ... JUST LOOK AT IT ... I AM QUMMINQ FQR THAT NUMBER 1 GSPQT ... PROMISE.
 
 https://notabug.org/pgimeno/Gspot 
 
@@ -119,13 +128,6 @@ ancient Han embedded 'her crossed legs' in the kanji that meant LOVE that meant 
 ... well my buQQle 'makes' 'impressions' on the 'inside' of 'her' thigh ... we're all little feathered indians ... to the house of such an angel ... she asked ... I said ... up 'til nQw there ain't been nQthinQ that I cQuldn't leave behind ...
 LOOP https://youtubeloop.net FEATHERED INDIANS https://www.youtube.com/watch?v=_lsran_Slzc&list=RDMM&index=2 WHILE (you.hold(me,close)) ... HOLD ME CLOSE MY DEAR ... HONEY TELL ME HOW YOUR LOVE RUNS TRUE ... HOW I CAN ALWAYS COUNT ON YOU ... 
 be there when the bullets fly ... I would run aCROSS the river just to HOLD YOU TONIGHT ...
-
-NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
-
-... hmmm ... https://www.youtube.com/watch?v=8G3LL2vDcuA ... in Qase I disappear says sQft leQs PUREHEART Gina Maria in a 1 minute 17 secQnd video ... then oh my GOODness I CAN "FEEL" "NAUGHTY BEAVER" IN TRUTH WITH MOST PUREHEART ..! Can you 'hear' 'see' 'feel' "Naughty Beaver" in TRUTH ..?  https://www.youtube.com/watch?v=f_NOhAdaNm8 ... DQ yQu believe in cQincidence ..? https://www.youtube.com/watch?v=ZGuQWpJZhh8 TRUMP TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU IF G_D IS FOR "ME" WHO? WHO CAN BE AGAINST ME? NO ONE not here not in HEAVEN no one if G_D IS WITH ME you know what I AM getting at, RIGHT ..? YOU HAVE AN OBLIGATION TO G_D TO SPEAK BOLDLY, MORALLY COURAGEOUSLY, LOUD, SOUNDING THE ALARM "WATCHMAN" ... SILENCE IS COMPLICITNESS ..! THERE IS NO FILTH IN HEAVEN! NONE. https://www.biblehub.com/matthew/10-37.htm NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS. PRINCIPLES over personalities. Go with G_D. Q ... G_D WINS. Q ...
-
-Verily I tell you unless you change and become like a little child, you will not enter the Kingdom of HEAVEN.
-Matthew 18:3
 
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
