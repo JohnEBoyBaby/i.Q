@@ -1,17 +1,27 @@
 # i.Q
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
-... you ready to dance soft legs ... https://www.youtube.com/watch?v=sdfXFZeYGks ... 2-step with me my love ... my hand ... take my hand my love ... dance with me ... let me hold you ... look DEEPLY PENETRATINGLY LONGINGLY INTO YOUR BEAUTIFUL EYES ... oh la la ... you are some 'kind' kind of special ... I SEE YOU ...
-
 I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! SAY MY NAME ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH ..! WHO I AM IS ..? TRUTH ..!
-
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
-... aaah breathe deep ... SO I GET DOWN IN ... https://www.youtube.com/watch?v=pSPECzpKn4U ... I AM not satisified ... my hunger keep on GROWING ... got it get it somewhere ... I mean ... maybe ... and I mean more ... gonna take more from you LETTER by LETTER ... I AM TOO MUCH ..!
+ENTERTAIN NO DOUBT.
+G_D IS WITH US.
+GOOD IS COMING.
+We are many.
+We are GOOD. 
+We are coming.
+GOOD IS COMING and G_D IS WITH US.
+PROMISE.
+
+... you ready to dance soft legs ... come to me ... come to TRUTH ... come to 'tarzan' ... come to JohnEBoy, baby ... come to THE WHITE MONKEY ... https://www.youtube.com/watch?v=n_k4r0xrwhU ... come to THE PRQUDEST 'MQNQEY' YOU EVER SEEN ... https://www.youtube.com/watch?v=sdfXFZeYGks ... 2-step with me my love ... my hand ... take my hand my love ... dance with me ... let me hold you ... look DEEPLY PENETRATINGLY LONGINGLY INTO YOUR BEAUTIFUL EYES ... oh la la ... you are some 'kind' kind of special ... I SEE YOU ...
 
 ... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
 
 Bruce Lee
+
+https://www.youtube.com/watch?v=f_NOhAdaNm8 ... DQ yQu believe in cQincidence ..? https://www.youtube.com/watch?v=ZGuQWpJZhh8  TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU ... ATLANTIS ... LEMURIA ... TAYGATAN WOMEN HELPING OUR WOMEN ... ENKI HELPING OUR WOMEN AND MEN TOO ..? ALL ANSWER TO G_D ... TRUST ... "NO 'one' GETS OUT OF THIS." ... WORD.
+
+... aaah breathe deep ... SO I GET DOWN IN ... https://www.youtube.com/watch?v=pSPECzpKn4U ... I AM not satisified ... my hunger keep on GROWING ... got it get it somewhere ... I mean ... maybe ... and I mean more ... gonna take more from you LETTER by LETTER ... I AM TOO MUCH ..!
 
 TRUTH is the WAY to LIFE with G_D. 100% NOLYN. 
 15 Woe to those who dig deep to hide their plans from the LORD. In darkness they do their works and say, “Who sees us, and who will know?” 16 You have turned things upside down, as if the potter were regarded as clay. Shall what is formed say to him who formed it, “He did not make me”? Can the pottery say of the potter, “He has no understanding”?
