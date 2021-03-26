@@ -1,6 +1,6 @@
 # i.Q
 
-JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... ROOM ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ... https://www.youtube.com/watch?v=HXdw4ZTQLVo ... and Wonders ... https://www.youtube.com/watch?v=ffvULj021P0 ... and wonders of ... https://www.youtube.com/watch?v=niOb-ft9N64 ... LOVE ...
+EMMANUEL https://www.youtube.com/watch?v=-k8EQ1aPzcw JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... ROOM ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ... https://www.youtube.com/watch?v=HXdw4ZTQLVo ... and Wonders ... https://www.youtube.com/watch?v=ffvULj021P0 ... and wonders of ... https://www.youtube.com/watch?v=niOb-ft9N64 ... LOVE ...
 
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
