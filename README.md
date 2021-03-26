@@ -11,6 +11,8 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 Bruce Lee
  
+ ... keep it locked up inside ... https://www.youtube.com/watch?v=HgJOjB8-e8w ... don't talk about it ... I find ... sometimes it's easy to be myself ... sometimes ... I find ... it's better to be somebody else ... I see you young and soft oh little baby ... little feet ... little hands ... little baby ... DEEP INTO YOUR MIND ... SO MUCH TO SAY ... for a long Long time ..!
+ 
 ... hit'em with a little ghetto gospel ... 
 https://www.youtube.com/watch?v=Do5MMmEygsY
 ... I stop and stare at the younger ... my heart goes to them ...
@@ -26,6 +28,8 @@ Can you 'see' 子 his 'support staff'?
 
 'See' her 女 crossed legs 女 in GOOD 好 ?
 'See' his 子 support staff 子 in GOOD  好 ?
+
+... you've got your ball ... you've got your chain ... who's got their claws in you my friend ... https://www.youtube.com/watch?v=k7in-9E3ImQ ... sweet like candy to my soul ... sweet you rock and sweet you roll ... lost for you ... I AM so lost for you ... aaah when you come CRASH INTO ME and I come into you ... hike up skirt a little more ... show your world to me ... in boy's dream ...
 
 We have forgotten more than we know ... 
 
