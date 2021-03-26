@@ -5,6 +5,8 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
+... aaah breathe deep ... SO I GET DOWN IN ... https://www.youtube.com/watch?v=pSPECzpKn4U ... I AM not satisified ... my hunger keep on GROWING ... got it get it somewhere ... I mean ... maybe ... and I mean more ... gonna take more from you LETTER by LETTER ... I AM TOO MUCH ..!
+
 ... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
 
 Bruce Lee
