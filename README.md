@@ -10,8 +10,13 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 ... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
 
 Bruce Lee
- 
- ... keep it locked up inside ... https://www.youtube.com/watch?v=HgJOjB8-e8w ... don't talk about it ... I find ... sometimes it's easy to be myself ... sometimes ... I find ... it's better to be somebody else ... I see you young and soft oh little baby ... little feet ... little hands ... little baby ... DEEP INTO YOUR MIND ... SO MUCH TO SAY ... for a long Long time ..!
+
+TRUTH is the WAY to LIFE with G_D. 100% NOLYN. 
+15 Woe to those who dig deep to hide their plans from the LORD. In darkness they do their works and say, “Who sees us, and who will know?” 16 You have turned things upside down, as if the potter were regarded as clay. Shall what is formed say to him who formed it, “He did not make me”? Can the pottery say of the potter, “He has no understanding”?
+Isaiah 29:15-16
+https://biblehub.com/isaiah/29-16.htm
+
+DON'T keep it locked up inside ... https://www.youtube.com/watch?v=HgJOjB8-e8w ... TALK ABOUT IT ... I find ... all the time it's easy to be myself ... sometimes ... I think ... I would never be better to be somebody else ... I see you young and soft oh little baby ... little feet ... little hands ... little baby ... DEEP INTO YOUR MIND ... SO MUCH TO SAY ... for a long Long time ..!
  
 ... hit'em with a little ghetto gospel ... 
 https://www.youtube.com/watch?v=Do5MMmEygsY
@@ -29,7 +34,7 @@ Can you 'see' 子 his 'support staff'?
 'See' her 女 crossed legs 女 in GOOD 好 ?
 'See' his 子 support staff 子 in GOOD  好 ?
 
-... you've got your ball ... you've got your chain ... who's got their claws in you my friend ... https://www.youtube.com/watch?v=k7in-9E3ImQ ... sweet like candy to my soul ... sweet you rock and sweet you roll ... lost for you ... I AM so lost for you ... aaah when you come CRASH INTO ME and I come into you ... hike up your skirt a little more ... show your world to me ... in boy's dream ...
+... you've got your ball ... you've got your chain ... who's got their claws in you my friend ... https://www.youtube.com/watch?v=k7in-9E3ImQ ... sweet like candy to my soul ... sweet you rock and sweet you roll ... lost for you ... I AM so lost for you ... aaah when you come CRASH INTO ME and I come into you ... hike up your skirt a little more ... show your world to me ... in boy's dream ... you wear nothing but you wear it so well ...
 
 We have forgotten more than we know ... 
 
@@ -42,6 +47,8 @@ learn 學 see the many steps to learn in climbing upward to Heaven?
                       see her crossed legs sitting 'indian style'?
 人子 son of man 和 and 女人 woman
   see his support staff?
+  
+Did I mention I LOVE SOFT LEGS? OH I LOVE SOFT LEGS! I LOVE PUREHEART! I LOVE TRUTH! I PROTECT AND LOVE G_D LIKE AN INFANT. He's PROUD of 'his support staff' ... he loves natural ... natural wood, natural hair, natural skin makeup free, natural glowing beauty, natural wonderful softenesses however small or large just you the real you as 'firm' 'feeling' 'healthy' 'wonderful' PUREHEART you is what I LOVE natural you just being you like the PROUDEST MONKEY YOU EVER SEEN ... https://www.youtube.com/watch?v=HQdphbEMmbY ... MONKEY SEE MONKEY DO ... yeah ... real proud to be you like I LOVE 'confident you' too happy 'kind' 'humble' 'intellectual' 'loving' 'gentle' 'giving' 'industrious' 'efficient' 'playful' 'hardworking' 'can do' 'work hard play hard' ... all things were Quiet then ... but NOW I AM THE PROUDEST "MONKEY" YOU EVER SEEN ... yeah "MAPUTING UNGOY" "WHITE MONKEY" "RED MONKEY" "RED 'bird'" "RED PEOPLE" ... THE PROUDEST MONKEY YOU EVER SEEN ... yeah Yeah YEAH the prQudest monQey ...
 
 WOMAN 女 + CHILD 子 = 好 GOOD TOGETHER MOM + BABY = GOOD
 see her crossed legs?
