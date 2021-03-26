@@ -1,7 +1,7 @@
 # i.Q
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
-... you ready to dance soft legs ... https://www.youtube.com/watch?v=sdfXFZeYGks ... 2-step with me my love ... my hand ... take my hand my love ... dance with me ... let me hold you ... look into you eyes ... oh la la ... you are some 'kind' kind of special ... I SEE YOU ...
+... you ready to dance soft legs ... https://www.youtube.com/watch?v=sdfXFZeYGks ... 2-step with me my love ... my hand ... take my hand my love ... dance with me ... let me hold you ... look DEEPLY PENETRATINGLY LONGINGLY INTO YOUR BEAUTIFUL EYES ... oh la la ... you are some 'kind' kind of special ... I SEE YOU ...
 
 I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! SAY MY NAME ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH ..! WHO I AM IS ..? TRUTH ..!
 
