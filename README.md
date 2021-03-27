@@ -1,8 +1,7 @@
 # i.Q
+I SEE YOU. 
 
-... I AM 15 for a moment ... https://www.youtube.com/watch?v=tR-qQcNT_fY ... 15 there's still time for you ... there is never a wish better than this ... aaah my friends ... they keep trying to tell me ... all you want to do is USE ME ... and my answer ... https://www.youtube.com/watch?v=g3hBYTkI-sE ... I want to spread the news ... that if it feels this GOOD getting 'used' ... you just keep on 'using me' ... until you use me UP ... sit down in the room and talk to me ... I ought not let you just walk on me ... if you only knew ... you'd wish that you were in my shoes ... you just keep on using me ... 'til you use me UP ..! ... WAKE UP Maggie ... I think I got something to say to you ... https://www.youtube.com/watch?v=EOl7dh7a-6g ... Qh Maggie I couldn't have tried anymore ...
-
-TRUTH is the WAY to LIFE with G_D.
+https://www.youtube.com/watch?v=aBV0EfMnsmg
 
 EMMANUEL https://www.youtube.com/watch?v=-k8EQ1aPzcw JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... ROOM ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ... https://www.youtube.com/watch?v=HXdw4ZTQLVo ... and Wonders ... https://www.youtube.com/watch?v=ffvULj021P0 ... and wonders of ... https://www.youtube.com/watch?v=niOb-ft9N64 ... LOVE ... and give some GOOD LOVE to Derek Banas ... https://www.youtube.com/watch?v=iMacxZQMPXs ... A GOOD K.I.D. and very GOOD at Keeping It Simple Silly K.I.S.S.ing ..! THANK YOU 'kind' one ... you cover so very many languages most multi-lingual 'blessed' 'intelleQtual' beLOVEd 'giving' 'hardworking' 'efficient' 'playful' yet to the point CAN DO most learned and time well spent with succinct, knowledgeable, experienced, back to basics, confident, well-spoken gentle baby man ... GOOD BANANAS BANAS ..!
 
@@ -34,6 +33,10 @@ Bruce Lee
 
 Verily I tell you unless you change and become like a little child, you will not enter the Kingdom of HEAVEN.
 Matthew 18:3
+
+... I AM 15 for a moment ... https://www.youtube.com/watch?v=tR-qQcNT_fY ... 15 there's still time for you ... there is never a wish better than this ... aaah my friends ... they keep trying to tell me ... all you want to do is USE ME ... and my answer ... https://www.youtube.com/watch?v=g3hBYTkI-sE ... I want to spread the news ... that if it feels this GOOD getting 'used' ... you just keep on 'using me' ... until you use me UP ... sit down in the room and talk to me ... I ought not let you just walk on me ... if you only knew ... you'd wish that you were in my shoes ... you just keep on using me ... 'til you use me UP ..! ... WAKE UP Maggie ... I think I got something to say to you ... https://www.youtube.com/watch?v=EOl7dh7a-6g ... Qh Maggie I couldn't have tried anymore ...
+
+TRUTH is the WAY to LIFE with G_D.
 
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
