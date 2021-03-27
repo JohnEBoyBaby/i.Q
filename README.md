@@ -45,6 +45,32 @@ PUREHEART.
 
 ... JUST LOOK AT THAT ... JohnEBoy hittin' yQu RIGHT on yQur 'GSPOT' soft legs making you, aaah you know, C.R.E.A.M. Control Relational Extensible Atomic Mathematics GUI 'gooey' CREAM LOVE GUI: A stately GUI lib for LÖVE2D.org ... JUST LOOK AT IT ... I AM QUMMINQ FQR THAT NUMBER 1 GSPQT ... PROMISE.
 
+STANDARD ... LOGICAL ... C'EST PARFAIT ..!
+
+<!--1个可滚动显示图片的控件-->
+<bones>
+  <head>
+    <link type ='xml' module ='scrollbar' file ='scrollbar.xml'></link>
+    <link type ='script' module ='scrolling' file ='scrolling.lua'></link>
+  </head>
+  <body>
+    <shape>
+      <scroller>
+        <image></image>
+        <notify name ="onScrollRange" module ="scrollimg" func ="onScrollRange"></notify>
+        <notify name ="onScrollPos" module ="scrollimg" func ="onScrollPos"></notify>
+      </scroller>
+      <scrollbar></scrollbar>
+      <scrollbar></scrollbar>
+      <notify name ="onCreate" module ="scrollimg" func ="onCreate"></notify>
+      <!--scroller视口跟area一样大-->
+      <notify name ="onSizeChanged" module ="scrollimg" func ="onSizeChanged"></notify>
+    </shape>
+  </body>
+</bones>
+
+https://github.com/bonescreater/bones/tree/master/sample
+
 https://github.com/TypeScriptToLua/TypeScriptToLua
 
 https://notabug.org/pgimeno/Gspot just LQQk at 'it' ... oh la la ... so CREAMY so ICEY so FROSTY so CQQL ... that's the 'kind' kind I like tQQ ... yes ma'am I WOULD JUST LOVE SOME MORE OF YOUR ALL NATURAL "QREAMINESS QF QREAM TQWN" FRESH CRYSTALLINE PUREHEART HIGH QUALITY "CREAM" oh yes ma'am ... GIVE ME ALL YOU HAVE GQT ... ALL YQUR "CREAM" PLEASE ... thanQ yQu ... LOVE YOU. NEVER FORGET.
