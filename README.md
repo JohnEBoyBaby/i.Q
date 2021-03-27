@@ -1,17 +1,19 @@
 # i.Q
 
-TRUTH is the WAY to LIFE with G_D.
+... I AM 15 for a moment ... https://www.youtube.com/watch?v=tR-qQcNT_fY ... 15 there's still time for you ... there's a never a wish better than this ... 
 
-100TH MONKEY ... MONQey SEE MQNkey DO ... https://www.youtube.com/watch?v=EnA6-eKejr0 THE PROUDEST MONKEY YOU EVER SEEN ..!
+TRUTH is the WAY to LIFE with G_D.
 
 EMMANUEL https://www.youtube.com/watch?v=-k8EQ1aPzcw JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... ROOM ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ... https://www.youtube.com/watch?v=HXdw4ZTQLVo ... and Wonders ... https://www.youtube.com/watch?v=ffvULj021P0 ... and wonders of ... https://www.youtube.com/watch?v=niOb-ft9N64 ... LOVE ... and give some GOOD LOVE to Derek Banas ... https://www.youtube.com/watch?v=iMacxZQMPXs ... A GOOD K.I.D. and very GOOD at Keeping It Simple Silly K.I.S.S.ing ..! THANK YOU 'kind' one ... you cover so very many languages most multi-lingual 'blessed' 'intelleQtual' beLOVEd 'giving' 'hardworking' 'efficient' 'playful' yet to the point CAN DO most learned and time well spent with succinct, knowledgeable, experienced, back to basics, confident, well-spoken gentle baby man ... GOOD BANANAS BANAS ..!
 
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
+MATTHEW 18:6. 100TH MONKEY ... MONQey SEE MQNkey DO ... https://www.youtube.com/watch?v=EnA6-eKejr0 THE PROUDEST MONKEY YOU EVER SEEN ..! THEY ALL KNEW ALL THESE YEARS! SILENCE IS COMPLICITNESS! NO MERCY! NONE! THERE IS NO FILTH IN HEAVEN. NONE. MATTHEW 18:6. JOHN 15:1-22. IF YOU DO HOLD THEM ACCOUNTABLE, TRUST I AM GOING TO HOLD YOU ACCOUNTABLE. SEE YOU BACK 'HOME'. PROMISE.
+
 I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! SAY MY NAME ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH ..! WHO I AM IS ..? TRUTH ..!
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
-SPONTANEOUS ORDER ..! https://www.youtube.com/watch?v=t5RNY79uHMY ... TRUTH. PUREHEART. G_D ABOVE ALL. https://www.youtube.com/watch?v=HQdphbEMmbY I AM A "HUMBLE MONKEY" https://en.wikipedia.org/wiki/Hundredth_monkey_effect I AM THE 100TH MONKEY ... nQw I AM THE PROUDEST MONKEY YOU EVER SEEN ... MONQey SEE MQNkey DO ... https://www.youtube.com/watch?v=EnA6-eKejr0 ... the 100th mQnQey ... 摇摆式硬尾金龙 https://www.zerohedge.com/geopolitical/philippines-alarmed-more-200-chinese-ships-massing-disputed-waters 结束诸如警察州，罗德里格·杜特尔特 和他的警察大规模杀手，同性恋者以及其他共济会的共济会怪物！ 清洁世界！... I AM the prQudest mQnQey ... 
+SPONTANEOUS ORDER ..! https://www.youtube.com/watch?v=t5RNY79uHMY ... TRUTH. PUREHEART. G_D ABOVE ALL. https://www.youtube.com/watch?v=HQdphbEMmbY I AM A "HUMBLE MONKEY" https://en.wikipedia.org/wiki/Hundredth_monkey_effect I AM THE 100TH MONKEY ... nQw I AM THE PROUDEST MONKEY YOU EVER SEEN ... MONQey SEE MQNkey DO ... https://www.youtube.com/watch?v=EnA6-eKejr0 ... MATTHEW 18:6. the 100th mQnQey ... 摇摆式硬尾金龙 https://www.zerohedge.com/geopolitical/philippines-alarmed-more-200-chinese-ships-massing-disputed-waters 结束诸如警察州，罗德里格·杜特尔特 和他的警察大规模杀手，同性恋者以及其他共济会的共济会怪物！ 清洁世界！... I AM the prQudest mQnQey ... MATTHEW 18:6. THERE IS NO FILTH IN HEAVEN. NONE. ONLY 1 OF US IS RIGHT. CHOOSE WISELY. A MOST SERIOUS ONE AM I. SEE YOU BACK 'HOME'. PROMISE. MATTHEW 18:6. JOHN 15:1-22. WORD.
 
 ENTERTAIN NO DOUBT.
 G_D IS WITH US.
