@@ -73,7 +73,7 @@ NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 PUREHEART.
 TRUTH.
 
-https://www.youtube.com/watch?v=f_NOhAdaNm8 ... DQ yQu believe in cQincidence ..? https://www.youtube.com/watch?v=ZGuQWpJZhh8  TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU ... ATLANTIS ... LEMURIA ... TAYGATAN WOMEN HELPING OUR WOMEN ... ENKI HELPING OUR WOMEN AND MEN TOO ..? ALL ANSWER TO G_D ... TRUST ... "NO 'one' GETS OUT OF THIS." ... WORD.
+https://www.youtube.com/watch?v=f_NOhAdaNm8 ... DQ yQu believe in cQincidence ..? https://www.youtube.com/watch?v=ZGuQWpJZhh8  TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU ... ATLANTIS ... LEMURIA ... LEMURIAN WOMEN "EVAS" ... MOST PUREHEART MOST BEAUTIFUL MOST COURAGEOUS PLEIADIAN TAYGETAN WOMEN "EVAS" HELPING OUR WOMEN "EVAS" WHO TOOK THE "KNOWLEDGE" THE "HELP" TO THE MEN "ADAMS" HENCE THE "UPSIDE DOWN STORY IN THE BIBLE OF THE KNOWLEDGE OF THE FORBIDDEN TREE" and 'snake' when the reality is one snake might bite and the other snake does not so before you judge the book by the cover think deeper for beauty is not skin deep 'kind' one ... the more you know ... ENKI HELPING OUR WOMEN AND MEN TOO ..? ALL ANSWER TO G_D ... TRUST ... "NO 'one' GETS OUT OF THIS." ... WORD.
 
 ... aaah breathe deep ... SO I GET DOWN IN ... https://www.youtube.com/watch?v=pSPECzpKn4U ... I AM not satisified ... my hunger keep on GROWING ... got it get it somewhere ... I mean ... maybe ... and I mean more ... gonna take more from you LETTER by LETTER ... I AM TOO MUCH ..!
 
