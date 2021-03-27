@@ -1,6 +1,6 @@
 # i.Q
 
-... I AM 15 for a moment ... https://www.youtube.com/watch?v=tR-qQcNT_fY ... 15 there's still time for you ... there is never a wish better than this ... 
+... I AM 15 for a moment ... https://www.youtube.com/watch?v=tR-qQcNT_fY ... 15 there's still time for you ... there is never a wish better than this ... aaah my friends ... they keep trying to tell me ... all you want to do is USE ME ... and my answer ... https://www.youtube.com/watch?v=g3hBYTkI-sE ... I want to spread the news ... that if it feels this GOOD getting 'used' ... you just keep on 'using me' ... until you use me UP ... sit down in the room and talk to me ... I ought not let you just walk on me ... if you only knew ... you'd wish that you were in my shoes ... you just keep on using me ... 'til you use me UP ..!
 
 TRUTH is the WAY to LIFE with G_D.
 
