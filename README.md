@@ -1,6 +1,6 @@
 # i.Q
 
-... I AM 15 for a moment ... https://www.youtube.com/watch?v=tR-qQcNT_fY ... 15 there's still time for you ... there's a never a wish better than this ... 
+... I AM 15 for a moment ... https://www.youtube.com/watch?v=tR-qQcNT_fY ... 15 there's still time for you ... there is a never a wish better than this ... 
 
 TRUTH is the WAY to LIFE with G_D.
 
