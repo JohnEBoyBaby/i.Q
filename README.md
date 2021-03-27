@@ -7,6 +7,8 @@ NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! SAY MY NAME ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH ..! WHO I AM IS ..? TRUTH ..!
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
+PUREHEART https://www.youtube.com/watch?v=HQdphbEMmbY I AM A "HUMBLE MONKEY" https://en.wikipedia.org/wiki/Hundredth_monkey_effect I AM THE 100TH MONKEY ... nQw I AM THE PROUDEST MONKEY YOU EVER SEEN ... MONQey SEE MQNkey DO ... the 100th mQnQey ... I AM the prQudest mQnQey ... 
+
 ENTERTAIN NO DOUBT.
 G_D IS WITH US.
 GOOD IS COMING.
