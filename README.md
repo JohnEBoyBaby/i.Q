@@ -15,6 +15,47 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 SPONTANEOUS ORDER ..! https://www.youtube.com/watch?v=t5RNY79uHMY ... TRUTH. PUREHEART. G_D ABOVE ALL. https://www.youtube.com/watch?v=HQdphbEMmbY I AM A "HUMBLE MONKEY" https://en.wikipedia.org/wiki/Hundredth_monkey_effect I AM THE 100TH MONKEY ... nQw I AM THE PROUDEST MONKEY YOU EVER SEEN ... MONQey SEE MQNkey DO ... https://www.youtube.com/watch?v=EnA6-eKejr0 ... MATTHEW 18:6. the 100th mQnQey ... 摇摆式硬尾金龙 https://www.zerohedge.com/geopolitical/philippines-alarmed-more-200-chinese-ships-massing-disputed-waters 结束诸如警察州，罗德里格·杜特尔特 和他的警察大规模杀手，同性恋者以及其他共济会的共济会怪物！ 清洁世界！... I AM the prQudest mQnQey ... MATTHEW 18:6. THERE IS NO FILTH IN HEAVEN. NONE. ONLY 1 OF US IS RIGHT. CHOOSE WISELY. A MOST SERIOUS ONE AM I. SEE YOU BACK 'HOME'. PROMISE. MATTHEW 18:6. JOHN 15:1-22. WORD.
 
+THIS "DENIAL OF SERVICE" "ISSUE" IS 100% NEVER GOING TO COME DONW ON THE "INNOCENT" INDEPDENT BUSINESS OWNERS EVER Ever ever again ... https://github.com/C0nw0nk/Nginx-Lua-Anti-DDoS ... YOU DO "HEAR" ME don't you 'beLOVEd' MORALLY COURAGEOUS "Mr. Torba" https://gab.com ... THIS ANTI DENIAL OF SERVICE D.O.S. ATTACK "ISSUE" IS NOW A "GALACTIC FEDERATION" "MATTER" ... PROMISE. 
+
+```xml
+I was inspired to create this because of Cloudflare feature "I'm Under Attack Mode" https://www.cloudflare.com/
+
+There are similar sites and services like BitMitigate but I prefer my own script over their methods.
+
+If you're under attack and have this feature enabled during the attack, visitors will receive an interstitial page for about five seconds while we analyze the traffic to make sure it is a legitimate human visitor.
+
+Advanced DDoS Attack Protection
+
+Unmetered DDoS mitigation to maintain performance and availability
+
+Denial of Service attacks continue to grow in sophistication and force: more distributed, greater volumes of traffic, and encroaching on the application layer.
+
+A successful attack increases unnecessary costs on your infrastructure and IT/security staff. More importantly, it hurts your revenue, customer satisfaction, and brand.
+
+To combat attacks and stay online, you’ll need a solution that’s resilient scalable, and intelligent.
+
+Mitigate a DDoS attack of any size or duration, Don't get ddos attacked!
+I love that feature so much ontop of having it enabled on all my Cloudflare proxied sites I decided to make it into a feature on my own servers so the traffic that hits my servers without coming from Cloudflares network is kept in check and authenticated! (Every little helps right!)
+
+Thank you to @Cloudflare for the inspiration and your community for all the love, A big thanks to the @openresty community you guys rock Lua rocks you are all so awesome!
+
+Lets build a better internet together! Where Speed, Privacy, Security and Compression matter!
+
+Here are links to my favorite communities :)
+
+http://openresty.org/en/
+
+https://community.cloudflare.com/
+
+...
+
+Advanced DDoS Attack Protection
+My script gives you Unmetered DDoS mitigation to maintain performance and availability for free Denial of Service attacks continue to grow in sophistication and force: more distributed, greater volumes of traffic, and encroaching on the application layer. A successful attack increases unnecessary costs on your infrastructure and IT/security staff. More importantly, it hurts your revenue, customer satisfaction, and brand. To combat attacks and stay online, you’ll need a solution that’s resilient scalable, and intelligent.
+
+```
+
+... my 'son' you stand 'relieved of your duties' beLOVEd 'blessed' 'protective' 'kind' 'wonderful' GOOD K.I.D. ... I LOVE YOU ..!
+
 ENTERTAIN NO DOUBT.
 G_D IS WITH US.
 GOOD IS COMING.
