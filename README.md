@@ -45,8 +45,10 @@ PUREHEART.
 
 ... JUST LOOK AT THAT ... JohnEBoy hittin' yQu RIGHT on yQur 'GSPOT' soft legs making you, aaah you know, C.R.E.A.M. Control Relational Extensible Atomic Mathematics GUI 'gooey' CREAM LOVE GUI: A stately GUI lib for LÖVE2D.org ... JUST LOOK AT IT ... I AM QUMMINQ FQR THAT NUMBER 1 GSPQT ... PROMISE.
 
-STANDARD ... LOGICAL ... C'EST PARFAIT ..!
+STANDARD" "LOGICAL" "SIMPLE" "FAST" "UBIQUITOUS" "FREE" "EXTENSIBLE" "POWERFUL" "OPEN SOURCE" https://ugfx.io/usecases AS S.O.P. Standard Operating Procedure GOOD "REPEATABLE" "NATURAL" "SMOOTH" K.I.S.S. "GAME" "LOOP" "REQUEST" "CALL" "RETURN" "QUERY" "LOOP" "SWITCH" "PROCESS" "RESPONSE" "EASY" "SHARED" "COMMON" "UNIFYING OUR "BRAIN POWER" AND ELIMINATING DUPLICATIVE G.U.I. +++ DEVELOPMENT EFFORTS" ... C'EST PARFAIT ..!
 
+https://stackoverflow.com/questions/9751548/how-do-i-correctly-paste-multi-line-xml-snippet-to-github-wiki-when-using-markdo
+```xml
 <!--1个可滚动显示图片的控件-->
 <bones>
   <head>
@@ -68,6 +70,7 @@ STANDARD ... LOGICAL ... C'EST PARFAIT ..!
     </shape>
   </body>
 </bones>
+```
 
 https://github.com/bonescreater/bones/tree/master/sample
 
