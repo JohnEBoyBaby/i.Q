@@ -7,7 +7,7 @@ NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! SAY MY NAME ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH ..! WHO I AM IS ..? TRUTH ..!
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
-SPONTANEOUS ORDER ..! https://www.youtube.com/watch?v=t5RNY79uHMY ... TRUTH. PUREHEART. G_D ABOVE ALL. https://www.youtube.com/watch?v=HQdphbEMmbY I AM A "HUMBLE MONKEY" https://en.wikipedia.org/wiki/Hundredth_monkey_effect I AM THE 100TH MONKEY ... nQw I AM THE PROUDEST MONKEY YOU EVER SEEN ... MONQey SEE MQNkey DO ... https://www.youtube.com/watch?v=EnA6-eKejr0 ... the 100th mQnQey ... I AM the prQudest mQnQey ... 
+SPONTANEOUS ORDER ..! https://www.youtube.com/watch?v=t5RNY79uHMY ... TRUTH. PUREHEART. G_D ABOVE ALL. https://www.youtube.com/watch?v=HQdphbEMmbY I AM A "HUMBLE MONKEY" https://en.wikipedia.org/wiki/Hundredth_monkey_effect I AM THE 100TH MONKEY ... nQw I AM THE PROUDEST MONKEY YOU EVER SEEN ... MONQey SEE MQNkey DO ... https://www.youtube.com/watch?v=EnA6-eKejr0 ... the 100th mQnQey ... 摇摆式硬尾金龙 https://www.zerohedge.com/geopolitical/philippines-alarmed-more-200-chinese-ships-massing-disputed-waters 结束诸如警察州，罗德里格·杜特尔特 和他的警察大规模杀手，同性恋者以及其他共济会的共济会怪物！ 清洁世界！... I AM the prQudest mQnQey ... 
 
 ENTERTAIN NO DOUBT.
 G_D IS WITH US.
