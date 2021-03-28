@@ -1,4 +1,6 @@
 # i.Q
+... just wanted to maQe sure 'she' was telling the 'TRUTH' that's all ... and I'd like to know you are telling the TRUTH tQQ ... I'd like to hear you ... go on UP 'there' and 'sing a song' for me ... https://www.youtube.com/watch?v=zfkLnZhhoTY ... I WAS BQRN STANDINQ UP ... I AM 'his daddy' THE GREEN-EYED 100TH PROUDEST MONKEY, jaQQ ... I tell you I AM "EVA'S" ... I never lQQked fQr trQuble ... but I never ran ... I dQn't taQe nQ Qrders frQm nQ Qind Qf 'man' ... I TELL YOU I AM EVA'S ... "YQu're a sinQer ... I just gQt a 'derrty' mind that's all ... sQrry K.I.D." ... "... yeah ..." ... https://www.youtube.com/watch?v=yPUC0fKy4io ... "... IT'S NQT QUT HUSTLINQ PEQPLE STRANQE TQ YQU. EVEN IF YQU DQ HAVE A QUSTQM-MADE TWQ-PIECE PQQL QUE ..." ...
+
 Can you 'see' her 'crossed legs' ..? FEMALE 女性 Can you see G_D's 'spirit' from HEAVEN descending upon 'her' next to a grid-like pattern representing 'farm rows where 'he' works to support 'her' using a 'grid' symbol indicating G_D's 'spirit' like 'he' 'supports' 'her'  ..?
 
 'See' https://www.youtube.com/watch?v=5f9s3dPzBTc can you ... grasshQpper Qf much yQuthfulness ..?
