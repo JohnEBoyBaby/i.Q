@@ -1,6 +1,8 @@
 # i.Q
 Can you 'see' her 'crossed legs' ..? FEMALE 女性 Can you see G_D's 'spirit' from HEAVEN descending upon 'her' next to a grid-like pattern representing 'farm rows where 'he' works to support 'her' using a 'grid' symbol indicating G_D's 'spirit' like 'he' 'supports' 'her'  ..?
 
+'See' https://www.youtube.com/watch?v=5f9s3dPzBTc can you ... grasshQpper Qf much yQuthfulness ..?
+
 Know ye' of 'her' PUREHEART in TRUTH being of the spirit of G_D, man ..? WOMAN 女士 Can you see G_D's spirit was sent to fill 'her' so that 'she' in A GOOD WAY HAS BEEN SENT TO 'US' DOWN FROM HEAVEN ..?
 
 I SEE YOU. 
