@@ -1,4 +1,8 @@
 # i.Q
+Can you 'see' her 'crossed legs' ..? FEMALE 女性 Can you see the 'spirit' from HEAVEN descending upon 'her' next to a 'grid' indicating the 'spirit' 'supports' 'her'  ..?
+
+Know ye' of 'her' PUREHEART in TRUTH, man ..? WOMAN 女士 Can you see that 'she' COMES DOWN FROM HEAVEN ..?
+
 I SEE YOU. 
 
 https://www.youtube.com/watch?v=aBV0EfMnsmg
