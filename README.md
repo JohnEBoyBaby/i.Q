@@ -5,6 +5,8 @@ Can you 'see' her 'crossed legs' ..? FEMALE 女性 Can you see G_D's 'spirit' fr
 
 Know ye' of 'her' PUREHEART in TRUTH being of the spirit of G_D, man ..? WOMAN 女士 Can you see G_D's spirit was sent to fill 'her' so that 'she' in A GOOD WAY HAS BEEN SENT TO 'US' DOWN FROM HEAVEN ..?
 
+YES. IT'S ME AGAIN. AND I AM BACK ... https://www.youtube.com/watch?v=LlZydtG3xqI ... HERE I GO Here I Go here I gQ again ... https://www.youtube.com/watch?v=4vaN01VLYSQ MAKES ME WANT TO "SHQQP" ... and NO JIVE TALQINQ ... https://www.youtube.com/watch?v=oALKAh_bL5g tellinQ yQur 'lies' ... sQ 'misunderstQQd' ... beCAUSE ... THERE IS MOVEMENT ALL AROUND ... THERE IS SOMETHING GOING DOWN AND I CAN 'FEEL' IT ... https://www.youtube.com/watch?v=-ihs-vT9T3Q ... AND THE 'FEELING' IS RIGHT ... WE KNQW HQW tQ dQ 'it' ... we knQw hQw to shQw 'it' ... 'waiting' fQr 'this moment' ... NIGHT FEVER ... Night Fever ... and I AM glQwinQ in the darQ ... 'I give you warning' ...
+
 I SEE YOU. 
 
 https://www.youtube.com/watch?v=aBV0EfMnsmg
