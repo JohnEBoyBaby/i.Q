@@ -1,7 +1,7 @@
 # i.Q
-Can you 'see' her 'crossed legs' ..? FEMALE 女性 Can you see the 'spirit' from HEAVEN descending upon 'her' next to a 'grid' indicating the 'spirit' 'supports' 'her'  ..?
+Can you 'see' her 'crossed legs' ..? FEMALE 女性 Can you see G_D's 'spirit' from HEAVEN descending upon 'her' next to a 'farm rows where 'he' works to support 'her' using a 'grid' symbol indicating G_D's 'spirit' like 'he' 'supports' 'her'  ..?
 
-Know ye' of 'her' PUREHEART in TRUTH, man ..? WOMAN 女士 Can you see that 'she' COMES DOWN FROM HEAVEN ..?
+Know ye' of 'her' PUREHEART in TRUTH being of the spirit of G_D, man ..? WOMAN 女士 Can you see 'her' spirit was sent to fill 'her' so that 'she' in A GOOD WAY HAS BEEN SENT TO 'US' DOWN FROM HEAVEN ..?
 
 I SEE YOU. 
 
