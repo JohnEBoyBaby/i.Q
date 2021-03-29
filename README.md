@@ -9,7 +9,7 @@ JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY P
 
 Bruce Lee
 
-... lQQse ends ... QAP Qap ... https://www.youtube.com/watch?v=MNgJBIx-hK8&t=164s ... taQe these chances ..!
+... sweet tQQth ... lQQse end ... QAP Qap ... https://www.youtube.com/watch?v=MNgJBIx-hK8&t=164s ... taQe these chances ..!
 
 I SEE YOU. 
 
