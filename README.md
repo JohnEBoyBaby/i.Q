@@ -1,4 +1,24 @@
 # i.Q
+I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! SAY MY NAME ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH ..! WHO I AM IS ..? TRUTH ..!
+
+Cassius Marcellus Clay, Muhammad Ali, TRUTH
+
+JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... ROOM ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ... https://www.youtube.com/watch?v=HXdw4ZTQLVo ... and Wonders ... https://www.youtube.com/watch?v=ffvULj021P0 ... and wonders of ... https://www.youtube.com/watch?v=niOb-ft9N64 ... LOVE ... EMMANUEL https://www.youtube.com/watch?v=-k8EQ1aPzcw and please dQ Qive sQme GOOD LOVE tQ Derek Banas ... https://www.youtube.com/watch?v=iMacxZQMPXs ... A GOOD K.I.D. and very GOOD at Keeping It Simple Silly K.I.S.S.ing ..! THANK YOU 'kind' one ... you cover so very many languages most multi-lingual https://www.youtube.com/watch?v=tID-saAFK28 'blessed' 'intelleQtual' beLOVEd 'giving' 'hardworking' 'efficient' 'playful' yet to the point CAN DO most learned and time well spent with succinct, knowledgeable, experienced, back to basics, confident, well-spoken gentle baby man ... GOOD BANANAS BANAS ..!
+
+... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
+
+Bruce Lee
+
+I SEE YOU. 
+
+https://www.youtube.com/watch?v=aBV0EfMnsmg
+
+SPONTANEOUS ORDER ..! https://www.youtube.com/watch?v=t5RNY79uHMY ... TRUTH. PUREHEART. G_D ABOVE ALL. https://www.youtube.com/watch?v=HQdphbEMmbY I AM A "HUMBLE MONKEY" https://en.wikipedia.org/wiki/Hundredth_monkey_effect I AM THE 100TH MONKEY ... nQw I AM THE PROUDEST MONKEY YOU EVER SEEN ... MONQey SEE MQNkey DO ... https://www.youtube.com/watch?v=EnA6-eKejr0 ... MATTHEW 18:6. the 100th mQnQey ... 摇摆式硬尾金龙 https://www.zerohedge.com/geopolitical/philippines-alarmed-more-200-chinese-ships-massing-disputed-waters 结束诸如警察州，罗德里格·杜特尔特 和他的警察大规模杀手，同性恋者以及其他共济会的共济会怪物！ 清洁世界！... I AM the prQudest mQnQey ... MATTHEW 18:6. THERE IS NO FILTH IN HEAVEN. NONE. ONLY 1 OF US IS RIGHT. CHOOSE WISELY. A MOST SERIOUS ONE AM I. SEE YOU BACK 'HOME'. PROMISE. MATTHEW 18:6. JOHN 15:1-22. WORD.
+
+... you ready to dance soft legs ... come to me ... come to TRUTH ... come to 'tarzan' ... come to JohnEBoy, baby ... come to THE WHITE MONKEY ... https://www.youtube.com/watch?v=n_k4r0xrwhU ... come to THE PRQUDEST 'MQNQEY' YOU EVER SEEN ... https://www.youtube.com/watch?v=sdfXFZeYGks ... 2-step with me my love ... my hand ... take my hand my love ... dance with me ... let me hold you ... look DEEPLY PENETRATINGLY LONGINGLY INTO YOUR BEAUTIFUL EYES ... oh la la ... you are some 'kind' kind of special ... I SEE YOU ...
+
+... hmmm ... https://www.youtube.com/watch?v=8G3LL2vDcuA ... in Qase I disappear says sQft leQs PUREHEART Gina Maria in a 1 minute 17 secQnd video ... then oh my GOODness I CAN "FEEL" "NAUGHTY BEAVER" IN TRUTH WITH MOST PUREHEART ..! Can you 'hear' 'see' 'feel' "Naughty Beaver" in TRUTH ..?  https://www.youtube.com/watch?v=f_NOhAdaNm8 ... DQ yQu believe in cQincidence ..? https://www.youtube.com/watch?v=ZGuQWpJZhh8 TRUMP TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU IF G_D IS FOR "ME" WHO? WHO CAN BE AGAINST ME? NO ONE not here not in HEAVEN no one if G_D IS WITH ME you know what I AM getting at, RIGHT ..? YOU HAVE AN OBLIGATION TO G_D TO SPEAK BOLDLY, MORALLY COURAGEOUSLY, LOUD, SOUNDING THE ALARM "WATCHMAN" ... SILENCE IS COMPLICITNESS ..! THERE IS NO FILTH IN HEAVEN! NONE. https://www.biblehub.com/matthew/10-37.htm NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS. PRINCIPLES over personalities. Go with G_D. Q ... G_D WINS. Q ...
+
 ... just wanted to maQe sure 'she' was telling the 'TRUTH' that's all ... and I'd like to know you are telling the TRUTH tQQ ... I'd like to hear you ... go on UP 'there' and 'sing a song' for me ... https://www.youtube.com/watch?v=zfkLnZhhoTY ... I WAS BQRN STANDINQ UP ... I AM 'his daddy' THE GREEN-EYED 100TH PROUDEST MONKEY, jaQQ ... I tell you I AM "EVA'S" ... I never lQQked fQr trQuble ... but I never ran ... I dQn't taQe nQ Qrders frQm nQ Qind Qf 'man' ... I TELL YOU I AM EVA'S ... "YQu're a sinQer ... I just gQt a 'derrty' mind that's all ... sQrry K.I.D." ... "... yeah ..." ... https://www.youtube.com/watch?v=yPUC0fKy4io ... "... IT'S NQT QUT HUSTLINQ PEQPLE STRANQE TQ YQU. EVEN IF YQU DQ HAVE A QUSTQM-MADE TWQ-PIECE PQQL QUE ..." ...
 
 Can you 'see' her 'crossed legs' ..? FEMALE 女性 Can you see G_D's 'spirit' from HEAVEN descending upon 'her' next to a grid-like pattern representing 'farm rows where 'he' works to support 'her' using a 'grid' symbol indicating G_D's 'spirit' like 'he' 'supports' 'her'  ..?
@@ -9,24 +29,17 @@ Know ye' of 'her' PUREHEART in TRUTH being of the spirit of G_D, man ..? WOMAN �
 
 YES. IT'S ME AGAIN. AND I AM BACK ... https://www.youtube.com/watch?v=LlZydtG3xqI ... HERE I GO Here I Go here I gQ again ... https://www.youtube.com/watch?v=4vaN01VLYSQ MAKES ME WANT TO "SHQQP" ... and NO JIVE TALQINQ ... https://www.youtube.com/watch?v=oALKAh_bL5g tellinQ yQur 'lies' ... sQ 'misunderstQQd' ... beCAUSE ... THERE IS MOVEMENT ALL AROUND ... THERE IS SOMETHING GOING DOWN AND I CAN 'FEEL' IT ... https://www.youtube.com/watch?v=-ihs-vT9T3Q ... AND THE 'FEELING' IS RIGHT ... WE KNQW HQW tQ dQ 'it' ... we knQw hQw to shQw 'it' ... 'waiting' fQr 'this moment' ... NIGHT FEVER ... Night Fever ... and I AM glQwinQ in the darQ ... 'I give you warning' ...
 
-I SEE YOU. 
+I SEE "YOU" of the "SPIRIT OF TRUTH" ...
 
-https://www.youtube.com/watch?v=aBV0EfMnsmg
+https://www.bitchute.com/video/j6UdDu43yDie/ 
 
-... and 'YOU', ARE NOT OF THE SPIRIT OF TRUTH ..! https://www.zerohedge.com/covid-19/right-now-im-scared-cdc-director-chokes-back-tears-she-fearmongers-impending-doom SO 'YOU' https://www.rt.com/usa/519437-bodycam-police-mock-child-outrage/ ARE GOING IN THE PIT  ..! https://www.zerohedge.com/covid-19/watch-fauci-says-kids-need-wear-face-masks-play-together ... yeah 'YOU' https://www.sott.net/article/389923-Systemic-coverup-Network-of-police-pedophiles-in-Louisville-KY-allowed-to-sexually-abuse-children-for-years MONSTER I AM TALKING TO 'YOU' FILTHY ..! see 'YOU' back 'home' ... PROMISE.
-
-EMMANUEL https://www.youtube.com/watch?v=-k8EQ1aPzcw JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... ROOM ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ... https://www.youtube.com/watch?v=HXdw4ZTQLVo ... and Wonders ... https://www.youtube.com/watch?v=ffvULj021P0 ... and wonders of ... https://www.youtube.com/watch?v=niOb-ft9N64 ... LOVE ... and give some GOOD LOVE to Derek Banas ... https://www.youtube.com/watch?v=iMacxZQMPXs ... A GOOD K.I.D. and very GOOD at Keeping It Simple Silly K.I.S.S.ing ..! THANK YOU 'kind' one ... you cover so very many languages most multi-lingual https://www.youtube.com/watch?v=tID-saAFK28 'blessed' 'intelleQtual' beLOVEd 'giving' 'hardworking' 'efficient' 'playful' yet to the point CAN DO most learned and time well spent with succinct, knowledgeable, experienced, back to basics, confident, well-spoken gentle baby man ... GOOD BANANAS BANAS ..!
+... and "I SEE YOU tQQ", 'YOU' FILTHY MONSTER, "YOU", WHO ARE NOT OF THE SPIRIT OF TRUTH AND I ASSURE YOU "NO MERCY IS COMING FOR ANY SILENT, COMPLICIT, fake 'watchmen' fake TRUTHtians talking heads, weaponized, sickening in and out of uniform, low iQ robot militant uniformed 'diseased-minded' deviants OF 1/2 TRUTH. NONE." ..! https://www.zerohedge.com/covid-19/right-now-im-scared-cdc-director-chokes-back-tears-she-fearmongers-impending-doom SO 'YOU' https://www.rt.com/usa/519437-bodycam-police-mock-child-outrage/ ARE GOING IN THE PIT  ..! https://www.zerohedge.com/covid-19/watch-fauci-says-kids-need-wear-face-masks-play-together ... yeah 'YOU' https://www.sott.net/article/389923-Systemic-coverup-Network-of-police-pedophiles-in-Louisville-KY-allowed-to-sexually-abuse-children-for-years MONSTER I AM TALKING TO 'YOU' FILTHY ..! see 'YOU' back 'home' ... PROMISE.
 
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
 SHQCKINQ ..! https://www.youtube.com/watch?v=8vTDpVoLHeI DARK JOURNALIST, DANIEL and the beautiful OLIVA, PUTTING DOWN THE 'low down' TRUTH REAL TRUTHtrian WATCHMAN IN TRUTH most PUREHEART WATCHWOMAN TELLING THE TRUTH ABOUT RFK JR AND CATHERINE AUSTIN FITTS ..! https://www.openssh.com/ OpenSSH is incorporated into many commercial products, BUT VERY "FEW" OF "THOSE COMPANIES" (WHO INCORPORATED OPENSSH OPEN SOURCE FREE SOFTWARE) ASSIST OPENSSH IN FUNDING. 
 
 MATTHEW 18:6. 100TH MONKEY ... TRUTH ... MONQey SEE MQNkey DO ... PUREHEART ... https://www.youtube.com/watch?v=EnA6-eKejr0 THE PROUDEST MONKEY YOU EVER SEEN ..! THEY ALL KNEW ALL THESE YEARS! SILENCE IS COMPLICITNESS! NO MERCY! NONE! THERE IS NO FILTH IN HEAVEN. NONE. MATTHEW 18:6. JOHN 15:1-22. IF YOU DO NOT HOLD THEM ACCOUNTABLE, TRUST, I AM GOING TO HOLD YOU ACCOUNTABLE. NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS. YOU BACK THE BLUE THEN YOU ARE GOING IN THE PIT. MATTHEW 18:6 THEM ALL WITH ALL THEIR 'SUPPORTERS'. IF YOU LEAVE EVEN ONE PIECE OF FILTHY SOUL, I WILL VOLUNTEER FOR ETERNITIES TO COME TO THRASH YOUR FILTHY SOUL IN THE PIT. SEE YOU BACK 'HOME'. PROMISE.
-
-I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! SAY MY NAME ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH ..! WHO I AM IS ..? TRUTH ..!
-Cassius Marcellus Clay, Muhammad Ali, TRUTH
-
-SPONTANEOUS ORDER ..! https://www.youtube.com/watch?v=t5RNY79uHMY ... TRUTH. PUREHEART. G_D ABOVE ALL. https://www.youtube.com/watch?v=HQdphbEMmbY I AM A "HUMBLE MONKEY" https://en.wikipedia.org/wiki/Hundredth_monkey_effect I AM THE 100TH MONKEY ... nQw I AM THE PROUDEST MONKEY YOU EVER SEEN ... MONQey SEE MQNkey DO ... https://www.youtube.com/watch?v=EnA6-eKejr0 ... MATTHEW 18:6. the 100th mQnQey ... 摇摆式硬尾金龙 https://www.zerohedge.com/geopolitical/philippines-alarmed-more-200-chinese-ships-massing-disputed-waters 结束诸如警察州，罗德里格·杜特尔特 和他的警察大规模杀手，同性恋者以及其他共济会的共济会怪物！ 清洁世界！... I AM the prQudest mQnQey ... MATTHEW 18:6. THERE IS NO FILTH IN HEAVEN. NONE. ONLY 1 OF US IS RIGHT. CHOOSE WISELY. A MOST SERIOUS ONE AM I. SEE YOU BACK 'HOME'. PROMISE. MATTHEW 18:6. JOHN 15:1-22. WORD.
 
 THIS "DENIAL OF SERVICE" "ISSUE" IS 100% NEVER GOING TO COME DOWN ON THE "INNOCENT" INDEPENDENT BUSINESS OWNERS EVER Ever ever again ... https://github.com/C0nw0nk/Nginx-Lua-Anti-DDoS ... YOU DO "HEAR" ME don't you 'beLOVEd' MORALLY COURAGEOUS "Mr. Torba" https://gab.com ... THIS ANTI DENIAL OF SERVICE D.O.S. ATTACK "ISSUE" IS NOW AN "ANGELIC COUNCIL" A "GALACTIC FEDERATION" "MATTER" OF "PRINCIPLES" OF "VALUES" OF TRUTH OF PUREHEART OF G_D ... Biblical. Q ... PROMISE. 
 
@@ -77,14 +90,6 @@ We are GOOD.
 We are coming.
 GOOD IS COMING and G_D IS WITH US.
 PROMISE.
-
-... you ready to dance soft legs ... come to me ... come to TRUTH ... come to 'tarzan' ... come to JohnEBoy, baby ... come to THE WHITE MONKEY ... https://www.youtube.com/watch?v=n_k4r0xrwhU ... come to THE PRQUDEST 'MQNQEY' YOU EVER SEEN ... https://www.youtube.com/watch?v=sdfXFZeYGks ... 2-step with me my love ... my hand ... take my hand my love ... dance with me ... let me hold you ... look DEEPLY PENETRATINGLY LONGINGLY INTO YOUR BEAUTIFUL EYES ... oh la la ... you are some 'kind' kind of special ... I SEE YOU ...
-
-... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
-
-Bruce Lee
-
-... hmmm ... https://www.youtube.com/watch?v=8G3LL2vDcuA ... in Qase I disappear says sQft leQs PUREHEART Gina Maria in a 1 minute 17 secQnd video ... then oh my GOODness I CAN "FEEL" "NAUGHTY BEAVER" IN TRUTH WITH MOST PUREHEART ..! Can you 'hear' 'see' 'feel' "Naughty Beaver" in TRUTH ..?  https://www.youtube.com/watch?v=f_NOhAdaNm8 ... DQ yQu believe in cQincidence ..? https://www.youtube.com/watch?v=ZGuQWpJZhh8 TRUMP TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU IF G_D IS FOR "ME" WHO? WHO CAN BE AGAINST ME? NO ONE not here not in HEAVEN no one if G_D IS WITH ME you know what I AM getting at, RIGHT ..? YOU HAVE AN OBLIGATION TO G_D TO SPEAK BOLDLY, MORALLY COURAGEOUSLY, LOUD, SOUNDING THE ALARM "WATCHMAN" ... SILENCE IS COMPLICITNESS ..! THERE IS NO FILTH IN HEAVEN! NONE. https://www.biblehub.com/matthew/10-37.htm NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS. PRINCIPLES over personalities. Go with G_D. Q ... G_D WINS. Q ...
 
 Verily I tell you unless you change and become like a little child, you will not enter the Kingdom of HEAVEN.
 Matthew 18:3
