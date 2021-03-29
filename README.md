@@ -17,6 +17,19 @@ https://www.youtube.com/watch?v=aBV0EfMnsmg
 
 SPONTANEOUS ORDER ..! https://www.youtube.com/watch?v=t5RNY79uHMY ... TRUTH. PUREHEART. G_D ABOVE ALL. https://www.youtube.com/watch?v=HQdphbEMmbY I AM A "HUMBLE MONKEY" https://en.wikipedia.org/wiki/Hundredth_monkey_effect I AM THE 100TH MONKEY ... nQw I AM THE PROUDEST MONKEY YOU EVER SEEN ... MONQey SEE MQNkey DO ... https://www.youtube.com/watch?v=EnA6-eKejr0 ... MATTHEW 18:6. the 100th mQnQey ... 摇摆式硬尾金龙 https://www.zerohedge.com/geopolitical/philippines-alarmed-more-200-chinese-ships-massing-disputed-waters 结束诸如警察州，罗德里格·杜特尔特 和他的警察大规模杀手，同性恋者以及其他共济会的共济会怪物！ 清洁世界！... I AM the prQudest mQnQey ... MATTHEW 18:6. THERE IS NO FILTH IN HEAVEN. NONE. ONLY 1 OF US IS RIGHT. ... beCAUSE ... "I GOT IT ALL ON IT" https://www.youtube.com/watch?v=y3OAWuSv4qw ... WORD. CHOOSE WISELY. A MOST SERIOUS ONE AM I. SEE YOU BACK 'HOME'. PROMISE. MATTHEW 18:6. JOHN 15:1-22. WORD.
 
+TRUTH is the WAY to LIFE with G_D.
+
+NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
+
+TRUTH.
+
+Verily I tell you unless you change and become like a little child, you will not enter the Kingdom of HEAVEN.
+Matthew 18:3
+
+... I AM 15 for a moment ... https://www.youtube.com/watch?v=tR-qQcNT_fY ... 15 there's still time for you ... there is never a wish better than this ... aaah my friends ... they keep trying to tell me ... all you want to do is USE ME ... and my answer ... https://www.youtube.com/watch?v=g3hBYTkI-sE ... I want to spread the news ... that if it feels this GOOD getting 'used' ... you just keep on 'using me' ... until you use me UP ... sit down in the room and talk to me ... I ought not let you just walk on me ... if you only knew ... you'd wish that you were in my shoes ... you just keep on using me ... 'til you use me UP ..! ... WAKE UP Maggie ... I think I got something to say to you ... https://www.youtube.com/watch?v=EOl7dh7a-6g ... Qh Maggie I couldn't have tried anymore ...
+
+PUREHEART.
+
 ... you ready to dance soft legs ... come to me ... come to TRUTH ... come to 'tarzan' ... come to JohnEBoy, baby ... come to THE WHITE MONKEY ... https://www.youtube.com/watch?v=n_k4r0xrwhU ... come to THE PRQUDEST 'MQNQEY' YOU EVER SEEN ... https://www.youtube.com/watch?v=sdfXFZeYGks ... 2-step with me my love ... my hand ... take my hand my love ... dance with me ... let me hold you ... look DEEPLY PENETRATINGLY LONGINGLY INTO YOUR BEAUTIFUL EYES ... oh la la ... you are some 'kind' kind of special ... I SEE YOU ...
 
 ... hmmm ... https://www.youtube.com/watch?v=8G3LL2vDcuA ... in Qase I disappear says sQft leQs PUREHEART Gina Maria in a 1 minute 17 secQnd video ... then oh my GOODness I CAN "FEEL" "NAUGHTY BEAVER" IN TRUTH WITH MOST PUREHEART ..! Can you 'hear' 'see' 'feel' "Naughty Beaver" in TRUTH ..?  https://www.youtube.com/watch?v=f_NOhAdaNm8 ... DQ yQu believe in cQincidence ..? https://www.youtube.com/watch?v=ZGuQWpJZhh8 TRUMP TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU IF G_D IS FOR "ME" WHO? WHO CAN BE AGAINST ME? NO ONE not here not in HEAVEN no one if G_D IS WITH ME you know what I AM getting at, RIGHT ..? YOU HAVE AN OBLIGATION TO G_D TO SPEAK BOLDLY, MORALLY COURAGEOUSLY, LOUD, SOUNDING THE ALARM "WATCHMAN" ... SILENCE IS COMPLICITNESS ..! THERE IS NO FILTH IN HEAVEN! NONE. https://www.biblehub.com/matthew/10-37.htm NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS. PRINCIPLES over personalities. Go with G_D. Q ... G_D WINS. Q ...
@@ -42,68 +55,6 @@ NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 SHQCKINQ ..! https://www.youtube.com/watch?v=8vTDpVoLHeI DARK JOURNALIST, DANIEL and the beautiful OLIVA, PUTTING DOWN THE 'low down' TRUTH REAL TRUTHtrian WATCHMAN IN TRUTH most PUREHEART WATCHWOMAN TELLING THE TRUTH ABOUT RFK JR AND CATHERINE AUSTIN FITTS ..! https://www.openssh.com/ OpenSSH is incorporated into many commercial products, BUT VERY "FEW" OF "THOSE COMPANIES" (WHO INCORPORATED OPENSSH OPEN SOURCE FREE SOFTWARE) ASSIST OPENSSH IN FUNDING. 
 
 MATTHEW 18:6. 100TH MONKEY ... TRUTH ... MONQey SEE MQNkey DO ... PUREHEART ... https://www.youtube.com/watch?v=EnA6-eKejr0 THE PROUDEST MONKEY YOU EVER SEEN ..! THEY ALL KNEW ALL THESE YEARS! SILENCE IS COMPLICITNESS! NO MERCY! NONE! THERE IS NO FILTH IN HEAVEN. NONE. MATTHEW 18:6. JOHN 15:1-22. IF YOU DO NOT HOLD THEM ACCOUNTABLE, TRUST, I AM GOING TO HOLD YOU ACCOUNTABLE. NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS. YOU BACK THE BLUE THEN YOU ARE GOING IN THE PIT. MATTHEW 18:6 THEM ALL WITH ALL THEIR 'SUPPORTERS'. IF YOU LEAVE EVEN ONE PIECE OF FILTHY SOUL, I WILL VOLUNTEER FOR ETERNITIES TO COME TO THRASH YOUR FILTHY SOUL IN THE PIT. SEE YOU BACK 'HOME'. PROMISE.
-
-THIS "DENIAL OF SERVICE" "ISSUE" IS 100% NEVER GOING TO COME DOWN ON THE "INNOCENT" INDEPENDENT BUSINESS OWNERS EVER Ever ever again ... https://github.com/C0nw0nk/Nginx-Lua-Anti-DDoS ... YOU DO "HEAR" ME don't you 'beLOVEd' MORALLY COURAGEOUS "Mr. Torba" https://gab.com ... THIS ANTI DENIAL OF SERVICE D.O.S. ATTACK "ISSUE" IS NOW AN "ANGELIC COUNCIL" A "GALACTIC FEDERATION" "MATTER" OF "PRINCIPLES" OF "VALUES" OF TRUTH OF PUREHEART OF G_D ... Biblical. Q ... PROMISE. 
-
-```xml
-I was inspired to create this because of Cloudflare feature "I'm Under Attack Mode" https://www.cloudflare.com/
-
-There are similar sites and services like BitMitigate but I prefer my own script over their methods.
-
-If you're under attack and have this feature enabled during the attack, visitors will receive an interstitial page for about five seconds while we analyze the traffic to make sure it is a legitimate human visitor.
-
-Advanced DDoS Attack Protection
-
-Unmetered DDoS mitigation to maintain performance and availability
-
-Denial of Service attacks continue to grow in sophistication and force: more distributed, greater volumes of traffic, and encroaching on the application layer.
-
-A successful attack increases unnecessary costs on your infrastructure and IT/security staff. More importantly, it hurts your revenue, customer satisfaction, and brand.
-
-To combat attacks and stay online, you’ll need a solution that’s resilient scalable, and intelligent.
-
-Mitigate a DDoS attack of any size or duration, Don't get ddos attacked!
-I love that feature so much ontop of having it enabled on all my Cloudflare proxied sites I decided to make it into a feature on my own servers so the traffic that hits my servers without coming from Cloudflares network is kept in check and authenticated! (Every little helps right!)
-
-Thank you to @Cloudflare for the inspiration and your community for all the love, A big thanks to the @openresty community you guys rock Lua rocks you are all so awesome!
-
-Lets build a better internet together! Where Speed, Privacy, Security and Compression matter!
-
-Here are links to my favorite communities :)
-
-http://openresty.org/en/
-
-https://community.cloudflare.com/
-
-...
-
-Advanced DDoS Attack Protection
-My script gives you Unmetered DDoS mitigation to maintain performance and availability for free Denial of Service attacks continue to grow in sophistication and force: more distributed, greater volumes of traffic, and encroaching on the application layer. A successful attack increases unnecessary costs on your infrastructure and IT/security staff. More importantly, it hurts your revenue, customer satisfaction, and brand. To combat attacks and stay online, you’ll need a solution that’s resilient scalable, and intelligent.
-
-```
-
-... my 'son' you stand 'relieved of your duties' beLOVEd 'blessed' 'protective' 'kind' 'wonderful' GOOD K.I.D. ... I LOVE YOU ..!
-
-ENTERTAIN NO DOUBT.
-G_D IS WITH US.
-GOOD IS COMING.
-We are many.
-We are GOOD. 
-We are coming.
-GOOD IS COMING and G_D IS WITH US.
-PROMISE.
-
-Verily I tell you unless you change and become like a little child, you will not enter the Kingdom of HEAVEN.
-Matthew 18:3
-
-... I AM 15 for a moment ... https://www.youtube.com/watch?v=tR-qQcNT_fY ... 15 there's still time for you ... there is never a wish better than this ... aaah my friends ... they keep trying to tell me ... all you want to do is USE ME ... and my answer ... https://www.youtube.com/watch?v=g3hBYTkI-sE ... I want to spread the news ... that if it feels this GOOD getting 'used' ... you just keep on 'using me' ... until you use me UP ... sit down in the room and talk to me ... I ought not let you just walk on me ... if you only knew ... you'd wish that you were in my shoes ... you just keep on using me ... 'til you use me UP ..! ... WAKE UP Maggie ... I think I got something to say to you ... https://www.youtube.com/watch?v=EOl7dh7a-6g ... Qh Maggie I couldn't have tried anymore ...
-
-TRUTH is the WAY to LIFE with G_D.
-
-NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
-
-TRUTH.
-PUREHEART.
 
 ... JUST LOOK AT THAT ... JohnEBoy hittin' yQu RIGHT on yQur 'GSPOT' soft legs making you, aaah you know, C.R.E.A.M. Control Relational Extensible Atomic Mathematics GUI 'gooey' CREAM LOVE GUI: A stately GUI lib for LÖVE2D.org ... JUST LOOK AT IT ... I AM QUMMINQ FQR THAT NUMBER 1 GSPQT ... PROMISE.
 
@@ -162,9 +113,31 @@ https://FENGARI.io/
 
 https://OPENRESTy.org/en/
 
-https://LUA.org
+https://leafo.net/lapis/ 
+
+http://notebook.kulchenko.com/zerobrane/lapis-debugging-with-zerobrane-studio
+
+https://studio.zerobrane.com/
+
+https://github.com/pkulchenko/ZeroBraneStudio 
 
 https://CodeBlocks.org
+
+https://LUA.org
+
+https://gcC.gnu.org/
+
+https://NASM.us/
+
+https://github.com/meh/ORGASM <== just lQQk at it ... just looQ at that ... LOVE ==> GSPOT ==> ORGASM ... now that's the 'CREAM LOVER' 'liberty-loving' 'intellectual' 'playful' 'wonderful' 'high iQ' 'funny' 'smiling' 'shaking-my-head' 'kind' kind I like ..!
+
+https://fresh.FlatASseMbler.net/
+
+https://SQLite.org/
+
+https://github.com/RQLite/RQLite
+
+https://www.postgreSQL.org/download/
 
 https://MorgueFile.com
 
@@ -182,6 +155,56 @@ TRUTH.
 https://www.youtube.com/watch?v=f_NOhAdaNm8 ... DQ yQu believe in cQincidence ..? https://www.youtube.com/watch?v=ZGuQWpJZhh8  TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU ... ATLANTIS ... LEMURIA ... LEMURIAN WOMEN "EVAS" ... MOST PUREHEART MOST BEAUTIFUL MOST COURAGEOUS PLEIADIAN TAYGETAN WOMEN "EVAS" HELPING OUR WOMEN "EVAS" WHO TOOK THE "KNOWLEDGE" THE "HELP" TO THE MEN "ADAMS" HENCE THE "UPSIDE DOWN STORY IN THE BIBLE OF THE KNOWLEDGE OF THE FORBIDDEN TREE" and 'snake' when the reality is one snake might bite and the other snake does not so before you judge the book by the cover think deeper for beauty is not skin deep 'kind' one ... the more you know ... ENKI HELPING OUR WOMEN AND MEN TOO ..? ALL ANSWER TO G_D ... TRUST ... "NO 'one' GETS OUT OF THIS." ... WORD.
 
 ... aaah breathe deep ... SO I GET DOWN IN ... https://www.youtube.com/watch?v=pSPECzpKn4U ... I AM not satisified ... my hunger keep on GROWING ... got it get it somewhere ... I mean ... maybe ... and I mean more ... gonna take more from you LETTER by LETTER ... I AM TOO MUCH ..!
+
+THIS "DENIAL OF SERVICE" "ISSUE" IS 100% NEVER GOING TO COME DOWN ON THE "INNOCENT" INDEPENDENT BUSINESS OWNERS EVER Ever ever again ... https://github.com/C0nw0nk/Nginx-Lua-Anti-DDoS ... YOU DO "HEAR" ME don't you 'beLOVEd' MORALLY COURAGEOUS "Mr. Torba" https://gab.com ... THIS ANTI DENIAL OF SERVICE D.O.S. ATTACK "ISSUE" IS NOW AN "ANGELIC COUNCIL" A "GALACTIC FEDERATION" "MATTER" OF "PRINCIPLES" OF "VALUES" OF TRUTH OF PUREHEART OF G_D ... Biblical. Q ... PROMISE. 
+
+```xml
+I was inspired to create this because of Cloudflare feature "I'm Under Attack Mode" https://www.cloudflare.com/
+
+There are similar sites and services like BitMitigate but I prefer my own script over their methods.
+
+If you're under attack and have this feature enabled during the attack, visitors will receive an interstitial page for about five seconds while we analyze the traffic to make sure it is a legitimate human visitor.
+
+Advanced DDoS Attack Protection
+
+Unmetered DDoS mitigation to maintain performance and availability
+
+Denial of Service attacks continue to grow in sophistication and force: more distributed, greater volumes of traffic, and encroaching on the application layer.
+
+A successful attack increases unnecessary costs on your infrastructure and IT/security staff. More importantly, it hurts your revenue, customer satisfaction, and brand.
+
+To combat attacks and stay online, you’ll need a solution that’s resilient scalable, and intelligent.
+
+Mitigate a DDoS attack of any size or duration, Don't get ddos attacked!
+I love that feature so much ontop of having it enabled on all my Cloudflare proxied sites I decided to make it into a feature on my own servers so the traffic that hits my servers without coming from Cloudflares network is kept in check and authenticated! (Every little helps right!)
+
+Thank you to @Cloudflare for the inspiration and your community for all the love, A big thanks to the @openresty community you guys rock Lua rocks you are all so awesome!
+
+Lets build a better internet together! Where Speed, Privacy, Security and Compression matter!
+
+Here are links to my favorite communities :)
+
+http://openresty.org/en/
+
+https://community.cloudflare.com/
+
+...
+
+Advanced DDoS Attack Protection
+My script gives you Unmetered DDoS mitigation to maintain performance and availability for free Denial of Service attacks continue to grow in sophistication and force: more distributed, greater volumes of traffic, and encroaching on the application layer. A successful attack increases unnecessary costs on your infrastructure and IT/security staff. More importantly, it hurts your revenue, customer satisfaction, and brand. To combat attacks and stay online, you’ll need a solution that’s resilient scalable, and intelligent.
+
+```
+
+... my 'son' you stand 'relieved of your duties' beLOVEd 'blessed' 'protective' 'kind' 'wonderful' GOOD K.I.D. ... I LOVE YOU ..!
+
+ENTERTAIN NO DOUBT.
+G_D IS WITH US.
+GOOD IS COMING.
+We are many.
+We are GOOD. 
+We are coming.
+GOOD IS COMING and G_D IS WITH US.
+PROMISE.
 
 TRUTH is the WAY to LIFE with G_D. 100% NOLYN. 
 15 Woe to those who dig deep to hide their plans from the LORD. In darkness they do their works and say, “Who sees us, and who will know?” 16 You have turned things upside down, as if the potter were regarded as clay. Shall what is formed say to him who formed it, “He did not make me”? Can the pottery say of the potter, “He has no understanding”?
