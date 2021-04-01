@@ -81,7 +81,7 @@ SHQCKINQ ..! https://www.youtube.com/watch?v=8vTDpVoLHeI DARK JOURNALIST, DANIEL
 
 MATTHEW 18:6. 100TH MONKEY ... TRUTH ... MONQey SEE MQNkey DO ... PUREHEART ... https://www.youtube.com/watch?v=EnA6-eKejr0 THE PROUDEST MONKEY YOU EVER SEEN ..! THEY ALL KNEW ALL THESE YEARS! SILENCE IS COMPLICITNESS! NO MERCY! NONE! THERE IS NO FILTH IN HEAVEN. NONE. MATTHEW 18:6. JOHN 15:1-22. IF YOU DO NOT HOLD THEM ACCOUNTABLE, TRUST, I AM GOING TO HOLD YOU ACCOUNTABLE. NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS. YOU BACK THE BLUE THEN YOU ARE GOING IN THE PIT. MATTHEW 18:6 THEM ALL WITH ALL THEIR 'SUPPORTERS'. IF YOU LEAVE EVEN ONE PIECE OF FILTHY SOUL, I WILL VOLUNTEER FOR ETERNITIES TO COME TO THRASH YOUR FILTHY SOUL IN THE PIT. SEE YOU BACK 'HOME'. PROMISE.
 
-... JUST LOOK AT THAT ... JohnEBoy hittin' yQu RIGHT on yQur 'GSPOT' soft legs making you, aaah you know, C.R.E.A.M. Control Relational Extensible Atomic Mathematics GUI 'gooey' CREAM LOVE GUI: A stately GUI lib for LÖVE2D.org ... JUST LOOK AT IT ... I AM QUMMINQ FQR THAT NUMBER 1 GSPQT ... PROMISE.
+... JUST LOOK AT THAT ... JohnEBoy hittin' yQu RIGHT on yQur 'GSPOT' https://github.com/trubblegum/Gspot soft legs making you, aaah you know, C.R.E.A.M. Control Relational Extensible Atomic Mathematics GUI 'gooey' CREAM LOVE GUI: A stately GUI lib for LÖVE2D.org ... JUST LOOK AT IT ... I AM QUMMINQ FQR THAT NUMBER 1 GSPQT ... PROMISE.
 
 STANDARD" "LOGICAL" "SIMPLE" "FAST" "UBIQUITOUS" "FREE" "EXTENSIBLE" "POWERFUL" like https://ugfx.io/usecases but "OPEN SOURCE" providing 'us' 'all' a much needed FAST, UNDERSTANDABLE, REUSABLE Graphical User Interface Development S.O.P. Standard Operating Procedure GOOD "REPEATABLE" "NATURAL" "SMOOTH" K.I.S.S. "GAME" "LOOP" "REQUEST" "CALL" "RETURN" "QUERY" "LOOP" "SWITCH" "PROCESS" "RESPONSE" "EASY" "SHARED" "COMMON" "UNIFYING OUR "BRAIN POWER" AND ELIMINATING DUPLICATIVE G.U.I. +++ DEVELOPMENT EFFORTS" ... C'EST PARFAIT ..!
 
@@ -122,39 +122,39 @@ https://notabug.org/pgimeno/Gspot just LQQk at 'it' ... oh la la ... so CREAMY s
 
 ... 'us' 'CREAM' 'LOVERS' have to 'STICK' TOGETHER ..!
 
-http://www.AMULETtechnologies.com/company/PARTNERS/
-
-https://www.CHINATELECOMGLOBAL.com/
-
-https://www.CHIPdip.RU/
-
-http://www.AMULETtechnologies.com/products-and-solutions/software/
-
-https://LOVE2D.org
-
-https://SOLAR2D.com
-
-https://FENGARI.io/
+https://FLY.IO/docs/app-guides/openresty-nginx-plus-lua/#welcome-message
 
 https://OPENRESTy.org/en/
 
-https://leafo.net/lapis/ 
+https://ketzacoatl.github.io/
 
-http://notebook.kulchenko.com/zerobrane/lapis-debugging-with-zerobrane-studio
+https://github.com/brickcap/openresty_examples/commit/9fbbcc3f8832ec1362c6481a788871e1914d3342
 
-https://studio.zerobrane.com/
+https://NGINX.org
 
-https://github.com/pkulchenko/ZeroBraneStudio 
+https://NGINX.org/en/docs/beginners_guide.html
+
+http://NGINX.org/en/docs/http/load_balancing.html
+
+http://NGINX.org/en/docs/http/ngx_http_upstream_module.html#server
+
+https://LUA.org
+
+https://LOVE2D.org <== JUST LOOK AT THAT
+
+https://github.com/trubblegum/Gspot <== JUST LOOK AT IT 
+
+https://SOLAR2D.com
 
 https://CodeBlocks.org
 
-https://LUA.org
+https://www.agner.org/optimize/calling_conventions.pdf
 
 https://gcC.gnu.org/
 
 https://NASM.us/
 
-https://github.com/meh/ORGASM <== just lQQk at it ... just looQ at that ... LOVE ==> GSPOT ==> ORGASM ... now that's the 'CREAM LOVER' 'liberty-loving' 'intellectual' 'playful' 'wonderful' 'high iQ' 'funny' 'smiling' 'shaking-my-head' 'kind' kind I like ..!
+https://github.com/meh/ORGASM <== WOULD YOU JUST LOOK AT THAT ... JUST LOOK AT IT ... just looQ at that ... LOVE ==> GSPOT ==> ORGASM ... now that's the 'C.R.E.A.M. LOVING' 'liberty-loving' 'intellectual' 'playful' 'wonderful' 'high iQ' 'funny' 'smiling' 'shaking-my-head' 'kind' kind I like ..!
 
 https://fresh.FlatASseMbler.net/
 
@@ -169,6 +169,14 @@ https://MorgueFile.com
 https://github.com/xiaolai/everyone-can-use-english 
 
 (-: NOTE: CHROME CAN AUTO-TRANSLATE from ancient Han to english to help you 'learn' and 'grow' TOGETHER :-)
+
+http://www.AMULETtechnologies.com/company/PARTNERS/
+
+https://www.CHINATELECOMGLOBAL.com/
+
+https://www.CHIPdip.RU/
+
+http://www.AMULETtechnologies.com/products-and-solutions/software/
 
 THANK YOU GITHUB ..! I SEE MY GITHUB PASSWORD IS WORKING JUST FINE JUST WANTED TO PROTECT IT WITH MY YAHOO NOW REQUIRING PHONE VERIFICATION TO PROTECT MY ACCOUNTS FOR ME I SEE SAID THE "BLIND MAN" ... LOVE YOU ... now that's having sQmeQne's baQQ ... WORD.
 
