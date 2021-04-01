@@ -15,6 +15,8 @@ TO DOWNLOAD EVERYTHING YOU NEED (LOVE2D, SOLAR2D, SQLITE3) TO "GET STARTED" WITH
 
 JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... ROOM ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ... https://www.youtube.com/watch?v=HXdw4ZTQLVo ... and Wonders ... https://www.youtube.com/watch?v=ffvULj021P0 ... and wonders of ... https://www.youtube.com/watch?v=niOb-ft9N64 ... LOVE ... EMMANUEL https://www.youtube.com/watch?v=-k8EQ1aPzcw and please dQ Qive sQme GOOD LOVE tQ Derek Banas ... https://www.youtube.com/watch?v=iMacxZQMPXs ... A GOOD K.I.D. and very GOOD at Keeping It Simple Silly K.I.S.S.ing ..! THANK YOU 'kind' one ... you cover so very many languages most multi-lingual https://www.youtube.com/watch?v=tID-saAFK28 'blessed' 'intelleQtual' beLOVEd 'giving' 'hardworking' 'efficient' 'playful' yet to the point CAN DO most learned and time well spent with succinct, knowledgeable, experienced, back to basics, confident, well-spoken gentle baby man ... GOOD BANANAS BANAS ..!
 
+... I WILL "OBEY EVERY 'GOLDEN RULE'" ... https://www.youtube.com/watch?v=74dvJVwGA6Y ... BE GOOD ... BE GOOD ... BE GOOD ..!
+
 ... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
 
 Bruce Lee
