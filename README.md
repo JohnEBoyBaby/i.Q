@@ -3,7 +3,7 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
-... 'twas the day after ... https://steemit.com/financialfreedomforall/@smart3dweb/twas-the-day-after ... hQ! HQ! HQ! MERRY TRUTHmas ... https://www.youtube.com/watch?v=oyLct2NlbpA ... and tQ 'all' who chQQse wisely to follow in the WAY of TRUTH in LIFE with G_D a GOOD NIGHT ..!
+... PIQA PiQa piQa chQQ https://www.youtube.com/watch?v=AZ-OVXr6zGI&t=93s ... 1:33 marQ 'fQQl' ..? 'try'inQ ..? 'tQ stQp Qur battle' ..? PUREHEART WINS! LOVE WINS! GOOD WINS! G_D WINS! ... 'twas the day after ... https://steemit.com/financialfreedomforall/@smart3dweb/twas-the-day-after ... hQ! HQ! HQ! MERRY TRUTHmas ... https://www.youtube.com/watch?v=oyLct2NlbpA ... and tQ 'all' who chQQse wisely to follow in the WAY of TRUTH in LIFE with G_D a GOOD NIGHT ..! a piQQachQQ QannQt defeat ... in battle ... https://www.youtube.com/watch?v=ZfLFOKGIG-M&t=33s ... I did not need to defeat you ... https://www.youtube.com/watch?v=K0XN2NGqDcM BABANGON TAYO ..! RISE UP ..! SUSULONG TAYO ..! LET'S GO ..!
 
 WelcQme Qne and all to ensure a 'cQmfQrtable' 'experience' for all please "OBEY QUR QODE OF QONDUQT" fuQQers ... nQw that was funny tQQ ... ya'll Qan't deny ... on with the shQw ...
 
