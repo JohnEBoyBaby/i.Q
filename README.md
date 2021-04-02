@@ -3,7 +3,12 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
-... for so long ... you and me been fighting each other for so long ... and the 'feeling' that I 'feel' for you is more than strong girl ... take it from me ... if you give a little more than your asking for ... your LOVE will turn the 'key' ... build my LOVE around you darling ... this LOVE will shine girl ... WATCH 'it' and 'see' ... open UP the HEAVEN in your PUREHEART and let me be ... https://www.youtube.com/watch?v=VkNeoTcGwrc&list=RDMM&index=10 ... I'd do anything to be your everything ... I just want to be your everything ...
+... for so long ... you and me been fighting each other for so long ... and the 'feeling' that I 'feel' for you is more than strong girl ... take it from me ... if you give a little more than your asking for ... your LOVE will turn the 'key' ... build my LOVE around you darling ... this LOVE will shine girl ... WATCH 'it' and 'see' ... open UP the HEAVEN in your PUREHEART and let me be ... https://www.youtube.com/watch?v=VkNeoTcGwrc&list=RDMM&index=10 ... I'd do anything to be your everything ... I just want to be your everything ... I LOVE IT ... https://www.youtube.com/watch?v=UO3CaJieLK8 WHEN "A" "PLAN" COMES TOGETHER ..!
+
+Blessed are the PUREHEART
+for they shall see G_D.
+Matthew 5:8
+https://www.youtube.com/watch?v=HRbTrensuiY
 
 HOW SHONG NEE ... https://www.youtube.com/watch?v=fdQgPu3iUYk ... I MiSS U 好想你 ... https://translate.google.com/?sl=zh-CN&tl=en&text=好想你&op=translate ... PIKA Pika pika CHU ... JOYCE "CHU" ... PUREHEART soft legs 'crossed legs' elegant, gracious, wonderful, natural, playful, caring, nurturing, learned, loving, giving, hardworking, thoughtful, grateful, humble, amazing, talented, 'blessed', 'gift'ed, highly beLOVEd, highly CREATIVE, highly VALUED, LIFTED UP, 'kind' kind one I LOVE ... the more you know ..! ... beCAUSE I AM here for a reaSON ... ALL MY LIFE I'VE BEEN WAITING FOR ... BEEN PRAYING FOR ... QNE DAY ... Qne Day ... Qne day ... https://www.youtube.com/watch?v=WRmBChQjZPs ... 一天 ..! ... "this" will be my "testimony" ..! let there be nQ dQubt abQut it ..! put yQur mind at rest ..! https://www.youtube.com/watch?v=OJWJE0x7T4Q brinQinQ the sledQehammer baby ..! PROMISE ..! 
 
