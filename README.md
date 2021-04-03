@@ -27,7 +27,7 @@ FULL 2 HOUR + DEVELOPMENT OPERATIONS TUTORIAL ON DOCKERizing 'VIRTUALizing' 'run
 
 https://www.youtube.com/watch?v=fqMOX6JJhGo
 
-THANK YOU DOCKER, Hitesh Choudhary, and GITHUB! I LOVE TO SEE YOUR WONDERFUL "HELPFUL" NATURE son of ancient Hindu ... 
+THANK YOU DOCKER ... and too Hitesh Choudhary and MUMshAD MANNaBETH 'lehem for shining their most PUREHEART LIGHT to help me to 'see' in the 'darkness' ... LOVE YOU I DO ... OH HOW I LOVE YOU ... eNGINeX NGINX.org NGINX.com amd Yichun Zhang OPENRESTY.org OPENRESTY.com SOLAR2D.com LOVE2D.com, and THANK YOU ALL of all neighborHOODs of all communities of all kinds of all races of all tongues of all religions of all nations of all cultures of all times of all beings of all dimensions of all parallels of all gates of all souls MORALLY COURAGEOUS, FREE-SPEECH-SUPPORTING, PUREHEART IN TRUTH GITHUB! I LOVE TO SEE YOUR WONDERFUL "HELPFUL" NATURE son of ancient Hindu ... 
 
 GOOD K.I.D.s
 
