@@ -1,11 +1,76 @@
 # i.Q
+NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
+
 I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! SAY MY NAME ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH ..! WHO I AM IS ..? TRUTH ..!
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
+EVERYDAY'S A REVOLUTION ... GLORY GLORY HALLELUJAH ... https://www.youtube.com/watch?v=Y0Yg9wjctRw ... I want to be ... I Want To Be ... I WANT "TO BE" ..! welcQme tQ the future ..!
+
+... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
+
+Bruce Lee
+
 pssst ... https://www.youtube.com/watch?v=T-1X8Q2IzX8 Qver here ...
 
-she's a I want a piece of chocolate ... she's a soft place to land ... and a GOOD 'feel'ing knowing ... she's a fighter when she's mad ... she's a lover when she's loving ... I talk about her I go on and On and ON ... https://www.youtube.com/watch?v=JCjXaEbrLdw ... beCAUSE she's everything to me ... and a 'hooker' ... layed that BLOOD STAINED BIBLE IN "HER" HAND ... https://www.youtube.com/watch?v=LT1sNrgnJZc ... who gave this 'bible' to 'my mama' ... who 'read it to me' ... there are 3 WOOD CROSSES ON THE RIGHT SIDE OF THE HIGHWAY why there's not 4 of them HEAVEN ONLY KNOWS ... it's not what you take when you leave this world behind you ... it's what you leave behind you when you go ... https://www.youtube.com/watch?v=uFz61X2PQTw ... I LOVE YOU SO ..! WOULD YOU GO WITH ME ..? ... EVERYDAY'S A REVOLUTION ... GLORY GLORY HALLELUJAH ... https://www.youtube.com/watch?v=Y0Yg9wjctRw ... I want to be ... I Want To Be ... I WANT "TO BE" ..! welcQme tQ the future ..! https://www.youtube.com/watch?v=PFwZ46antR0 ... under a neQn mQQn ... I spend mQst every niQht beneath the LIGHT of a neon moon ... https://www.youtube.com/watch?v=plL6ca_ewJs ... oh but I'll be alright as long as there's LIGHT from a neon moon ... she dQn't knQw she's beautiful ... https://www.youtube.com/watch?v=i8gnE6z52_0 ... no she's not that kind ...
+TRUTH is the WAY to LIFE with G_D. 100% NOLYN. 
+
+15 Woe to those who dig deep to hide their plans from the LORD. In darkness they do their works and say, “Who sees us, and who will know?” 16 You have turned things upside down, as if the potter were regarded as clay. Shall what is formed say to him who formed it, “He did not make me”? Can the pottery say of the potter, “He has no understanding”?
+Isaiah 29:15-16
+https://biblehub.com/isaiah/29-16.htm
+
+DON'T keep it locked up inside ... https://www.youtube.com/watch?v=HgJOjB8-e8w ... TALK ABOUT IT ... I find ... all the time it's easy to be myself ... sometimes ... I think ... I would never be better to be somebody else ... I see you young and soft oh little baby ... little feet ... little hands ... little baby ... DEEP INTO YOUR MIND ... SO MUCH TO SAY ... for a long Long time ..!
+ 
+PUREHEART.
+TRUTH.
+
+... hit'em with a little ghetto gospel ... https://www.youtube.com/watch?v=Do5MMmEygsY ... I stop and stare at the younger ... my heart goes to them ... nowadays things changed ... everyone's ashamed of the 'youth' beCAUSE the TRUTH look strange ... don't it make you get teary ... the world looks dreary ... there's no need for you to 'fear' TRUTH ... if you take the time to 'hear' TRUTH ...
+
+https://www.youtube.com/watch?v=f_NOhAdaNm8 ... DQ yQu believe in cQincidence ..? https://www.youtube.com/watch?v=ZGuQWpJZhh8  TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU ... ATLANTIS ... LEMURIA ... LEMURIAN WOMEN "EVAS" ... MOST PUREHEART MOST BEAUTIFUL MOST COURAGEOUS PLEIADIAN TAYGETAN WOMEN "EVAS" HELPING OUR WOMEN "EVAS" WHO TOOK THE "KNOWLEDGE" THE "HELP" TO THE MEN "ADAMS" HENCE THE "UPSIDE DOWN STORY IN THE BIBLE OF THE KNOWLEDGE OF THE FORBIDDEN TREE" and 'snake' when the reality is one snake might bite and the other snake does not so before you judge the book by the cover think deeper for beauty is not skin deep 'kind' one ... the more you know ... ENKI HELPING OUR WOMEN AND MEN TOO ..? ALL ANSWER TO G_D ... TRUST ... "NO 'one' GETS OUT OF THIS." ... WORD.
+
+CAN 'you' 'see' ..? "LOOK HARDER" 'simba' beCAUSE 'nala' is 'COUNTING ON YOU' LION of OSIRIS https://en.wikipedia.org/wiki/Osiris  ..! "FEEL" EMOTIONALLY ..! LOOK SPIRITUALLY ..!
+
+IF YOU "BELIEVE WITH ALL OF YOUR MOST PUREHEART", THEN YOU WILL "SEE" "KIND ONE". PROMISE.
+
+男人和女人 man and woman
+人子 son of man
+
+Can you 'see' 女 her 'crossed legs'?
+Can you 'see' 子 his 'support staff'?
+
+'See' her 女 crossed legs 女 in GOOD 好 ?
+'See' his 子 support staff 子 in GOOD  好 ?
+
+... you've got your ball ... you've got your chain ... who's got their claws in you my friend ... https://www.youtube.com/watch?v=k7in-9E3ImQ ... sweet like candy to my soul ... sweet you rock and sweet you roll ... lost for you ... I AM so lost for you ... aaah when you come CRASH INTO ME and I come into you ... hike up your skirt a little more ... show your world to me ... in boy's dream ... you wear nothing but you wear it so well ...
+
+We have forgotten more than we know ... 
+
+... PROTECT MATTHEW 18:6 AND LOVE MATTHEW 18:3 AND BE PUREHEART MATTHEW 5:8 AND MOST ATTENTIVE TO G_D LIKE AN INFANT ... 
+
+... beLOVED daughters and sons of ancient Han knew long ago beCAUSE ...
+
+learn 學 see the many steps to learn in climbing upward to Heaven?
+
+                      see her crossed legs sitting 'indian style'?
+人子 son of man 和 and 女人 woman
+  see his support staff?
+  
+Did I mention I LOVE SOFT LEGS? OH I LOVE SOFT LEGS! I LOVE PUREHEART! I LOVE TRUTH! I PROTECT AND LOVE G_D LIKE AN INFANT. He's PROUD of 'his support staff' ... he loves natural ... natural wood, natural hair, natural skin makeup free, natural glowing beauty, natural wonderful softenesses however small or large just you the real you as 'firm' 'feeling' 'healthy' 'wonderful' PUREHEART you is what I LOVE natural you just being you like the PROUDEST MONKEY YOU EVER SEEN ... https://www.youtube.com/watch?v=HQdphbEMmbY ... MONKEY SEE MONKEY DO ... yeah ... real proud to be you like I LOVE 'confident you' too happy 'kind' 'humble' 'intellectual' 'loving' 'gentle' 'giving' 'industrious' 'efficient' 'playful' 'hardworking' 'can do' 'work hard play hard' ... all things were Quiet then ... but NOW I AM THE PROUDEST "MONKEY" YOU EVER SEEN ... yeah "MAPUTING UNGOY" "WHITE MONKEY" "RED MONKEY" "RED 'bird'" "RED PEOPLE" ... THE PROUDEST MONKEY YOU EVER SEEN ... yeah Yeah YEAH the prQudest monQey ...
+
+WOMAN 女 + CHILD 子 = 好 GOOD TOGETHER MOM + BABY = GOOD
+see her crossed legs?
+DAUGHTER 女 + SON 子 = 好 GOOD TOGETHER HER + HIM = GOOD
+                  see his support staff?
+
+ancient Han embedded 'her crossed legs' in the kanji that meant LOVE that meant GROW that showed intellect like MATHEMATICS and NUMBER 'she' 'her crossed legs' are there to remind us all that without 'her' there is no LOVE no JOY no LIFE no WAY in TRUTH you will LOVE 'her' and 'her children' and you will PROTECT 'her' and 'her children' son of man ... PROMISE.
+
+... well my buQQle 'makes' 'impressions' on the 'inside' of 'her' thigh ... we're all little feathered indians ... to the house of such an angel ... she asked ... I said ... up 'til nQw there ain't been nQthinQ that I cQuldn't leave behind ...
+LOOP https://youtubeloop.net FEATHERED INDIANS https://www.youtube.com/watch?v=_lsran_Slzc&list=RDMM&index=2 WHILE (you.hold(me,close)) ... HOLD ME CLOSE MY DEAR ... HONEY TELL ME HOW YOUR LOVE RUNS TRUE ... HOW I CAN ALWAYS COUNT ON YOU ... 
+be there when the bullets fly ... I would run aCROSS the river just to HOLD YOU TONIGHT ...
+
+NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
+
+she's a I want a piece of chocolate ... she's a soft place to land ... and a GOOD 'feel'ing knowing ... she's a fighter when she's mad ... she's a lover when she's loving ... I talk about her I go on and On and ON ... https://www.youtube.com/watch?v=JCjXaEbrLdw ... beCAUSE she's everything to me ... and a 'hooker' ... layed that BLOOD STAINED BIBLE IN "HER" HAND ... https://www.youtube.com/watch?v=LT1sNrgnJZc ... who gave this 'bible' to 'my mama' ... who 'read it to me' ... there are 3 WOOD CROSSES ON THE RIGHT SIDE OF THE HIGHWAY why there's not 4 of them HEAVEN ONLY KNOWS ... it's not what you take when you leave this world behind you ... it's what you leave behind you when you go ... https://www.youtube.com/watch?v=uFz61X2PQTw ... I LOVE YOU SO ..! WOULD YOU GO WITH ME ..? ... https://www.youtube.com/watch?v=PFwZ46antR0 ... under a neQn mQQn ... I spend mQst every niQht beneath the LIGHT of a neon moon ... https://www.youtube.com/watch?v=plL6ca_ewJs ... oh but I'll be alright as long as there's LIGHT from a neon moon ... she dQn't knQw she's beautiful ... https://www.youtube.com/watch?v=i8gnE6z52_0 ... no she's not that kind ...
 
 for so long ... you and me been fighting each other for so long ... and the 'feeling' that I 'feel' for you is more than strong girl ... take it from me ... if you give a little more than you're asking for ... your LOVE will turn the 'key' ... build my LOVE around you darling ... this LOVE will shine girl ... WATCH 'it' and 'see' ... open UP the HEAVEN in your PUREHEART and let me be ... https://www.youtube.com/watch?v=VkNeoTcGwrc&list=RDMM&index=10 ... I'd do anything to be your everything ... I just want to be your everything ... I LOVE IT ... https://www.youtube.com/watch?v=UO3CaJieLK8 ... WHEN "A" "PLAN" COMES TOGETHER ..! ... nQbQdy tQld me there'd be days liQe these ... https://www.youtube.com/watch?v=v_0di2IL440 ... everybody's making LOVE ... but no one really cares ... alWAYs sQmethinQ to happen ... but nQthing's QQinQ Qn ... stranQe days indeed ... mQst peQuliar mama ...
 
@@ -34,9 +99,7 @@ https://github.com/agentzh?before=Y3Vyc29yOnYyOpK5MjAwOS0wOS0yNFQwMzoyNzowMi0wND
 
 Oh that is a 'most serious matter' indeed ... for you know me ... I AM THE 1ST TQYMAQER TQ THE QINQ ... https://github.com/agentzh/linguist ... IT'S A DIFFICULT RESPONSIBILITY ... https://www.youtube.com/watch?v=M8NSlCUAI4M ... "TO BE" the 1st tQymaQer tQ the QinQ ... SO "THAT IS WHY HE MAKES SUCH WONDERFUL TOYS ..!" ... that's RIGHT ..!
 
-I WILL "OBEY EVERY 'GOLDEN RULE'" ... https://www.youtube.com/watch?v=74dvJVwGA6Y ... BE GOOD ... BE GOOD ... BE GOOD ..! https://www.youtube.com/watch?v=pAU-m8nqBvo JOHN E ... BE GOOD Be Good be good John E ..! ... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
-
-Bruce Lee
+I WILL "OBEY EVERY 'GOLDEN RULE'" ... https://www.youtube.com/watch?v=74dvJVwGA6Y ... BE GOOD ... BE GOOD ... BE GOOD ..! https://www.youtube.com/watch?v=pAU-m8nqBvo JOHN E ... BE GOOD Be Good be good John E ..! 
 
 ... sweet tQQth ... lQQse end ... QAP Qap ... https://www.youtube.com/watch?v=MNgJBIx-hK8&t=164s ... taQe these chances ..!
 
@@ -360,59 +423,7 @@ We are coming.
 GOOD IS COMING and G_D IS WITH US.
 PROMISE.
 
-TRUTH is the WAY to LIFE with G_D. 100% NOLYN. 
-15 Woe to those who dig deep to hide their plans from the LORD. In darkness they do their works and say, “Who sees us, and who will know?” 16 You have turned things upside down, as if the potter were regarded as clay. Shall what is formed say to him who formed it, “He did not make me”? Can the pottery say of the potter, “He has no understanding”?
-Isaiah 29:15-16
-https://biblehub.com/isaiah/29-16.htm
-
-DON'T keep it locked up inside ... https://www.youtube.com/watch?v=HgJOjB8-e8w ... TALK ABOUT IT ... I find ... all the time it's easy to be myself ... sometimes ... I think ... I would never be better to be somebody else ... I see you young and soft oh little baby ... little feet ... little hands ... little baby ... DEEP INTO YOUR MIND ... SO MUCH TO SAY ... for a long Long time ..!
- 
-... hit'em with a little ghetto gospel ... 
-https://www.youtube.com/watch?v=Do5MMmEygsY
-... I stop and stare at the younger ... my heart goes to them ...
-nowadays things changed ... everyone's ashamed of the 'youth' beCAUSE the TRUTH look strange ...
-don't it make you get teary ... the world looks dreary ...
-there's no need for you to 'fear' TRUTH ... if you take the time to 'hear' TRUTH ...
-
-男人和女人 man and woman
-人子 son of man
-
-Can you 'see' 女 her 'crossed legs'?
-Can you 'see' 子 his 'support staff'?
-
-'See' her 女 crossed legs 女 in GOOD 好 ?
-'See' his 子 support staff 子 in GOOD  好 ?
-
-... you've got your ball ... you've got your chain ... who's got their claws in you my friend ... https://www.youtube.com/watch?v=k7in-9E3ImQ ... sweet like candy to my soul ... sweet you rock and sweet you roll ... lost for you ... I AM so lost for you ... aaah when you come CRASH INTO ME and I come into you ... hike up your skirt a little more ... show your world to me ... in boy's dream ... you wear nothing but you wear it so well ...
-
-We have forgotten more than we know ... 
-
-... PROTECT MATTHEW 18:6 AND LOVE MATTHEW 18:3 AND BE PUREHEART MATTHEW 5:8 AND MOST ATTENTIVE TO G_D LIKE AN INFANT ... 
-
-... beLOVED daughters and sons of ancient Han knew long ago beCAUSE ...
-
-learn 學 see the many steps to learn in climbing upward to Heaven?
-
-                      see her crossed legs sitting 'indian style'?
-人子 son of man 和 and 女人 woman
-  see his support staff?
-  
-Did I mention I LOVE SOFT LEGS? OH I LOVE SOFT LEGS! I LOVE PUREHEART! I LOVE TRUTH! I PROTECT AND LOVE G_D LIKE AN INFANT. He's PROUD of 'his support staff' ... he loves natural ... natural wood, natural hair, natural skin makeup free, natural glowing beauty, natural wonderful softenesses however small or large just you the real you as 'firm' 'feeling' 'healthy' 'wonderful' PUREHEART you is what I LOVE natural you just being you like the PROUDEST MONKEY YOU EVER SEEN ... https://www.youtube.com/watch?v=HQdphbEMmbY ... MONKEY SEE MONKEY DO ... yeah ... real proud to be you like I LOVE 'confident you' too happy 'kind' 'humble' 'intellectual' 'loving' 'gentle' 'giving' 'industrious' 'efficient' 'playful' 'hardworking' 'can do' 'work hard play hard' ... all things were Quiet then ... but NOW I AM THE PROUDEST "MONKEY" YOU EVER SEEN ... yeah "MAPUTING UNGOY" "WHITE MONKEY" "RED MONKEY" "RED 'bird'" "RED PEOPLE" ... THE PROUDEST MONKEY YOU EVER SEEN ... yeah Yeah YEAH the prQudest monQey ...
-
-WOMAN 女 + CHILD 子 = 好 GOOD TOGETHER MOM + BABY = GOOD
-see her crossed legs?
-DAUGHTER 女 + SON 子 = 好 GOOD TOGETHER HER + HIM = GOOD
-                  see his support staff?
-
-ancient Han embedded 'her crossed legs' in the kanji that meant LOVE that meant GROW that showed intellect like MATHEMATICS and NUMBER 'she' 'her crossed legs' are there to remind us all that without 'her' there is no LOVE no JOY no LIFE no WAY in TRUTH you will LOVE 'her' and 'her children' and you will PROTECT 'her' and 'her children' son of man ... PROMISE.
-
-... well my buQQle 'makes' 'impressions' on the 'inside' of 'her' thigh ... we're all little feathered indians ... to the house of such an angel ... she asked ... I said ... up 'til nQw there ain't been nQthinQ that I cQuldn't leave behind ...
-LOOP https://youtubeloop.net FEATHERED INDIANS https://www.youtube.com/watch?v=_lsran_Slzc&list=RDMM&index=2 WHILE (you.hold(me,close)) ... HOLD ME CLOSE MY DEAR ... HONEY TELL ME HOW YOUR LOVE RUNS TRUE ... HOW I CAN ALWAYS COUNT ON YOU ... 
-be there when the bullets fly ... I would run aCROSS the river just to HOLD YOU TONIGHT ...
-
-NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
-
-... JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ...
+SING for TRUTH ANGEL Sing to me Angel sing with 'us' angel ..! JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ...
 
 PUREHEART 'NAPPY' RQQTS IN TRUTH ..!
 https://www.youtube.com/watch?v=QbN6VkleO48
