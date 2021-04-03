@@ -13,7 +13,13 @@ Bruce Lee
 
 WOMAN 女 + CHILD 子 = 好 
 
-GOOD TOGETHER MOM + BABY = GOOD https://www.youtube.com/watch?v=TPhAYvLAGJA GOOD 'soft legs' PUREHEART 'ganda' 'crossed legs'.
+GOOD TOGETHER MOM + BABY = GOOD https://www.youtube.com/watch?v=TPhAYvLAGJA GOOD 'soft legs' PUREHEART https://www.youtube.com/watch?v=TPhAYvLAGJA&t=1037s "EVA ..!" @ 17:17 marQ time mark https://www.urbandictionary.com/author.php?author=pickoy 'ganda' 'crossed legs' ... yQu knQw hQw we dQ We DQ WE DQ ..! 
+
+and nQw please RISE fQr the sinQINQ Qf Qur natiQnal anthem ...
+
+https://www.youtube.com/watch?v=HNGaa5Opfmc
+
+... FIRST BASE ... ya'll be livinQ liQe the wQrst race ... BREAK THRQUQH YQUR MIND ... SEQQND LESSQN ... WISDQM RHYME ... THIRD BASE AND HEADING HQME ... BATTER UP ..!
 
 ... he's a 'feeling' arranger ... changer of the WAY that he talks ... https://www.youtube.com/watch?v=rX5bDqk7Qmo ... keeper of the 'key to the law' ... step aside ... open wide ... it's the lQner ...
 
