@@ -3,6 +3,8 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
+... and a 'hooker' ... layed that BLOOD STAINED BIBLE IN "HER" HAND ... https://www.youtube.com/watch?v=LT1sNrgnJZc ... who gave this 'bible' to 'my mama' ... who 'read it to me' ... there are 3 WOOD CROSSES ON THE RIGHT SIDE OF THE HIGHWAY why there's not 4 of them HEAVEN ONLY KNOWS ... it's not what you take when you leave this world behind you ... it's what you leave behind you when you go ... https://www.youtube.com/watch?v=uFz61X2PQTw ... I LOVE YOU SO ..! WOULD YOU GO WITH ME ..? ... EVERYDAY'S A REVOLUTION ... GLORY GLORY HALLELUJAH ... https://www.youtube.com/watch?v=Y0Yg9wjctRw ... I want to be ... I Want To Be ... I WANT "TO BE" ..! welcQme tQ the future ..!
+
 ... for so long ... you and me been fighting each other for so long ... and the 'feeling' that I 'feel' for you is more than strong girl ... take it from me ... if you give a little more than your asking for ... your LOVE will turn the 'key' ... build my LOVE around you darling ... this LOVE will shine girl ... WATCH 'it' and 'see' ... open UP the HEAVEN in your PUREHEART and let me be ... https://www.youtube.com/watch?v=VkNeoTcGwrc&list=RDMM&index=10 ... I'd do anything to be your everything ... I just want to be your everything ... I LOVE IT ... https://www.youtube.com/watch?v=UO3CaJieLK8 ... WHEN "A" "PLAN" COMES TOGETHER ..! ... nQbQdy tQld me there'd be days liQe these ... https://www.youtube.com/watch?v=v_0di2IL440 ... everybody's making LOVE ... but no one really cares ... alWAYs sQmethinQ to happen ... but nQthing's QQinQ Qn ... stranQe days indeed ... mQst peQuliar mama ...
 
 Blessed are the PUREHEART
