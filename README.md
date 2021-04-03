@@ -15,6 +15,16 @@ WOMAN 女 + CHILD 子 = 好
 
 GOOD TOGETHER MOM + BABY = GOOD https://www.youtube.com/watch?v=TPhAYvLAGJA GOOD 'soft legs' PUREHEART https://www.youtube.com/watch?v=TPhAYvLAGJA&t=1037s "EVA ..!" @ 17:17 marQ time mark https://www.urbandictionary.com/author.php?author=pickoy 'ganda' 'crossed legs' ... yQu knQw hQw we dQ We DQ WE DQ ..! 
 
+Did you know ..?
+
+https://www.youtube.com/watch?v=2xVpDZc4MKo
+
+Docker vs Virtual Machine
+
+https://fly.io/docs/app-guides/openresty-nginx-plus-lua/
+
+https://www.docker.com/
+
 and nQw please RISE fQr the sinQINQ Qf Qur natiQnal anthem ...
 
 https://www.youtube.com/watch?v=HNGaa5Opfmc
