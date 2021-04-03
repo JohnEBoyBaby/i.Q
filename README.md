@@ -23,6 +23,22 @@ Docker vs Virtual Machine
 
 https://fly.io/docs/app-guides/openresty-nginx-plus-lua/
 
+FULL 2 HOUR + DEVELOPMENT OPERATIONS TUTORIAL ON DOCKERizing 'VIRTUALizing' 'running different Operating Systems on 1 OS PC/PHONE'
+
+https://www.youtube.com/watch?v=fqMOX6JJhGo
+
+THANK YOU DOCKER, Hitesh Choudhary, and GITHUB! I LOVE TO SEE YOUR WONDERFUL "HELPFUL" NATURE son of ancient Hindu ... 
+
+GOOD K.I.D.s
+LIFT UP
+GOOD Q.I.D.s
+
+"'WET'. RUB. "SQRUB A FUQQINQ DUBB ..! SCRUB HARDER THAN THAT! REALLY HARD". CLEAN! REALLY CLEAN! RINSE. REPEAT AS NECESSARY."
+
+GOOD Knights In Development
+LIFT UP
+GOOD Queens In Development
+
 https://www.docker.com/
 
 and nQw please RISE fQr the sinQINQ Qf Qur natiQnal anthem ...
