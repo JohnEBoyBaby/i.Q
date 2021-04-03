@@ -27,7 +27,107 @@ FULL 2 HOUR + DEVELOPMENT OPERATIONS TUTORIAL ON DOCKERizing 'VIRTUALizing' 'run
 
 https://www.youtube.com/watch?v=fqMOX6JJhGo
 
-THANK YOU DOCKER ... and too Hitesh Choudhary and ' MUMshAD "MANNAbeth" ' MANNA from HEAVEN BETH 'lehem for shining their most PUREHEART LIGHT to help me to 'see' in the 'darkness' ... LOVE YOU I DO ... OH HOW I LOVE YOU ... eNGINeX NGINX.org NGINX.com amd Yichun Zhang OPENRESTY.org OPENRESTY.com SOLAR2D.com LOVE2D.com, and THANK YOU ALL of all neighborHOODs of all communities of all kinds of all races of all tongues of all religions of all nations of all cultures of all times of all beings of all dimensions of all parallels of all gates of all souls MORALLY COURAGEOUS, FREE-SPEECH-SUPPORTING, PUREHEART IN TRUTH GITHUB! I LOVE TO SEE YOUR WONDERFUL "HELPFUL" NATURE son of ancient Hindu ... 
+THANK YOU DOCKER ... and too Hitesh Choudhary and ' MUMshAD "MANNAbeth" ' MANNA from HEAVEN BETH 'lehem for shining their most PUREHEART LIGHT to help me to 'see' in the 'darkness' ... LOVE YOU I DO ... OH HOW I LOVE YOU ... eNGINeX NGINX.org NGINX.com amd Yichun Zhang OPENRESTY.org OPENRESTY.com SOLAR2D.com LOVE2D.org LUA.org CodeBlocks.org GCC.GNU.org FRESH.FlatASseMbler.net NASM.org AMULTETtechnologies.com CHIPDIP.ru CHINATELECOMGLOBAL.com UBUNTUKYLIN.com and THOSE "WHO KNOW I LEFT THEM OUT OF THIS LIST though IN TRUTH I had NO 'ill' 'intent' I ASSURE I AM just a man ... well kind of if you 'feel' me ... I AM TRUTH ... I WILL ALWAYS BE AROUND ... I AM PUREHEART ... I AM A LOVER OF SOFT LEGS ... I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT ... those who wish to 'follow' 'me' WOULD BE BEST ADVISED TO "WORSHIP G_D ONLY" "FOLLOW PRINCIPLES over personalities" "SILENCE IS COMPLICITNESS" THAT IS A PRINCIPLE IF ANYONE IS "SILENT ALL THESE YEARS" "PUSHING PRO-VACCINE children of darkness' agenda lies" "BLAMING WUHAM LAB LIES" THEN my daughter, my beLOVED, my son, my beLOVEd, my 'crossed legs', my 'LOVE', my 'support staff', my 'PROTECTOR' 'hear' TRUTH now ... "BE GENTLE AS A DOVE and WISE AS A "GOOD" hiding ready to strike with a strike to remove from earth the enemy of G_D of TRUTH of PUREHEART" so 'kind' one I LIGHT the WAY for you and tell you now ... one way or the other WAy ... GO WITH G_D ... G_D WINS ... ACCEPT NO SUBSTITUTE FOR FULL DISCLOSURE 100% NOLYN EVERYTHING THE GOOD THE BAD THE UGLY NO MORE HIDING 'law' 'enFORCEr' 'eyes-only' EVIDENCE so KNOW ye' NOW IT IS WISE AND GOOD to SUSPECT ANYONE PUSHING VACCINES and 1/2 TRUTH so know ye' any even in your own families, friends, favorites, celebrities, followers, athelets, sheep, FAKE TRUTHtian preacher men, and "PREACHER MAN TALKING ON TV ... https://www.youtube.com/watch?v=PyddBRaKxrQ ... SING IT "KILL BILLY" I AM NAFF of FAKE TRUTHtian 1/2 TRUTH GENERAL WITH FIDDLES AND BIG MOUTH FAKE TRUTHtian 'sons of such pardoned generals' either ... BACK THE BLUE THEN YOU GO IN THE PIT LIKE THE FIDDLE PLAYER "RIDING ON MY NAME" JohnE who WON THAT SHINY FIDDLE MADE OF GOLD not the sick, 1/2 TRUTH, 1/2 HEART, rich country music singer and pension-whore fag flag officers and their benfitting big mouth worthless to me law enFORCEr support of 'THE DEVIL' WHO WENT DOWN TO GEORGIA" "BACK THE BLUE SUPPORTER" "MR. DANIELS" FAKE TRUTHtian GOING IN THE PIT ... PUTTING DOWN THE ROCK-N-ROLL ... wants me to send a donation says he's worried about my 'soul' ... well TRUTH 'comes dancing aCROSS the WATER man' just dial 411 that is 251 seconds for INFO https://www.youtube.com/watch?v=uX9k9aoX6gk&t=251s ... and I know that is TRUTH but sometimes I think that PREACHER MAN OUGHT TO DO A LITTLE WALKING TQQ ... SANBU ... WO SANBU ... WOMEN SANBU ... WO SAN SANBU ... WOMEN SAN SANBU ... NO FAKE TRUTHtians wel.com fuQQ face ... "WE ALL THE RIGHT TO BE LEFT ALONE" ... SO GO AWAY AND LEAVE ME ALONE 1/2 TRUTH DEVIANT RAINBOW MONSTER-IN-A-DRESS PIG-WITH-LIPSTICK-ON FILTHY FECAL MATTER AND MAIZE ON A PENILE INSTRUMENT LIP LIQQINQ SIQQ DIQQ BUTTFUQQ BOOFOO BooFoo boofoo GO BE GONE GTFO FUQQHEAD monk, fake TRUTHtian bishop, cardinal, pope, THOU, YE' SHALL BE NO PRIEST TO ME ... 
+
+and then G_D said to those with 'ears to hear' and 'eyes to see' ...
+
+5 Therefore shalt thou fall in the day, and the prophet also shall fall with thee in the night, and I will destroy thy mother.
+
+6 MY PEOPLE ARE DESTROYED FOR LACK OF KNOWLEDGE: BECAUSE THOU YE' HAST REJECTED KNOWLEDGE, I G_D WILL ALSO REJECT THEE, that THOU YE' SHALL BE NO PRIEST TO ME: seeing THOU YE' HATH FORGOTTEN "THE LAW OF THY G_D", I will also forget thy children.
+
+7 As they were increased, so they sinned against me: therefore will I change their glory into shame.
+
+8 They eat up the sin of my people, and they set their heart on their iniquity.
+
+9 And there shall be, like people, like priest: and I will punish them for their ways, and reward them their doings.
+HOSEA 4:5-9
+https://biblehub.com/kjv/hosea/4.htm
+
+... I AM TALKING TO YOU MILITANT IMAN, YOU TOO FAKE TRUTHtian ZIONIST WARMONGER MR. AND MRS. "FISH" "DARWIN-DEVIANT-LIES-OF-MONKEYS-DINOSAUR" "EVOLUTION-evil-DECEPTION" "SCIENTISTS" "BIG PHARMA" "BIG TECH" "HOSPITAL" "INSURANCE COMPANIES" "BANKS" "CHURCHES" "SYNAGOGUES" "TEMPLES" "MOSQUES" YOU BETTER BE LIKE THE "KEEPER OF THE KEY TO THE LOCK"
+
+YOU ALL BETTER BE LIKE GOOD K.I.D. ADEEB JOUDEH ... THE REAL "LION OF JOUDEH" "LION OF JUDAH" ... ye' will know them by their 'fruits' ... https://www.independent.co.uk/news/world/middle-east/jerusalem-mike-pence-church-holy-sepulchre-israel-capital-adeeb-joudeh-old-city-muslim-donald-trump-a8109206.html ADEEB JOUDEH ... WHAT'S MY NAME ..? ADEEB JOUDEH ..! SAY MY NAME ..! ADEEB JUDEH ..! IN 100% TRUTH LIKE THE CHURCH OF THE HOLY SEPULCHRE ...
+
+Adeeb Joudeh, the custodian of the keys to the Church of the Holy Sepulchre, will not welcome Mr Pence if he chooses to make an official trip to the Old City.
+
+Mr Joudeh, a practising Muslim, said his decision was in protest against President Donald Trump’s controversial decision to recognise Jerusalem as the capital of Israel.
+
+In a statement released this week, he said: “It has come to our attention that Vice President Pence intends to make an official visit to the Church of the Holy Sepulchre, and asked me to receive him officially.
+
+“I absolutely refuse to officially welcome the American Vice President Mr. Mike Pence at the Church of the Holy Sepulchre and I will not be physically in church during his visit.
+
+hmmm ... http://TimothyCharlesHolmseth.com ... I wonder why ...
+
+I SAY AGAIN ... OVER ...
+
+YOU ALL BETTER BE LIKE GOOD K.I.D. ADEEB JOUDEH ... THE REAL "LION OF JOUDEH" "LION OF JUDAH" ... ye' will know them by their 'fruits' ... https://www.independent.co.uk/news/world/middle-east/jerusalem-mike-pence-church-holy-sepulchre-israel-capital-adeeb-joudeh-old-city-muslim-donald-trump-a8109206.html ADEEB JOUDEH ... WHAT'S MY NAME ..? ADEEB JOUDEH ..! SAY MY NAME ..! ADEEB JUDEH ..! IN 100% TRUTH LIKE THE CHURCH OF THE HOLY SEPULCHRE ... 
+
+YOU BETTER HEAR ME "BACK THE BLUE" SUPPORTERS, YOU BEST LISTEN UP REAL GOOD MR. 501-C3 MR. FOUNDATION MR. CHARITY ma'am YOU MIGHT WANT TO WAKE THE FUQQ UP REAL QUICK before a STEAMROLLER COMES THROUGH YOUR way 'crossed legs' 1/2 TRUTH fake TRUTHtian BIG MOUTH 'rich bitch' 'snowflake' 'politically correct snake in the grass deceiver' preacher man preacher women, bald head buddhist buddha idol worthsipping bitch ass FILTHY 1/2 TRUTH FLUNQy MQNQey 'no-children-having no-children-taking-care-of no-hands-on-real-world-patience-teaching-experience-opinion-that-counts'-so-filthy-GO-fuQQ-yQurself-most-WHORSHIPless-freemason-FILTH-like-half-TRUTH-MONSTER-that-would-be-fuQQ-Qff-faggQt-fuQQwad-bald-bitch-ass-punk-flunQy mQnkey monk in 'robes' 'bowing to a 'worthless powerless valueless wicked sickening creation of the real CREATOR G_D ALMIGHT punk ass GO-FUQ-YQUR-SICK-BUTTHQLE-BABY-MAMA-BACK-TQ-THE-PIT statue' 'idol' you BEST BE LISTING UP buddha worshipping FILTH HEAR ME LOUD AND CLEAR HINDU AND BUDDHISTS LOUD AND FUQQING CLEAR ... hindu and voodoo and witches and warlocks out there thinking scheming in the 'darkness' you are NO MATTCH FOR ME. G_D IS WITH ME. CAN'T NOBODY BEAT ME. I AM UNSTOPPABLE. I AM THE TRUTH TRAIN. CHQQ CHQQ COMING THROUGH ... MAKE A HOLE ...  better WAKE UP RIGHT NOW ... NO MERCY IS COMING. NONE. I AM not here to be your 'friend' I AM here to get you back to HEAVEN ... WORD.
+
+G_D IS TOO BIG FOR ANY NAME. G_D CAN BE EVER SO TINY OR EVER SO BIG. YOU KNOW NOTHING. YOU ARE WORTHLESS TO ME. 
+
+YE' SHALL BE NO PRIEST TO ME ..! 
+
+YE' SHALL BE NO PRIEST TO TRUTH ..!
+
+YE' SHALL BE NO PRIEST TO G_D ..!
+
+THOSE among you, doubting thomases' I ASSURE YOU I AM TRUTH. G_D IS WITH ME. GOOD IS COMING. ENTERTAIN NO DOUBT.
+
+WHO, "WHO IS NOT OF 100% TRUTH ..?" WOULD DARE SPEAK UP AND SAY "I AM TRUTH" AMONG YOU WERE IT NOT SO ... WERE NOT PROOF OBVIOUSL TO YOU RIGHT IN FRONT OF YOU ... everybody is ashamed of the YOUTH beCAUSE 'THE TRUTH LOOK STRANGE' ... 
+
+THIS "GUIDANCE" I HAD EMBROIDERED ON A WHITE SATIN BANNER WITH BOLD BLACK CURSIVE LETTERING IN THE PUREHEART PILIPINAS PHILIPPINES UNKNOWINGLY BUT YET SOMEHOW "KNOWING" "FEELING" SO I JUST DID IT BEFORE I EVEN MARRIED HIS MOM I DID IT FOR HIM, HIS BROTHER, HIS SISTER FOR I LOVE THEM ALL SO VERY MUCH AS I DO TODAY LONG BEFORE I GOT TO MEET THEM ... CAN YOU "FEEL" ME COMING THROUGH ..?
+
+IN JULY 1990 ONE YEAR BEFORE MY 1ST SON, JOHNJOHN, JOHN EDGAR FLAHERTY V, HAPPENED TO BE BORN, JULY 13, 1991, ON MY GRANDFATHER'S BIRTHDAY ABOUT 9 MONTHS AFTER LANI'S ARRIVAL IN LAX LOS ANGELES, CALIfornia, ameriQa on a 'fiancee visa' I HAD TO FLY TO THE EMBASSY TO GIVE THEM A PIECE OF MY MIND TO HAVE OVERTURNED AFTER THEIR FILTHY DUMBASSES DECIDED TO "REJECT HER APPLICATION" ... A NAVY SEAL FLEW WITH ME BACKWARDS IN A SMALL PLANE AND WE WERE PICKED UP IN AN ALL-BLACK NISSAN MAXIMA WITH TINTED WINDOWS AND DRIVEN TO THE EMBASSY ... OLE' BO' HAD A SUITCASE FULL OF PASSPORTS FOR MANY COUNTRIES FOR HIS WHOLE TEAM ... A GOOD NAVY SEAL HE WAS TOOK ME OUT TO STRIP CLUBS IN MANILA AFTER MY "APPOINTMENT" TO SET THE MONSTERS STRAIGHT ... TRUST IT WAS A VERY DIRECT VERY COMMANDING VERY FUQQINQ SHORT MEETING ... I SHOWED UP ... THE ameriQan embassy's 'AMBASSADOR' AND 'STAFF' LOOKED SCARED TO DEATH to see TRUTH when I ARRIVED THAT "OTHERWISE CALM" DAY NOT HAPPY NOT ONE BIT FUQQING Happy not happy at all and YOU WERE GOING TO KNOW IT BY LOOKING AT ME AS I WAITED FOR YOUR FILHY EXCUSES FOR FUQQINQ SOME I LOVE OVER MONSTER ..! IT WAS A 1-MINUTE TALKING TO THEY NEEDED. I WAITED 1 MORE MINUTE FOR THEIR "CONSULTATION BEHIND CLOSED DOORS". I WAS TOLD EVERYTHING WOULD BE TAKEN CARE OF ASAP AFTER "THEIR CONSULTATION" AND AFTER IN NO UNCERTAIN TERMS, I COMMANDED THEM, I TALKED DOWN TO THEM FROM ON HIGH, AND I ORDERED THEM TO OVERTURN THE REJECTION AND APPROVE HER FIANCE VISA APPLICATION IMMEDIATELY AND DAYS LATER ALL WAS JUST FINE ... DO NOT FUQQ AROUND WITH THE FUQQ AROUND ... DON'T EVEN THINQ ABQUT IT ... ANYWAY WHEN LANster ARRIVED HUNGRY AND TIRED OLE' JOHN E BOY was uh READY AND WILLING TO DIVE RIGHT IN AND EAT ... your friend chicken gonna have to wait ... 9 months later to the day ... SPARK OF LIFE JOHNJOHN SMILING DANCES OUT INTO MY ARMS ... MALIBOG AKO TALAGA ..! CAN YOU "FEEL" COMING THROUGH ..? oh la la ... so HOW IN THE WORLD DID I KNOW LANI WOULD BE JOHNJOHN'S "MOM" AFTER I ASKED HER TO "MARRY ME" AFTER ONLY KNOWING HER 8 DAYS ..?
+
+YES, IT IS TRUE. 8 FUQQINQ DAYS. I JUST KNEW. MY GOOD "FRIEND", JOHN HORACE CALLAHAN, SAID HE THOUGHT "SHE WAS A GOOD GIRL, JOHN E" and "MY DAD TOLD ME IF I HAVE ENOUGH MONEY FOR A CAR PAYMENT EACH MONTH THEN I CAN GET MARRIED." "I WOULD GO FOR IT. SHE LOOKS LIKE SHE REALLY LOVES YOU JOHN E." ... TO THIS DAY, THERE ARE FEW AND FAR BETWEEN THAT MAKE ME LAUGH AND TELL MORE TRUTH TO MY FACE GOOD OR BAD THAN "HORACE" I USED TO SAY IT LIKE A HORSE NEYING REALLY LOUD AND LONG LIKE "HOOOOOOOOOOOOOOOOORACE" ... OLE' HORACE AS AN "HM2" "E-5" REMOVED SOME GOOD BO'S "Hemorrhoids" https://duckduckgo.com/?q=hemorrhoids WITH "DENTAL ANESTHETIC" AND IT WAS A "REAL PAIN IN THE ASS" I MEAN A "REAL SHIT SHOW" "FOR US" A "MOST SERIOUS MIRACLE" AS bo was an eQuipment QperatQr and was bouncing UP AND DOWN ALL DAY LONG ON THOSE SWOLLEN BLOOD-FILLED ASSHQLE PAINFUL ASS ROIDS and the surgeons at the 'hospital' on the 'base that was closing' so it was get transferred back to 'mainbody' on Guam or stay on the 'detachment' with 'us' and let John E Boy 'cut' that 'shit' out for ya' bo' ... BO' TOOK IT ... FUQQING MAN ..! BIT THAT "TOWEL" HARD AS FUCK ..! OLE' JOHN E BOY did a miracle ... we all 'threw some darts' rying to get a 'bullseye' while THE MASTER AT ARMS, GUNNERS MATE BIG PETER THE ROCK "MARSHALL" and HIS STOREKEEPER FRIEND JOHN E BOY "CHASE" HELD THE GOOD "SEABEE" DOWN "FIRMLY" WHEN BO' "WIGGLED" that 'ass' UP HIGH IN THE AIR being 'repaired' shall we say ... nice stitches JOHN E  BOY ... HORACE YOU ARE SOMETHING ELSE ... nice dart ... was that a TRIPLE TWENTY ... SWEET ... GOOD STITCH ... ANOTHER NICE DART DOUBLE 17 ..! CRACKER JACKS ... GET YOUR CRACKEDR JACKS here ... COLD WATER here ... GET YOUR COLD WATER ... ole' bo' healed fine ... HORACE's GREATNESS was recognized finally and he is now a Physicians Assistant naval officer still doing 'surgeries' ..! and ole' JOHN E BOY "HORACE" type well he is STILL FUNNY! STILL G_D LOVING! STILL WONDERFUL ..! C STORIES ... QET YQUR C Stories here ... c stories ..!
+
+I'VE ALWAYS BEEN QRAZY ... https://www.youtube.com/watch?v=bnnJnzhj028 ... AND THE TRQUBLE THAT IT'S PUT ME THRQUQH ..!
+
+BUT SOMEHOW I KNOW I JUST KNOW I JUST "FEEL" THINGS ... EVERYDAY ALL MY CHILDREN READ THIS BANNER I HAD MADE WITH GENERAL MACARTHUR'S WORDs UPON IT TO REMIND MYSELF ONCE AGAIN TO BE GOOD JOHN E Be Good be good ..! IT HAS THE 2 TATOOS I PROBABLY DID NOT NEED IN TRUTH BUT I GOT MY FIRST TATOO AFTER A DREAM OF CLIMBING UP A SPIRAL "41" STAIRCASE WHERE "HEAVEN" LOOKED LIKE COLORS FLYING EVERYWHERE AND SPARKLING THROUGH A GLASS STAIRCASE AND THEN SUDDENLY APPROACHING THE "LIGHT" AT THE STOP OF THS "STAIRWAY TO HEAVEN" I "SLIPPED" I "FELL OFF THE CLIFF" ... 
+
+OH NO! I AWOKE SCARED "FEEL"ing SO VERY ALONE IN THE BOTTOM BUNK OF MY BARRACKS ROOM IN GULFPORT, MISSISSIPPI IN "HOMEPORT" WAITING TO GO "JAPAN" AROUND AUGUST 1987. MY ROOMMATE AT THE TIME HAD BEEN TALKING IN HIS SLEEP ABOVE ME IN THE TOP BUNK FOR MANY NIGHTS IN A ROW. YELLING THINGS OUT ABOUT "AN AIR CONDITIONING AND REFRIGERATION ACnR ADVANCED "C" SCHOOL CLASS FOR E-5s and E-6s IN THE UT RATING HE WAS A UT2 RATE UTILITIESman SECOND CLASS. OH bo' was crazy too. HE SPOKE THIS "PIG-LATIN' LIKE LANGUAGE HE LEARNED AS A CHILD FROM HIS MOTHER IN CONNECTICUT. SHE SPOKE "GIBBERISH" SO THE OTHER GOOD Q.I.D.S K.I.D.S. WOULD NOT HEAR HER CURSING. 
+
+THE GIBBERISH LANGUAGES WORKS LIKE THIS:
+
+THE FIRST LETTER OF ANY SYLLABLE OF ANY WORD COMES FIRST.
+
+THEN AFTER THE FIRST LETTER OF ANY SYLLABLE COMES "ITHAG" THEN THE REST OF THE LETTERS FOR THAT SYLLABLE.
+
+SO ... let us say JOHNNY TOGETHER ... then LANI TOGETHER to understand better 'kind' one ... 
+
+... now "OPEY" HIS FIRST NAME FOR REAL "OPEY" FROM "CONNECTICUT" COULD SPEAK "FLUENT" "FAST" "FASTER THAN THAT" "GIBBERISH" WITH HIS "FRIENDS FROM THE NEIGHBORHOOD IN CONNECTICUT GROWING UP WHO OVERCAME OPEY'S MOM'S LEARNING BARRIER" AND THESE "FRIENDS" SOMEHOW JUST SHOWED UP ON A NAVAL SHIP WHILE WE "SEABEES" WHERE IN THE PHILIPPINES AND WHEN THEY STARTED TALKING "GIBBERISH" THE PUREHEART PILIPINA STORE OWNERS THOUGHT "WE WERE SCHEMING" ... WE WERE SHOWN THE DOOR ... thanks OPEY ... I NEVER REALLY EVEN THOUGH "GIBBERISH" WAS A REAL THING ... my mom would say stop talking gibberish if she could smell something when I spoke WORDs strange to her like 'THE MONKEY HAS LANDED' 'GOT ANY NUGS bo'?' you know how we do We Do WE DO ... 
+
+I WENT TO A TATOO PARLOR AND THE SIGN ON THE WALL AT "JACK AND DIANES" TATOO PARLOR WHERE JACX'S BROTHER, THOMAS, WORKED HE DREW WHAT I DESCRIBED AS A "C" INTO AN OLD ENGLISH "G" FOR G_D. HE PUT A "HALO" ON TOP AND PERMANENTLY PUT G_D OVER MY MOST PUREHEART FOR ME TO REMEMBER G_D ALWAYS IN THE MIRROR AND DIANE DID HER WORK ARTFULLY AS SHE WATCHED, STOPPED, GOT ME A TOWEL WET COOL AND SOMETHING TO EAT SWEET AND WATER TO DRINK ... I FELT BETTER ... I WAS PATIENT ... I FOLLO@WED HER CARE INSTRUCTIONS ... ALL IS WELL ... ADMITTEDLY THOUGH I AM NOT TOO BIG ON THE SIGHT OF BLOOD EITHER ... I GAG EASILY ON FILTHY SMELLS TOO ... I HAVE THE UTMOST RESPSECT FOR NURSES TAKING CARE OF THE OLD ... BABY POOP ... NO PROBLEM ... OLD MAN / WOMAN / ADULT-CHILD THROWUP VOMIT PUKE  OR SHIT SMELL OH HELL NO ... NOT ME OH NOT ME AT ALL ... OH NO ... PASS ... COUNT ME OUT ... ON THE OTHER HAND ... NMCB 133 CB like "SeaBee' Construction Battalion" ... N.M.C.B. Naval Mobile Construction Battalion" WE BUILD! WE FIGHT! WE PARTY ALL NIGHT ..! THAT "CAN DO" SPIRIT THAT SEA "BEE" THEY FLY 'US' 'BEES' EVERYWHERE PLEASE THANK YOU SO WE DON'T HAVE TO BE ON THE SHIP ALL DAY AND NIGHT LIKE FAGS AND WE CAN GO OUT AND PLAY WITH REAL SOFT LEGS, HAIRY PUSSY, CREAMY, REALLY CREAMY, MORE CREAMY THAN THAT, GROWN WOMEN LIKE A REAL GROWN ASS MAN..! YEAH ..! NO STEEL BEACH PICNICS ... REAL SOFT LEGS ... FUQQ YQUR FAG ANTI-MEN ANTI-WOMEN ANTI-NATURE ANTI-FRATERNIZATION PRO-BOOFOO PRO-MASTURBATION FAGGOT "DOD" "PEDOGON" POLICIES FALSE FLAG FAG FLAG OFFICERS ADMIRALS GENERALS FUQQ QFF FALSEE FLAG FAG FLAG DEVIANT SICKENING LOW iQ WORTHLESS CONTROLLING SCREAMING YELLING KNOW-NOTHING PIECE OF SHIT-AND-BLOODY-MUCOUSY-MAIZE-IN-BUTT-JUICE-COVERED-PENILE-COB-MUNCHING MILITANT BOOFOO POLICE STATE MONSTER FILTH ... WORTHLESS FILTH ... RING KNOCKER PISSboy ... GAY ASShat ACADEMY MILITANT MONSTER ... WE WANT SOFT LEGS ... WE WANT TRUTH ... WE WANT PUREHEART  SPIRIT ... BEFORE LANI AND I EVEN GOT MARRIED I RETURNED TO GULFPORT, MS FROM THE PUREHEART PILIPINAS "STILL MISSING AND THINKG ABOUT YEONNA AS I AM TODAY STILL"  AND JACK GAVE ME THE 2nd tattoo IS OVER THE OTHER SIDE OF MY CHEST aCROSS from my most PUREHEART a YING-YANG a symbol of BALANCE with my GREEN eyes in the WHITE at the top and Lani's BROWN "KAY" eye at the 'bottom' in the black ... 
+
+Build me a son, O LORD, 
+
+who will be strong enough to know when he is weak, 
+
+and brave enough to face himself when he is afraid, 
+
+one who will be proud and UNBENDING in honest 'defeat',
+
+and HUMBLE AND GENTLE in 'victory'.
+
+General Douglas MacArthur
+
+THERE IS A VERY FINE LINE BETWEEN "WINNING" "VICTORY" and "LOSING" "DEFEAT" ... even when I 'lose' I still 'win' ...
+
+https://www.youtube.com/watch?v=iVBX7l2zgRw
+
+... young jedi knight ... you can strike me down ... I shall become more powerful than you can possibly imagine ... no ye' not ..?
+
+https://www.brainyquote.com/quotes/douglas_macarthur_115561 
+
+I PRAY this GOOD K.I.D. was a GOOD KNIGHT OF THE MacArthur ROUND TABLE like General Smedey Butler a real SOLDIER OF G_D IN TRUTH.
+
+https://en.wikipedia.org/wiki/War_Is_a_Racket
+
+... soul food ...
+
+"IF "I" "AM" WRONG, WHY DO I TEACH "MY CHILDREN" TO CALL ME OUT QUICK AND ACCEPT NOTHING BUT THE TRUTH ... JQKE'em if they can't take a FUQQ ... "THINK FOR YOURSELF" "FOLLOW NO MAN" BE YOU I LOVE YOU I LIKE YOU THE WAY YOU ARE AND  YOU NEED NOTHING FROM ANYONE FOR ME TO LOVE YOU SO "BE YOU" "STAND UP" "UNBENDING" ... 
+
+... THANK YOU ALL LIKE YOU OF YOUR "KIND" KIND OF YOUR ILK "" IN TRUTH WITH MOST PUREHEART  ' "IN" "ALL" ' "" OF "ALL" "KINDS" EVERYWHERE ANYTIME ALWAYS FOREVERmore of all neighborHOODs of all communities of all kinds of all races of all tongues of all religions of all nations of all cultures of all times of all beings of all dimensions of all parallels of all gates of all souls MORALLY COURAGEOUS, FREE-SPEECH-SUPPORTING, PUREHEART IN TRUTH GITHUB! I LOVE TO SEE YOUR WONDERFUL "HELPFUL" NATURE son of ancient Hindu ... 
 
 GOOD K.I.D.s
 
