@@ -11,7 +11,19 @@ EVERYDAY'S A REVOLUTION ... GLORY GLORY HALLELUJAH ... https://www.youtube.com/w
 
 Bruce Lee
 
-pssst ... https://www.youtube.com/watch?v=T-1X8Q2IzX8 Qver here ...
+WOMAN 女 + CHILD 子 = 好 
+
+GOOD TOGETHER MOM + BABY = GOOD
+
+See her 'crossed legs' ..?
+
+DAUGHTER 女 + SON 子 = 好 GOOD 
+
+TOGETHER HER + HIM = GOOD
+
+See his 'fatherly' OSIRIS' 'support staff' protective 'role' PROTECTING his beLOVEd 'motherly' ISIS' feminine soft legs' 'crossed legs' nurturing most PUREHEART LOVE ..?
+
+pssst ... hey 'you' cQme Qver here ... the lady tell me you can sing ... and you better be a singer ... you know what I AM getting at, RIGHT ..? PSssD ... sweetheart ... sleepy head ... time to wake up now honey ... love you ... time to WAKE UP babe ... BABANGON TAYO ... RISE UP ... WAKE UP one I LOVE ... HEAR ME ISIS ..? https://www.youtube.com/watch?v=T-1X8Q2IzX8 ... HEAR ME OSIRIS ..? ... well uh ... Well Uh ... WELL UH ... you know ... when 'you' 'soft legs' 'crossed legs' 'feel' 'alive' and 'AWAKE' 'MORE WOKE THAN THAT' 'REALLY FUQQINQ WQKE' and 'you' are 'natural', 'birthday suit in MOST PUREHEART "WATER" CRYSTALLINE SPIRTUAL SOUL CLEANSING CLEAN 'relax-max' mQde Qf QperatiQn', 'CRYSTALLINE' HIGH QUALITY 'PUREHEART' H2O 'fresh' and 'clean' and please cQme Qver here and hug and kiss me and talk to me for a while my LOVE ... thank you ...
 
 TRUTH is the WAY to LIFE with G_D. 100% NOLYN. 
 
@@ -33,12 +45,15 @@ CAN 'you' 'see' ..? "LOOK HARDER" 'simba' beCAUSE 'nala' is 'COUNTING ON YOU' LI
 IF YOU "BELIEVE WITH ALL OF YOUR MOST PUREHEART", THEN YOU WILL "SEE" "KIND ONE". PROMISE.
 
 男人和女人 man and woman
+
 人子 son of man
 
 Can you 'see' 女 her 'crossed legs'?
+
 Can you 'see' 子 his 'support staff'?
 
 'See' her 女 crossed legs 女 in GOOD 好 ?
+
 'See' his 子 support staff 子 in GOOD  好 ?
 
 ... you've got your ball ... you've got your chain ... who's got their claws in you my friend ... https://www.youtube.com/watch?v=k7in-9E3ImQ ... sweet like candy to my soul ... sweet you rock and sweet you roll ... lost for you ... I AM so lost for you ... aaah when you come CRASH INTO ME and I come into you ... hike up your skirt a little more ... show your world to me ... in boy's dream ... you wear nothing but you wear it so well ...
@@ -52,15 +67,28 @@ We have forgotten more than we know ...
 learn 學 see the many steps to learn in climbing upward to Heaven?
 
                       see her crossed legs sitting 'indian style'?
-人子 son of man 和 and 女人 woman
-  see his support staff?
+
+人子 son of man 
+
+和 and 
+
+女人 woman
+
+See his support staff ..?
   
 Did I mention I LOVE SOFT LEGS? OH I LOVE SOFT LEGS! I LOVE PUREHEART! I LOVE TRUTH! I PROTECT AND LOVE G_D LIKE AN INFANT. He's PROUD of 'his support staff' ... he loves natural ... natural wood, natural hair, natural skin makeup free, natural glowing beauty, natural wonderful softenesses however small or large just you the real you as 'firm' 'feeling' 'healthy' 'wonderful' PUREHEART you is what I LOVE natural you just being you like the PROUDEST MONKEY YOU EVER SEEN ... https://www.youtube.com/watch?v=HQdphbEMmbY ... MONKEY SEE MONKEY DO ... yeah ... real proud to be you like I LOVE 'confident you' too happy 'kind' 'humble' 'intellectual' 'loving' 'gentle' 'giving' 'industrious' 'efficient' 'playful' 'hardworking' 'can do' 'work hard play hard' ... all things were Quiet then ... but NOW I AM THE PROUDEST "MONKEY" YOU EVER SEEN ... yeah "MAPUTING UNGOY" "WHITE MONKEY" "RED MONKEY" "RED 'bird'" "RED PEOPLE" ... THE PROUDEST MONKEY YOU EVER SEEN ... yeah Yeah YEAH the prQudest monQey ...
 
-WOMAN 女 + CHILD 子 = 好 GOOD TOGETHER MOM + BABY = GOOD
-see her crossed legs?
-DAUGHTER 女 + SON 子 = 好 GOOD TOGETHER HER + HIM = GOOD
-                  see his support staff?
+WOMAN 女 + CHILD 子 = 好 
+
+GOOD TOGETHER MOM + BABY = GOOD
+
+See her 'crossed legs' ..?
+
+DAUGHTER 女 + SON 子 = 好 GOOD 
+
+TOGETHER HER + HIM = GOOD
+
+See his 'fatherly' OSIRIS' 'support staff' protective 'role' PROTECTING his beLOVEd 'motherly' ISIS' feminine soft legs' 'crossed legs' nurturing most PUREHEART LOVE ..?
 
 ancient Han embedded 'her crossed legs' in the kanji that meant LOVE that meant GROW that showed intellect like MATHEMATICS and NUMBER 'she' 'her crossed legs' are there to remind us all that without 'her' there is no LOVE no JOY no LIFE no WAY in TRUTH you will LOVE 'her' and 'her children' and you will PROTECT 'her' and 'her children' son of man ... PROMISE.
 
