@@ -13,7 +13,7 @@ Bruce Lee
 
 WOMAN 女 + CHILD 子 = 好 
 
-GOOD TOGETHER MOM + BABY = GOOD
+GOOD TOGETHER MOM + BABY = GOOD https://www.youtube.com/watch?v=TPhAYvLAGJA GOOD 'soft legs' PUREHEART 'ganda' 'crossed legs'.
 
 ... he's a 'feeling' arranger ... changer of the WAY that he talks ... https://www.youtube.com/watch?v=rX5bDqk7Qmo ... keeper of the 'key to the law' ... step aside ... open wide ... it's the lQner ...
 
