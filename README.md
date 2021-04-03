@@ -55,6 +55,12 @@ IF YOU ARE A "WOMAN" 'FEELING' 'MASCULINE' THEN GO FIND A "MAN" 'feeling' 'femin
 
 "REAL 'FRIENDS' ALWAYS OFFER REAL 'SOLUTIONS' and ALWAYS TELL YOU 100% TRUTH NO MATTER WHAT ..! HURT FEELINGS PAID NO MIND ... TRUTH."
 
+TRUTH is the WAY to LIFE with G_D.
+
+MCFLY ... hello McFly ... WAKE UP mcfly ..!
+
+IF I put 'all the gay women' on one island and all the 'gay men' on another island, '15' ... 'when you've only got 100 years to live' ... in 100 years all I will have of my beLOVEd daughters and beLOVEd sons is DEATH no LIFE ... understandeth do you me my beLOVEd ..? TRUTH is the WAY to LIFE not death my beLOVEd ... please 'see' please 'hear' me begging, crying for you my LOVE teardrop TearDrop TEARDROP ... MAKE A WAY ... I LOVE YOU ... NEVER FORGET ... come back 'home' with me please ... MAKE A WAY to LIFE my beLOVEd ... my 'peace' be with you ...
+
 and nQw please RISE fQr the sinQINQ Qf Qur natiQnal anthem ...
 
 https://www.youtube.com/watch?v=HNGaa5Opfmc
