@@ -15,6 +15,8 @@ WOMAN 女 + CHILD 子 = 好
 
 GOOD TOGETHER MOM + BABY = GOOD
 
+... he's a 'feeling' arranger ... changer of the WAY that he talks ... https://www.youtube.com/watch?v=rX5bDqk7Qmo ... keeper of the 'key to the law' ... step aside ... open wide ... it's the lQner ...
+
 See her 'crossed legs' ..?
 
 DAUGHTER 女 + SON 子 = 好 GOOD 
