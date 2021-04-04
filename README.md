@@ -5,6 +5,16 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
+... then I WILL ... https://www.youtube.com/watch?v=86vsrC9FO0c ... WHOOP HIM ..!
+
+... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
+
+Bruce Lee
+
+WOMAN 女 + CHILD 子 = 好
+
+EVERYDAY'S A REVOLUTION ... GLORY GLORY HALLELUJAH ... https://www.youtube.com/watch?v=Y0Yg9wjctRw ... I want to be ... I Want To Be ... I WANT "TO BE" ..! welcQme tQ the future ..!
+
 The Rich Young Man
 … 20 “All these I have kept,” said the young man. “What do I still lack?” 
 
@@ -12,7 +22,7 @@ The Rich Young Man
 
 “IF you want to be perfect, 
 
-go, sell your possessions and give to the poor, and you will have treasure in HEAVEN."
+ye' GO, LEAVE YOUR "MONEY" BEHIND, SELL ALL YOUR POSSESSIONS AND GIVE TO THE POOR, and you will have treasure in HEAVEN."
 
 "THEN YOU GO AND YOU ALWAYS FOLLOW TRUTH AND WORSHIP ONLY G_D REMEMBER WHAT I TOLD YOU IN MATTHEW 5:8 I AM LEAVING HERE TOO IN MATTHEW 19:20-22 FOR A GOOD "CROSS" REFERENCE 'apostles' so 'listen' GOOD jaQQasses ... nQw that was TRUTH and 'funny' tQQ ..!
 
@@ -30,11 +40,7 @@ follow TRUTH.” 22 When the young man heard this, he went away in sorrow, becau
 MATTHEW 19:20-22
 https://biblehub.com/matthew/19-21.htm
 
-EVERYDAY'S A REVOLUTION ... GLORY GLORY HALLELUJAH ... https://www.youtube.com/watch?v=Y0Yg9wjctRw ... I want to be ... I Want To Be ... I WANT "TO BE" ..! welcQme tQ the future ..!
-
-... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
-
-Bruce Lee
+I SAY AGAIN ..!
 
 WOMAN 女 + CHILD 子 = 好 
 
