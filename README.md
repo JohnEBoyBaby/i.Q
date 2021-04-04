@@ -15,7 +15,7 @@ Bruce Lee
 
 WOMAN 女 + CHILD 子 = 好
 
-... hey 'mom' lQQk ... "HEY ..! LET'S GET MIKEY ..! 'HE' 'wQn't' 'EAT' 'IT' 'he' 'hates' 'everythinQ' ..!" ... https://www.youtube.com/watch?v=CLQ0LZSnJFE ... he liQes 'it' ... HEY "MOM" ... MIKEY LIKES IT ..! ... "YOU'RE THE ONLY 1 WHO HAS TQ KNQW ..." ... PQQF ..! 'twas the day after ..! FAIR WINDS AND FOLLOWING SEAS ... ARRIVING TRUTH ... DINQ FUQQINQ DINQ ..!
+... LIFE ..! hey 'mom' lQQk ... "HEY ..! LET'S GET MIKEY ..! 'HE' 'wQn't' 'EAT' 'IT' 'he' 'hates' 'everythinQ' ..!" ... https://www.youtube.com/watch?v=CLQ0LZSnJFE ... he liQes 'it' ... HEY "MOM" ... MIKEY LIKES IT ..! ... PQQF ..! 'twas the day after ..! FAIR WINDS AND FOLLOWING SEAS ... ARRIVING TRUTH ... DINQ FUQQINQ DINQ ..! "YOU'RE THE ONLY 1 WHO HAS TQ KNQW ..." ...
 
 EVERYDAY'S A REVOLUTION ... GLORY GLORY HALLELUJAH ... https://www.youtube.com/watch?v=Y0Yg9wjctRw ... I want to be ... I Want To Be ... I WANT "TO BE" ..! welcQme tQ the future ..!
 
