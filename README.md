@@ -5,9 +5,18 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
-GIVE EVERYTHING YOU HAVE AWAY AND FOLLOW TRUTH ... TRUTH is the WAY to LIFE with G_D.
+PUT YOUR FAITH IN NO MAN. RIGHT, MIKEY ..? RIGHT. 
+
+WORSHIP AND TRUST G_D NOT Q OR ANYONE ELSE. G_D ALONE. TRUST YOURSELF. IF "Q" IS "REALLY GOOD" THEN BY Q'S "REALLY GOOD FRUITS SHALL WE KNOW Q" OR BY Q'S "EMPTY PROMISES" SHALL WE, 'us', who must 'be brought to heel', KNQW 'them' ... 
 
 then I WILL ... https://www.youtube.com/watch?v=86vsrC9FO0c ... WHOOP HIM ..!
+
+... GIVE EVERYTHING YOU HAVE AWAY AND FOLLOW TRUTH ... TRUTH is the WAY to LIFE with G_D.
+
+The Rich Young Man
+22 When the young man heard this, he went away in sorrow, because he had great wealth.…
+
+MATTHEW 19:20-22
 
 ... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
 
@@ -22,6 +31,7 @@ WOMAN 女 + CHILD 子 = 好
 EVERYDAY'S A REVOLUTION ... GLORY GLORY HALLELUJAH ... https://www.youtube.com/watch?v=Y0Yg9wjctRw ... I want to be ... I Want To Be ... I WANT "TO BE" ..! welcQme tQ the future ..!
 
 The Rich Young Man
+
 … 20 “All these I have kept,” said the young man. “What do I still lack?” 
 
 21 TRUTH told him, 
