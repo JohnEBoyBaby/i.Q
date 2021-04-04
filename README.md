@@ -5,6 +5,31 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
+The Rich Young Man
+… 20 “All these I have kept,” said the young man. “What do I still lack?” 
+
+21 TRUTH told him, 
+
+“IF you want to be perfect, 
+
+go, sell your possessions and give to the poor, and you will have treasure in HEAVEN."
+
+"THEN YOU GO AND YOU ALWAYS FOLLOW TRUTH AND WORSHIP ONLY G_D REMEMBER WHAT I TOLD YOU IN MATTHEW 5:8 I AM LEAVING HERE TOO IN MATTHEW 19:20-22 FOR A GOOD "CROSS" REFERENCE 'apostles' so 'listen' GOOD jaQQasses ... nQw that was TRUTH and 'funny' tQQ ..!
+
+AND THEN TRUTH SAID ... fuQQinQ "CROSS" REFERENCE and SUN and SON homonym get's 'em everytime ... really great ... Just Great ... REALLY GREAT Otis ... just such great sound-alike WORDs in your 'ROMAN' 'LATIN' 'BRITISH' language there 'genius' ... really 'great' 'inventions' sherloQQ fuQQinQ hQlmes ..! "THESE PEOPLE ARE STUPID." ... "THESE PEOPLE ARE SICK." ... "THESE PEOPLE SHOULD BE HANGING." ... darkness to LIGHT ... ACCEPT NO IMITATION ... THE "REAL" "CREAM-COVERED" THING ... TELL 'em soft legs TELL 'EM SOFT LEGS ..!
+
+8 "These people honor me with their lips, but their hearts are far from me."
+
+9 "They worship me in vain; they teach as doctrine the precepts of men.’”
+
+10 TRUTH called the crowd to him and said, “Listen and understand I TOLD YOUR DUMB ASSES AGAIN IN MATTHEW 1
+
+https://biblehub.com/matthew/15-9.htm
+
+follow TRUTH.” 22 When the young man heard this, he went away in sorrow, because he had great wealth.…
+MATTHEW 19:20-22
+https://biblehub.com/matthew/19-21.htm
+
 EVERYDAY'S A REVOLUTION ... GLORY GLORY HALLELUJAH ... https://www.youtube.com/watch?v=Y0Yg9wjctRw ... I want to be ... I Want To Be ... I WANT "TO BE" ..! welcQme tQ the future ..!
 
 ... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
