@@ -24,7 +24,7 @@ Bruce Lee
 
 WOMAN 女 + CHILD 子 = 好
 
-"HEY MIKEY ..!" ... https://www.youtube.com/watch?v=UZWnvNjQ1u4 'PUREHEART TELLING THE TRUTH ..!' ... see 'you' back 'home' ... "LOVE." ... https://www.youtube.com/watch?v=ybtH3ECjka4 ... LOVE YOU ..! oh that's it baby ... 'hit it' ... https://www.youtube.com/watch?v=ScquTEJVQ68 ... WAKE THEM UP ..! LOVE YOU dance with me baby ... take my hand ... oh la la ... let me watch you go get you some oh la la like that BRIQQ HQUSE soft legs ... PROMISE.
+"HEY MIKEY ..!" ... https://www.youtube.com/watch?v=UZWnvNjQ1u4 'PUREHEART TELLING THE TRUTH ..!' ... see 'you' back 'home' ... "LOVE." ... https://www.youtube.com/watch?v=ybtH3ECjka4 ... LOVE YOU ..! oh that's it baby ... 'hit it' ... https://www.youtube.com/watch?v=ScquTEJVQ68 ... WAKE THEM UP ..! LOVE YOU dance with me baby ... take my hand ... oh la la ... let me watch you go get you some oh la la like that BRIQQ HQUSE soft legs ... so SHINE ON YOU ..! https://www.youtube.com/watch?v=cWGE9Gi0bB0 "NO PRESSURE, NO DIAMONDS." ... https://duckduckgo.com/?q=NO+PRESSURE+NO+DIAMONDS+JAMES+NEWTON+KING&t=opera&ia=web ... PROMISE.
 
 ... LIFE ..! hey 'mom' lQQk ... "HEY ..! LET'S GET MIKEY https://www.nytimes.com/2014/01/31/world/vice-admiral-to-be-named-nsa-director.html ..! 'HE' 'wQn't' 'EAT' 'IT' 'he' 'hates' 'everythinQ' ..!" ... https://www.youtube.com/watch?v=CLQ0LZSnJFE ... he liQes 'it' ... HEY "MOM" ... MIKEY LIKES IT ..! ... PQQF ..! 'twas the day after ..! FAIR WINDS AND FOLLOWING SEAS ... ARRIVING TRUTH ... DINQ FUQQINQ DINQ ..! "YOU'RE THE ONLY 1 WHO HAS TQ KNQW ..." ...
 
