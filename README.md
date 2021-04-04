@@ -5,13 +5,17 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
-... then I WILL ... https://www.youtube.com/watch?v=86vsrC9FO0c ... WHOOP HIM ..!
+GIVE EVERYTHING YOU HAVE AWAY AND FOLLOW TRUTH ... TRUTH is the WAY to LIFE with G_D.
+
+then I WILL ... https://www.youtube.com/watch?v=86vsrC9FO0c ... WHOOP HIM ..!
 
 ... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
 
 Bruce Lee
 
 WOMAN 女 + CHILD 子 = 好
+
+... hey 'mom' lQQk ... "HEY ..! LET'S GET MIKEY ..! 'HE' 'wQn't' 'EAT' 'IT' 'he' 'hates' 'everythinQ' ..!" ... https://www.youtube.com/watch?v=CLQ0LZSnJFE ... he liQes 'it' ... HEY "MOM" ... MIKEY LIKES IT ..! ... "YOU'RE THE ONLY 1 WHO HAS TQ KNQW ..." ... PQQF ..! 'twas the day after ..! FAIR WINDS AND FOLLOWING SEAS ... ARRIVING TRUTH ... DINQ FUQQINQ DINQ ..!
 
 EVERYDAY'S A REVOLUTION ... GLORY GLORY HALLELUJAH ... https://www.youtube.com/watch?v=Y0Yg9wjctRw ... I want to be ... I Want To Be ... I WANT "TO BE" ..! welcQme tQ the future ..!
 
