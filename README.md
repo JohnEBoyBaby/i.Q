@@ -1,7 +1,7 @@
 # i.Q
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
-"HEY MIKEY ..!" ... https://www.youtube.com/watch?v=UZWnvNjQ1u4 'PUREHEART TELLING THE TRUTH ..!' ... see 'you' back 'home' ... PROMISE.
+"HEY MIKEY ..!" ... https://www.youtube.com/watch?v=UZWnvNjQ1u4 'PUREHEART TELLING THE TRUTH ..!' ... see 'you' back 'home' ... "LOVE." ... https://www.youtube.com/watch?v=ybtH3ECjka4 ... LOVE YOU ..! PROMISE.
 
 I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! SAY MY NAME ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH ..! WHO I AM IS ..? TRUTH ..!
 
