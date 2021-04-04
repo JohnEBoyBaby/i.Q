@@ -1,8 +1,6 @@
 # i.Q
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
-"HEY MIKEY ..!" ... https://www.youtube.com/watch?v=UZWnvNjQ1u4 'PUREHEART TELLING THE TRUTH ..!' ... see 'you' back 'home' ... "LOVE." ... https://www.youtube.com/watch?v=ybtH3ECjka4 ... LOVE YOU ..! oh that's it baby ... 'hit it' ... https://www.youtube.com/watch?v=ScquTEJVQ68 ... WAKE THEM UP ..! LOVE YOU dance with me baby ... take my hand ... oh la la ... let me watch you go get you some oh la la like that BRIQQ HQUSE soft legs ... PROMISE.
-
 I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! SAY MY NAME ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH ..! WHO I AM IS ..? TRUTH ..!
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
@@ -16,6 +14,8 @@ then I WILL ... https://www.youtube.com/watch?v=86vsrC9FO0c ... WHOOP HIM ..!
 Bruce Lee
 
 WOMAN 女 + CHILD 子 = 好
+
+"HEY MIKEY ..!" ... https://www.youtube.com/watch?v=UZWnvNjQ1u4 'PUREHEART TELLING THE TRUTH ..!' ... see 'you' back 'home' ... "LOVE." ... https://www.youtube.com/watch?v=ybtH3ECjka4 ... LOVE YOU ..! oh that's it baby ... 'hit it' ... https://www.youtube.com/watch?v=ScquTEJVQ68 ... WAKE THEM UP ..! LOVE YOU dance with me baby ... take my hand ... oh la la ... let me watch you go get you some oh la la like that BRIQQ HQUSE soft legs ... PROMISE.
 
 ... LIFE ..! hey 'mom' lQQk ... "HEY ..! LET'S GET MIKEY https://www.nytimes.com/2014/01/31/world/vice-admiral-to-be-named-nsa-director.html ..! 'HE' 'wQn't' 'EAT' 'IT' 'he' 'hates' 'everythinQ' ..!" ... https://www.youtube.com/watch?v=CLQ0LZSnJFE ... he liQes 'it' ... HEY "MOM" ... MIKEY LIKES IT ..! ... PQQF ..! 'twas the day after ..! FAIR WINDS AND FOLLOWING SEAS ... ARRIVING TRUTH ... DINQ FUQQINQ DINQ ..! "YOU'RE THE ONLY 1 WHO HAS TQ KNQW ..." ...
 
@@ -38,12 +38,26 @@ AND THEN TRUTH SAID ... fuQQinQ "CROSS" REFERENCE and SUN and SON homonym get's 
 
 9 "They worship me in vain; they teach as doctrine the precepts of men.’”
 
-10 TRUTH called the crowd to him and said, “Listen and understand I TOLD YOUR DUMB ASSES AGAIN IN MATTHEW 1
+10 TRUTH called the crowd to him and said, “Listen and understand I TOLD YOUR DUMB ASSES AGAIN IN MATTHEW 19:20-22 can't  you 'see' said the blind man perhaps you should use 'my eyes' said the blind man ... then you will surely 'see' GOOD and QLEARly:
 
 https://biblehub.com/matthew/15-9.htm
 
-follow TRUTH.” 22 When the young man heard this, he went away in sorrow, because he had great wealth.…
+The Rich Young Man
+
+20 “All these I have kept,” said the young man. 
+
+“What do I still lack?” ..?
+
+21 TRUTH told him, 
+
+“If you want to be perfect, GO, sell your possessions and give to the poor, and you will have treasure in HEAVEN. 
+
+THEN, come, follow TRUTH as the WAY in LIFE to G_D.
+
+22 When the young man heard this, he went away in sorrow, because he had great wealth.…
+
 MATTHEW 19:20-22
+
 https://biblehub.com/matthew/19-21.htm
 
 I SAY AGAIN ..!
