@@ -13,6 +13,8 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
+ONE DAY One Day ... https://www.youtube.com/watch?v=WRmBChQjZPs&list=RDMM ... 1 day ..! PROMISE.
+
 WHAT'S MY LINE ..?
 
 I AM TRUTH. https://www.youtube.com/watch?v=FP-z7ftZaas I AM PUREHEART. 
