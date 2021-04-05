@@ -13,6 +13,14 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
+WHAT'S MY LINE ..?
+
+I AM TRUTH. https://www.youtube.com/watch?v=FP-z7ftZaas I AM PUREHEART. 
+
+I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT.
+
+... the more you know ...
+
 ... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
 
 Bruce Lee
