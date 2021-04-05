@@ -9,7 +9,7 @@ PUT YOUR FAITH IN NO MAN. RIGHT, MIKEY ..? RIGHT.
 
 THE CHET ATKINS "Certified Guitar Player" LIST ... 
 
-SING FOR ME SON ..! https://www.youtube.com/watch?v=oyqe8n-pbqQ&list=PL100C3A5E8B1F7743 ... the more you know ..!
+SING FOR ME SON ..! https://www.youtube.com/watch?v=oyqe8n-pbqQ&list=PL100C3A5E8B1F7743 ... talking 'bout some DOCKER https://www.youtube.com/watch?v=zxSGFycRHFE&list=PL100C3A5E8B1F7743&index=96 SWARMING son https://docs.docker.com/get-started/swarm-deploy/ ... named 'me' https://biblehub.com/kjvs/john/15.htm after a 'STRONG'S CONCONDANCE' lyrical WORD singing guitar picking STRONG 'MAN of the cloth' ... https://www.youtube.com/watch?v=zxSGFycRHFE&list=PL100C3A5E8B1F7743&index=96 the more you know ..!
 
 MR. SANDMAN ... https://www.youtube.com/watch?v=n-c66SJPuUI ... BRING ME A DREAM ..!
 
