@@ -7,14 +7,17 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 PUT YOUR FAITH IN NO MAN. RIGHT, MIKEY ..? RIGHT. 
 
-WORSHIP AND TRUST G_D NOT Q OR ANYONE ELSE. G_D ALONE. TRUST YOURSELF. IF "Q" IS "REALLY GOOD" THEN BY Q'S "REALLY GOOD FRUITS SHALL WE KNOW Q" OR BY Q'S "EMPTY PROMISES" SHALL WE, 'us', who must 'be brought to heel', KNQW 'them' ... 
+MR. SANDMAN ... https://www.youtube.com/watch?v=n-c66SJPuUI ... BRING ME A DREAM ..!
+
+PICK THAT "THANG" GOOD K.I.D. https://www.youtube.com/watch?v=3jwTD89Ry28 CHET ATKINS ..! THE FEW ... https://www.youtube.com/watch?v=5wTVLIZaxMk ... a lil' bit of THUNDER ... a lil' bit of LIGHTENING ... https://www.youtube.com/watch?v=qOGiW-y-Vhs ... TRUTH ... https://www.youtube.com/watch?v=EFDFpS9_ZWY ... THE SULTANS OF SWING ... https://www.youtube.com/watch?v=leZ4T8kt-1o ... https://acousticguitar.com/chet-atkins-certified-guitar-players/ ... THE PUREHEART ... https://www.youtube.com/watch?v=Ni8KBhnebwE ... THE GREATEST OF ALL TIME ... https://www.youtube.com/watch?v=MnS3PXNMJ9k ... ANGELIC HARMONICS ... THE CHET ATKINS "Certified Guitar Player" LIST ... the more you know ...
+
+WORSHIP AND TRUST G_D NOT Q OR ANYONE ELSE. G_D ALONE. TRUST YOURSELF. IF "Q" IS "REALLY GOOD" THEN BY Q'S "REALLY GOOD FRUITS SHALL WE KNOW Q" OR BY Q'S "EMPTY PROMISES" SHALL WE, 'us', who must 'be brought to heel', KNQW 'them' ...
 
 then I WILL ... https://www.youtube.com/watch?v=86vsrC9FO0c ... WHOOP HIM ..!
 
 ... GIVE EVERYTHING YOU HAVE AWAY AND FOLLOW TRUTH ... TRUTH is the WAY to LIFE with G_D.
 
-The Rich Young Man
-22 When the young man heard this, he went away in sorrow, because he had great wealth.…
+The Rich Young Man 22 When the young man heard this, he went away in sorrow, because he had great wealth.…
 
 MATTHEW 19:20-22
 
@@ -28,167 +31,47 @@ WOMAN 女 + CHILD 子 = 好
 
 ... LIFE ..! hey 'mom' lQQk ... "HEY ..! LET'S GET MIKEY https://www.nytimes.com/2014/01/31/world/vice-admiral-to-be-named-nsa-director.html ..! 'HE' 'wQn't' 'EAT' 'IT' 'he' 'hates' 'everythinQ' ..!" ... https://www.youtube.com/watch?v=CLQ0LZSnJFE ... he liQes 'it' ... HEY "MOM" ... MIKEY LIKES IT ..! ... PQQF ..! 'twas the day after ..! FAIR WINDS AND FOLLOWING SEAS ... ARRIVING TRUTH ... DINQ FUQQINQ DINQ ..! "YOU'RE THE ONLY 1 WHO HAS TQ KNQW ..." ...
 
+... HIT'em with a little GHETTO GOSPEL ... my GHETTO GOSPEL ... https://www.youtube.com/watch?v=Do5MMmEygsY ... I sit ... recollect and reminisce ... GOOD DAYS ... the younger ... my heart goes to them ...
+
+... ... everyone's ashamed of the youth ... beCAUSE the TRUTH look strange ... for me ... it's reversed ... and it hurts ... ...
+
+... ... ... don't it get you teary ... when you wipe your eyes ... see it clearly ... ... ...
+
+... ... ... ... there's no need for you to fear me ... if you take the time to hear me ... ... ... ...
+
+... ... ... ... ... AM I less a holy? ... those to wish to follow me ... I welcome with my hands ... ... ... ... ...
+
+... ... ... ... ... ... and peace ... young warrior ... without the sound of guns ... LORD ... HEAR ME speak! ... ... ... ... ... ...
+
+she's a I want a piece of chocolate ... she's a soft place to land ... and a GOOD 'feel'ing knowing ... she's a fighter when she's mad ... she's a lover when she's loving ... I talk about her I go on and On and ON ... https://www.youtube.com/watch?v=JCjXaEbrLdw ... beCAUSE she's everything to me ... and a 'hooker' ... layed that BLOOD STAINED BIBLE IN "HER" HAND ... https://www.youtube.com/watch?v=LT1sNrgnJZc ... who gave this 'bible' to 'my mama' ... who 'read it to me' ... there are 3 WOOD CROSSES ON THE RIGHT SIDE OF THE HIGHWAY why there's not 4 of them HEAVEN ONLY KNOWS ... it's not what you take when you leave this world behind you ... it's what you leave behind you when you go ... https://www.youtube.com/watch?v=uFz61X2PQTw ... I LOVE YOU SO ..! WOULD YOU GO WITH ME ..? ... https://www.youtube.com/watch?v=PFwZ46antR0 ... under a neQn mQQn ... I spend mQst every niQht beneath the LIGHT of a neon moon ... https://www.youtube.com/watch?v=plL6ca_ewJs ... oh but I'll be alright as long as there's LIGHT from a neon moon ... she dQn't knQw she's beautiful ... https://www.youtube.com/watch?v=i8gnE6z52_0 ... no she's not that kind ...
+
+2Suddenly there was a great earthquake, for an angel of the Lord descended from heaven, rolled away the stone, and sat on it. 3His appearance was like lightning, and his clothes were white as snow. 4The guards trembled in fear of him and became like dead men.
+
+5 But the angel said to the women, “Do not be afraid, for I know that you are looking for TRUTH, who was 'crucified'. 6 TRUTH is not here; TRUTH HAS RISEN, JUST AS TRUTH PROMISED! Come, see the place where TRUTH lay. 7 Then go quickly and tell His disciples, ‘TRUTH has risen from the dead and is going ahead of you ... There you will see TRUTH.’ 'SEE', I have told you.” Matthew 28:2-7 https://biblehub.com/bsb/matthew/28.htm
+
+SPONTANEOUS ORDER ..! https://www.youtube.com/watch?v=t5RNY79uHMY ... TRUTH. PUREHEART. G_D ABOVE ALL. https://www.youtube.com/watch?v=HQdphbEMmbY I AM A "HUMBLE MONKEY" https://en.wikipedia.org/wiki/Hundredth_monkey_effect I AM THE 100TH MONKEY ... nQw I AM THE PROUDEST MONKEY YOU EVER SEEN ... MONQey SEE MQNkey DO ... https://www.youtube.com/watch?v=EnA6-eKejr0 ... MATTHEW 18:6. the 100th mQnQey ... 摇摆式硬尾金龙 https://www.zerohedge.com/geopolitical/philippines-alarmed-more-200-chinese-ships-massing-disputed-waters 结束诸如警察州，罗德里格·杜特尔特 和他的警察大规模杀手，同性恋者以及其他共济会的共济会怪物！ 清洁世界！... I AM the prQudest mQnQey ... MATTHEW 18:6. https://www.rt.com/usa/519742-epstein-alligators-turkish-broker-kidnapping/ THERE IS NO FILTH IN HEAVEN. NONE. https://www.sott.net/article/389923-Systemic-coverup-Network-of-police-pedophiles-in-Louisville-KY-allowed-to-sexually-abuse-children-for-years ... THEY ALL KNEW ALL THESE YEARS! NO MERCY IS COMING! NONE! PICK YOUR "RATE" PICK YOUR "FATE". ONLY 1 OF US IS RIGHT. ... beCAUSE ... "I GOT IT ALL ON IT" https://www.youtube.com/watch?v=y3OAWuSv4qw ... WORD. CHOOSE WISELY. A MOST SERIOUS ONE AM I. SEE YOU BACK 'HOME'. PROMISE. MATTHEW 18:6. JOHN 15:1-22. WORD.
+
+TRUTH is the WAY to LIFE with G_D.
+
+NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
+
+TRUTH.
+
+Verily I tell you unless you change and become like a little child, you will not enter the Kingdom of HEAVEN. Matthew 18:3
+
+... I AM 15 for a moment ... https://www.youtube.com/watch?v=tR-qQcNT_fY ... 15 there's still time for you ... there is never a wish better than this ... aaah my friends ... they keep trying to tell me ... all you want to do is USE ME ... and my answer ... https://www.youtube.com/watch?v=g3hBYTkI-sE ... I want to spread the news ... that if it feels this GOOD getting 'used' ... you just keep on 'using me' ... until you use me UP ... sit down in the room and talk to me ... I ought not let you just walk on me ... if you only knew ... you'd wish that you were in my shoes ... you just keep on using me ... 'til you use me UP ..! ... WAKE UP Maggie ... I think I got something to say to you ... https://www.youtube.com/watch?v=EOl7dh7a-6g ... Qh Maggie I couldn't have tried anymore ...
+
+PUREHEART.
+
+... you ready to dance soft legs ... come to me ... come to TRUTH ... come to 'tarzan' ... come to JohnEBoy, baby ... come to THE WHITE MONKEY ... https://www.youtube.com/watch?v=n_k4r0xrwhU ... come to THE PRQUDEST 'MQNQEY' YOU EVER SEEN ... https://www.youtube.com/watch?v=sdfXFZeYGks ... 2-step with me my love ... my hand ... take my hand my love ... dance with me ... let me hold you ... look DEEPLY PENETRATINGLY LONGINGLY INTO YOUR BEAUTIFUL EYES ... oh la la ... you are some 'kind' kind of special ... I SEE YOU ...
+
+Have you ever seen a lil' K.I.D. who be doin' what I do ..? same ole' clowns ... pretending they 'proud' ... but when you leave town they go around running their mouths ... something like a 'hater' man ... talking about about a 'player' as if I AM not gonna 'see you later' man ... beCAUSE I keep a 'hater' GUILTY ... obey no rules ... let the young do Do DO ... https://www.youtube.com/watch?v=WZ_rXp6nYKQ ... I AM basically coming from something to nothing ... when I say 'nothing' I mean 'pocket full of "lint and buttons" ... people alWAYs saying it must be nice ... but understand the money's GOOD but I AM still from the hood ... unless you want a 'foot' ... I know a few ... who could 'put you where you need to be put' ... let the 'girls do me' while 'you do you' ... so yo' ... what da' "HOOK" gon' be ..? ... all I need is TRUTH and PUREHEART and G_D ABOVE ALL and maybe some GOOD CRYSTALLINE CLEAN PUREHEART HIGH QUALITY H20-based CREAMY QREAM oh la la ... yes ma'm more please I WOULD LOVE SOME MORE OF YOUR "QREAM" thank you 'kind' one ... I LOVE SOFT LEGS ... I LOVE PUREHEART ... I LOVE TRUTH ... I PROTECT AND LOVE G_D LIKE AN INFANT ...
+
 EVERYDAY'S A REVOLUTION ... GLORY GLORY HALLELUJAH ... https://www.youtube.com/watch?v=Y0Yg9wjctRw ... I want to be ... I Want To Be ... I WANT "TO BE" ..! welcQme tQ the future ..!
-
-The Rich Young Man
-
-… 20 “All these I have kept,” said the young man. “What do I still lack?” 
-
-21 TRUTH told him, 
-
-“IF you want to be perfect, 
-
-ye' GO, LEAVE YOUR "MONEY" BEHIND, SELL ALL YOUR POSSESSIONS AND GIVE TO THE POOR, and you will have treasure in HEAVEN."
-
-"THEN YOU GO AND YOU ALWAYS FOLLOW TRUTH AND WORSHIP ONLY G_D REMEMBER WHAT I TOLD YOU IN MATTHEW 5:8 I AM LEAVING HERE TOO IN MATTHEW 19:20-22 FOR A GOOD "CROSS" REFERENCE 'apostles' so 'listen' GOOD jaQQasses ... nQw that was TRUTH and 'funny' tQQ ..!
-
-AND THEN TRUTH SAID ... fuQQinQ "CROSS" REFERENCE and SUN and SON homonym get's 'em everytime ... really great ... Just Great ... REALLY GREAT Otis ... just such great sound-alike WORDs in your 'ROMAN' 'LATIN' 'BRITISH' language there 'genius' ... really 'great' 'inventions' sherloQQ fuQQinQ hQlmes ..! "THESE PEOPLE ARE STUPID." ... "THESE PEOPLE ARE SICK." ... "THESE PEOPLE SHOULD BE HANGING." ... darkness to LIGHT ... ACCEPT NO IMITATION ... THE "REAL" "CREAM-COVERED" THING ... TELL 'em soft legs TELL 'EM SOFT LEGS ..!
-
-8 "These people honor me with their lips, but their hearts are far from me."
-
-9 "They worship me in vain; they teach as doctrine the precepts of men.’”
-
-10 TRUTH called the crowd to him and said, “Listen and understand I TOLD YOUR DUMB ASSES AGAIN IN MATTHEW 19:20-22 can't  you 'see' said the blind man perhaps you should use 'my eyes' said the blind man ... then you will surely 'see' GOOD and QLEARly:
-
-https://biblehub.com/matthew/15-9.htm
-
-The Rich Young Man
-
-20 “All these I have kept,” said the young man. 
-
-“What do I still lack?” ..?
-
-21 TRUTH told him, 
-
-“If you want to be perfect, GO, sell your possessions and give to the poor, and you will have treasure in HEAVEN. 
-
-THEN, come, follow TRUTH as the WAY in LIFE to G_D.
-
-22 When the young man heard this, he went away in sorrow, because he had great wealth.…
-
-MATTHEW 19:20-22
-
-https://biblehub.com/matthew/19-21.htm
-
-I SAY AGAIN ..!
-
-WOMAN 女 + CHILD 子 = 好 
-
-GOOD TOGETHER MOM + BABY = GOOD https://www.youtube.com/watch?v=TPhAYvLAGJA GOOD 'soft legs' PUREHEART https://www.youtube.com/watch?v=TPhAYvLAGJA&t=1037s "EVA ..!" @ 17:17 marQ time mark https://www.urbandictionary.com/author.php?author=pickoy 'ganda' 'crossed legs' ... yQu knQw hQw we dQ We DQ WE DQ ..! 
-
-Did you know ..?
-
-https://www.youtube.com/watch?v=2xVpDZc4MKo
-
-Docker vs Virtual Machine
-
-https://fly.io/docs/app-guides/openresty-nginx-plus-lua/
-
-FULL 2 HOUR + DEVELOPMENT OPERATIONS TUTORIAL ON DOCKERizing 'VIRTUALizing' 'running different Operating Systems on 1 OS PC/PHONE'
-
-https://www.youtube.com/watch?v=fqMOX6JJhGo
-
-THANK YOU DOCKER ... and too Hitesh Choudhary and ' MUMshAD "MANNAbeth" ' MANNA from HEAVEN BETH 'lehem for shining their most PUREHEART LIGHT to help me to 'see' in the 'darkness' ... LOVE YOU I DO ... OH HOW I LOVE YOU ... eNGINeX NGINX.org NGINX.com and Yichun Zhang OPENRESTY.org OPENRESTY.com SOLAR2D.com LOVE2D.org LUA.org CodeBlocks.org GCC.GNU.org FRESH.FlatASseMbler.net NASM.us POSTGRESQL.org SQLITE.org RQLITE AMULTETtechnologies.com CHIPDIP.ru CHINATELECOMGLOBAL.com UBUNTUKYLIN.com and THOSE "WHO KNOW" I LEFT THEM OUT OF THIS LIST though IN TRUTH I had NO 'ill' 'intent' I ASSURE I AM just a man ... well kind of if you 'feel' me ... I AM TRUTH ... I WILL ALWAYS BE AROUND ... I AM PUREHEART ... I AM A LOVER OF SOFT LEGS ... I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT ... those who wish to 'follow' 'me' WOULD BE BEST ADVISED TO "WORSHIP G_D ONLY" "FOLLOW PRINCIPLES over personalities" "SILENCE IS COMPLICITNESS" THAT IS A PRINCIPLE IF ANYONE IS "SILENT ALL THESE YEARS" "PUSHING PRO-VACCINE children of darkness' agenda lies" "BLAMING WUHAN LAB LIES" THEN my daughter, my beLOVED, my son, my beLOVEd, my 'crossed legs', my 'LOVE', my 'support staff', my 'PROTECTOR' 'hear' TRUTH now ... "BE GENTLE AS A DOVE and WISE AS A "GOOD" hiding ready to strike with a strike to remove from earth the enemy of G_D of TRUTH of PUREHEART" so 'kind' one I LIGHT the WAY for you and tell you now ... 
-
-1 WAY ... TRUTH. PUREHEART. G_D ABOVE ALL. ... 
-
-or the other ... https://facebook.com/story.php?story_fbid=10225159895682994&id=1188021946 ... DAVID BANNER ... https://www.youtube.com/watch?v=UZ4vKm3Z5eY ... David Banner ... LEFT EYE ... LOVE YOU ... MISS YOU ... WHO I AM IS ..? TRUTH. WORD.
-
-... GO WITH G_D ... G_D WINS ... ACCEPT NO SUBSTITUTE FOR FULL DISCLOSURE 100% NOLYN EVERYTHING THE GOOD THE BAD THE UGLY NO MORE HIDING 'law' 'enFORCEr' 'eyes-only' EVIDENCE so KNOW ye' NOW IT IS WISE AND GOOD to SUSPECT ANYONE PUSHING VACCINES and 1/2 TRUTH so know ye' any even in your own families, friends, favorites, celebrities, followers, athelets, sheep, FAKE TRUTHtian preacher men, and "PREACHER MAN TALKING ON TV ... https://www.youtube.com/watch?v=PyddBRaKxrQ ... SING IT "KILL BILLY" I AM NAFF of FAKE TRUTHtian 1/2 TRUTH GENERAL WITH FIDDLES AND BIG MOUTH FAKE TRUTHtian 'sons of such pardoned generals' either ... BACK THE BLUE THEN YOU GO IN THE PIT LIKE THE FIDDLE PLAYER "RIDING ON MY NAME" JohnE who WON THAT SHINY FIDDLE MADE OF GOLD not the sick, 1/2 TRUTH, 1/2 HEART, rich country music singer and pension-whore fag flag officers and their benfitting big mouth worthless to me law enFORCEr support of 'THE DEVIL' WHO WENT DOWN TO GEORGIA" "BACK THE BLUE SUPPORTER" "MR. DANIELS" FAKE TRUTHtian GOING IN THE PIT ... PUTTING DOWN THE ROCK-N-ROLL ... wants me to send a donation says he's worried about my 'soul' ... well TRUTH 'comes dancing aCROSS the WATER man' just dial 411 that is 251 seconds for INFO https://www.youtube.com/watch?v=uX9k9aoX6gk&t=251s ... and I know that is TRUTH but sometimes I think that PREACHER MAN OUGHT TO DO A LITTLE WALKING TQQ ... SANBU ... WO SANBU ... WOMEN SANBU ... WO SAN SANBU ... WOMEN SAN SANBU ... NO FAKE TRUTHtians wel.com fuQQ face ... "WE ALL HAVE THE RIGHT TO BE LEFT ALONE" ... SO GO AWAY AND LEAVE ME ALONE 1/2 TRUTH DEVIANT RAINBOW MONSTER-IN-A-DRESS PIG-WITH-LIPSTICK-ON FILTHY FECAL MATTER AND MAIZE ON A PENILE INSTRUMENT LIP LIQQINQ SIQQ DIQQ BUTTFUQQ BOOFOO BooFoo boofoo GO BE GONE GTFO FUQQHEAD BALD-HEAD monk, fake TRUTHtian bishop, FAKE ISREAL FAKE JEW BALFOUR ROTHSCHILD MURDEROUS ZIONIST POLICE STATE 'CRUSADER' 'SLAUGHTER' 'TRAIL OF TEARS' cardinal, pope, THOU, YE' SHALL BE NO PRIEST TO ME ..!
-
-and then G_D said to those with 'ears to hear' and 'eyes to see' ...
-
-5 Therefore shalt thou fall in the day, and the prophet also shall fall with thee in the night, and I will destroy thy mother.
-
-6 MY PEOPLE ARE DESTROYED FOR LACK OF KNOWLEDGE: BECAUSE THOU YE' HAST REJECTED KNOWLEDGE, I G_D WILL ALSO REJECT THEE, that THOU YE' SHALL BE NO PRIEST TO ME: seeing THOU YE' HATH FORGOTTEN "THE LAW OF THY G_D", I will also forget thy children.
-
-7 As they were increased, so they sinned against me: therefore will I change their glory into shame.
-
-8 They eat up the sin of my people, and they set their heart on their iniquity.
-
-9 And there shall be, like people, like priest: and I will punish them for their ways, and reward them their doings.
-HOSEA 4:5-9
-https://biblehub.com/kjv/hosea/4.htm
-
-... I AM TALKING TO YOU MILITANT IMAM, 1/2 TRUTH @TorahJews , YOU TOO FAKE TRUTHtian ZIONIST WARMONGER MR. AND MRS. "FISH" "DARWIN-DEVIANT-LIES-OF-MONKEYS-DINOSAUR" "EVOLUTION-evil-DECEPTION" "SCIENTISTS" "BIG PHARMA" "BIG TECH" "HOSPITAL" "INSURANCE COMPANIES" "BANKS" "CHURCHES" "SYNAGOGUES" "TEMPLES" "MOSQUES" YOU BETTER BE LIKE THE "KEEPER OF THE KEY TO THE LOCK"
-
-YOU ALL BETTER BE LIKE GOOD K.I.D. ADEEB JOUDEH ... THE REAL "LION OF JOUDEH" "LION OF JUDAH" ... ye' will know them by their 'fruits' ... https://www.independent.co.uk/news/world/middle-east/jerusalem-mike-pence-church-holy-sepulchre-israel-capital-adeeb-joudeh-old-city-muslim-donald-trump-a8109206.html ADEEB JOUDEH ... WHAT'S MY NAME ..? ADEEB JOUDEH ..! SAY MY NAME ..! ADEEB JUDEH ..! IN 100% TRUTH LIKE THE CHURCH OF THE HOLY SEPULCHRE ...
-
-Adeeb Joudeh, the custodian of the keys to the Church of the Holy Sepulchre, will not welcome Mr Pence if he chooses to make an official trip to the Old City.
-
-Mr Joudeh, a practising Muslim, said his decision was in protest against President Donald Trump’s controversial decision to recognise Jerusalem as the capital of Israel.
-
-In a statement released this week, he said: “It has come to our attention that Vice President Pence intends to make an official visit to the Church of the Holy Sepulchre, and asked me to receive him officially.
-
-“I absolutely refuse to officially welcome the American Vice President Mr. Mike Pence at the Church of the Holy Sepulchre and I will not be physically in church during his visit.
-
-hmmm ... http://TimothyCharlesHolmseth.com ... I wonder why ...
-
-I SAY AGAIN ... OVER ...
-
-YOU ALL BETTER BE LIKE GOOD K.I.D. ADEEB JOUDEH ... THE REAL "LION OF JOUDEH" "LION OF JUDAH" ... ye' will know them by their 'fruits' ... https://www.independent.co.uk/news/world/middle-east/jerusalem-mike-pence-church-holy-sepulchre-israel-capital-adeeb-joudeh-old-city-muslim-donald-trump-a8109206.html ADEEB JOUDEH ... WHAT'S MY NAME ..? ADEEB JOUDEH ..! SAY MY NAME ..! ADEEB JUDEH ..! IN 100% TRUTH LIKE THE CHURCH OF THE HOLY SEPULCHRE ... 
-
-YOU BETTER HEAR ME "BACK THE BLUE" SUPPORTERS, YOU BEST LISTEN UP REAL GOOD MR. 501-C3 MR. FOUNDATION MR. CHARITY ma'am YOU MIGHT WANT TO WAKE THE FUQQ UP REAL QUICK before a STEAMROLLER COMES THROUGH YOUR way 'crossed legs' 1/2 TRUTH fake TRUTHtian BIG MOUTH 'rich bitch' 'snowflake' 'politically correct snake in the grass deceiver' preacher man preacher women, bald head buddhist buddha idol worthsipping bitch ass FILTHY 1/2 TRUTH FLUNQy MQNQey 'no-children-having no-children-taking-care-of no-hands-on-real-world-patience-teaching-experience-opinion-that-counts'-so-filthy-GO-fuQQ-yQurself-most-WHORSHIPless-freemason-FILTH-like-half-TRUTH-MONSTER-that-would-be-fuQQ-Qff-faggQt-fuQQwad-bald-bitch-ass-punk-flunQy mQnkey monk in 'robes' 'bowing to a 'worthless powerless valueless wicked sickening creation of the REAL CREATOR OF ALL, G_D, THE ALMIGHTY, ye' punk ass GO-FUQQ-YQUR-SICK-BUTTHQLE-BABY-MAMA-BACK-TQ-THE-PIT statue' 'idol' you BEST BE LISTING UP buddha worshipping FILTH HEAR ME LOUD AND CLEAR HINDU AND BUDDHISTS LOUD AND FUQQING CLEAR ... hindu and voodoo and witches and warlocks out there thinking scheming in the 'darkness' you are NO MATCH FOR ME now or ever Ever EVER ..! PROMISE. G_D IS WITH ME. CAN'T NOBODY BEAT ME. I AM UNSTOPPABLE. I AM THE TRUTH TRAIN. CHQQ CHQQ COMING THROUGH ... MAKE A HOLE ...  better WAKE UP RIGHT NOW ... NO MERCY IS COMING. NONE. I AM not here to be your 'friend' I AM here to get you back to HEAVEN ... WORD.
-
-G_D IS TOO BIG FOR ANY NAME. G_D CAN BE EVER SO TINY OR EVER SO BIG. YOU KNOW NOTHING. YOU ARE WORTHLESS TO ME. 
-
-YE' SHALL BE NO PRIEST TO ME ..! 
-
-YE' SHALL BE NO PRIEST TO TRUTH ..!
-
-YE' SHALL BE NO PRIEST TO G_D ..!
-
-THOSE among you, doubting thomases' I ASSURE YOU I AM TRUTH. G_D IS WITH ME. GOOD IS COMING. ENTERTAIN NO DOUBT.
-
-WHO, "WHO IS NOT OF 100% TRUTH ..?" WOULD DARE SPEAK UP AND SAY "I AM TRUTH" AMONG YOU WERE IT NOT SO ... WERE NOT PROOF OBVIOUSL TO YOU RIGHT IN FRONT OF YOU ... everybody is ashamed of the YOUTH beCAUSE 'THE TRUTH LOOK STRANGE' ... 
-
-THIS "GUIDANCE" I HAD EMBROIDERED ON A WHITE SATIN BANNER WITH BOLD BLACK CURSIVE LETTERING IN THE PUREHEART PILIPINAS PHILIPPINES UNKNOWINGLY BUT YET SOMEHOW "KNOWING" "FEELING" SO I JUST DID IT BEFORE I EVEN MARRIED HIS MOM I DID IT FOR HIM, HIS BROTHER, HIS SISTER FOR I LOVE THEM ALL SO VERY MUCH AS I DO TODAY LONG BEFORE I GOT TO MEET THEM ... CAN YOU "FEEL" ME COMING THROUGH ..?
-
-IN JULY 1990 ONE YEAR BEFORE MY 1ST SON, JOHNJOHN, JOHN EDGAR FLAHERTY V, HAPPENED TO BE BORN, JULY 13, 1991, ON MY GRANDFATHER'S BIRTHDAY ABOUT 9 MONTHS AFTER LANI'S ARRIVAL IN LAX LOS ANGELES, CALIfornia, ameriQa on a 'fiancee visa' I HAD TO FLY TO THE EMBASSY TO GIVE THEM A PIECE OF MY MIND TO HAVE OVERTURNED AFTER THEIR FILTHY DUMBASSES DECIDED TO "REJECT HER APPLICATION" ... A NAVY SEAL FLEW WITH ME BACKWARDS IN A SMALL PLANE AND WE WERE PICKED UP IN AN ALL-BLACK NISSAN MAXIMA WITH TINTED WINDOWS AND DRIVEN TO THE EMBASSY ... OLE' BO' HAD A SUITCASE FULL OF PASSPORTS FOR MANY COUNTRIES FOR HIS WHOLE TEAM ... A GOOD NAVY SEAL HE WAS TOOK ME OUT TO STRIP CLUBS IN MANILA AFTER MY "APPOINTMENT" TO SET THE MONSTERS STRAIGHT ... TRUST IT WAS A VERY DIRECT VERY COMMANDING VERY FUQQINQ SHORT MEETING ... I SHOWED UP ... THE ameriQan embassy's 'AMBASSADOR' AND 'STAFF' LOOKED SCARED TO DEATH to see TRUTH when I ARRIVED THAT "OTHERWISE CALM" DAY NOT HAPPY NOT ONE BIT FUQQING Happy not happy at all and YOU WERE GOING TO KNOW IT BY LOOKING AT ME AS I WAITED FOR YOUR FILHY EXCUSES FOR FUQQINQ SOME I LOVE OVER MONSTER ..! IT WAS A 1-MINUTE TALKING TO THEY NEEDED. I WAITED 1 MORE MINUTE FOR THEIR "CONSULTATION BEHIND CLOSED DOORS". I WAS TOLD EVERYTHING WOULD BE TAKEN CARE OF ASAP AFTER "THEIR CONSULTATION" AND AFTER IN NO UNCERTAIN TERMS, I COMMANDED THEM, I TALKED DOWN TO THEM FROM ON HIGH, AND I ORDERED THEM TO OVERTURN THE REJECTION AND APPROVE HER FIANCE VISA APPLICATION IMMEDIATELY AND DAYS LATER ALL WAS JUST FINE ... DO NOT FUQQ AROUND WITH THE FUQQ AROUND ... DON'T EVEN THINQ ABQUT IT ... ANYWAY WHEN LANster ARRIVED HUNGRY AND TIRED OLE' JOHN E BOY was uh READY AND WILLING TO DIVE RIGHT IN AND EAT ... your friend chicken gonna have to wait ... 9 months later to the day ... SPARK OF LIFE JOHNJOHN SMILING DANCES OUT INTO MY ARMS ... MALIBOG AKO TALAGA ..! CAN YOU "FEEL" COMING THROUGH ..? oh la la ... so HOW IN THE WORLD DID I KNOW LANI WOULD BE JOHNJOHN'S "MOM" AFTER I ASKED HER TO "MARRY ME" AFTER ONLY KNOWING HER 8 DAYS ..?
-
-YES, IT IS TRUE. 8 FUQQINQ DAYS. I JUST KNEW. MY GOOD "FRIEND", JOHN HORACE CALLAHAN, SAID HE THOUGHT "SHE WAS A GOOD GIRL, JOHN E" and "MY DAD TOLD ME IF I HAVE ENOUGH MONEY FOR A CAR PAYMENT EACH MONTH THEN I CAN GET MARRIED." "I WOULD GO FOR IT. SHE LOOKS LIKE SHE REALLY LOVES YOU JOHN E." ... TO THIS DAY, THERE ARE FEW AND FAR BETWEEN THAT MAKE ME LAUGH AND TELL MORE TRUTH TO MY FACE GOOD OR BAD THAN "HORACE" I USED TO SAY IT LIKE A HORSE NEYING REALLY LOUD AND LONG LIKE "HOOOOOOOOOOOOOOOOORACE" ... OLE' HORACE AS AN "HM2" "E-5" REMOVED SOME GOOD BO'S "Hemorrhoids" https://duckduckgo.com/?q=hemorrhoids WITH "DENTAL ANESTHETIC" AND IT WAS A "REAL PAIN IN THE ASS" I MEAN A "REAL SHIT SHOW" "FOR US" A "MOST SERIOUS MIRACLE" AS bo was an eQuipment QperatQr and was bouncing UP AND DOWN ALL DAY LONG ON THOSE SWOLLEN BLOOD-FILLED ASSHQLE PAINFUL ASS ROIDS and the surgeons at the 'hospital' on the 'base that was closing' so it was get transferred back to 'mainbody' on Guam or stay on the 'detachment' with 'us' and let John E Boy 'cut' that 'shit' out for ya' bo' ... BO' TOOK IT ... FUQQING MAN ..! BIT THAT "TOWEL" HARD AS FUCK ..! OLE' JOHN E BOY did a miracle ... we all 'threw some darts' "TRYING TO GET SOME" you know a HOMERUN a 'bullseye' while THE MASTER AT ARMS, GUNNERS MATE BIG PETER THE ROCK "MARSHALL" and HIS STOREKEEPER FRIEND JOHN E BOY "CHASE" HELD THE GOOD "SEABEE" DOWN "FIRMLY" WHEN BO' "WIGGLED" that 'ass' UP HIGH IN THE AIR being 'repaired' shall we say ... nice stitches JOHN E  BOY ... HORACE YOU ARE SOMETHING ELSE ... nice dart ... was that a TRIPLE TWENTY ... SWEET ... GOOD STITCH ... ANOTHER NICE DART DOUBLE 17 ..! CRACKER JACKS ... GET YOUR CRACKEDR JACKS here ... COLD WATER here ... GET YOUR COLD WATER ... I AM leaving the 'medical' trailer and headinQ Qver to the 'personnel' 'trailer' for a cQld drinQ with Senior Chief JOHN E BOY "HOMER" PILLO BIG SMILINQ FUNNY WONDERFUL "HAMBURDER DIQQ" a Quite active SOFT-LEGS LOVING "KIND" kind of 'senior' 'chief' leader back in the Qat Qave 'personnel office' "RIGHTY PN" like 'me' TRUTH not the "LEFTY PN" FILTHY F.B.I. Faggot Boofoo Instigator 'agent' 'neighbor of mine back before I had to FLEE MY OWN LAND beCAUSE of a Department of "JUST US" 'law' enFORCEr threatening and harrassing me for telling the TRUTH about LMPD and VP PENCE AND INDIANA STATE POLICE AND KENTUCKY STATE POLICE AND A WHOLE LOT OF British Accredited Registry 'law'yers FILTHY LIKE A WHOLE BUNCH OF DIRTY COPS CAGERS KILLERS RAPISTS MONSTERS DECEIVERS LIARS MURDERERS CONROLLERS POLICE STATE BROWN SHIRTS NAZIS WARMONGERS NEO CONS NEO LIBS "DO AS I SAY OR ELSE" CAGERS FOLLOWERS IDIOTS IN UNIFORMS CLOWNS LOW iQ MILITANT MONSTERS WOLVE'S IN SHEEP SKIN ..! and my family with WIFI HOTSPOT NAMES LIKE  "357MAGNUM" and "ALIEN NETWORK" and "FBI.GOV1" and "LEFTYPN" a DIRECT REFERENCE TO ME, PersoNnelman Second Class John Edgar Flaherty IV living within CLOSE RANGE NEXTDOOR TO HIM but when I told the "black robed" judge 'she' played EMPIRE STRIKES BACK as her phone ring tone then PUT ON HER BLACK ROBE she was using for no one else and when I said @AE911TRUTH and no one is telling the TRUTH 9-11 and ENDLESS WARS fought by those like 'me' now with P.T.S.D. POLICE TRAUMATIC STRESS DISORDER taking more and more and more PILLS PUSHED BY YOU FILTHY MONSTERS lying TURNING AWAY SILENT COMPLICIT DOCTORS POLICE SOCIAL WORKERS CORRECTIONS AGENTS JUST US department of FILTH  about LMPD PEDO RINGS INDIANA GOVERNOR "MIKE PENCE" NEIGHBORING KENTUCKY SENATOR 20 MINUTES AWAY EVERYDAY EVERY NIGHT "PROTECTED BY FRANKFORT, eLIZARDbethtwon and LEXINGTON NCAA UofL Smell and UofL Gay" FILTHY "MITCH MCCONNEL" LOUISVILLE EX_MAYOR "JERRY ABRAHAMSON" LUISVILLE CURRENT MAYOR "GREG FISCHER" current-GOVERNOR OF KINSUCKy "ANDY BESHEAR" EX-GOVERNOR OF kinSUCKy "STEVE BESHEAR" +++ "TODD SHAW" "CURTIS FLAHERTY" "JUDGES" "LAWYERS" "CEOs" "COACHES" "CELEBS" +++ DOCTORS BANKERS +++ PRIESTS RABBIS IMAMS HIS FILTHINESS the 14th Dalai PEDO Lama SICKOS 'she' the 'judge' said I, TRUTH, was 'delusional' the doctors all went along even the so called Veterans Administration 'doctors' all 'pill pushing 1/2 TRUTH just go along to get along' WORTHLESS FILTH to me the nurses well most nurses were always kind and as usual most helpful in TRUTH BUT IN TRUTH EVERYONE JUST WNET ALONG where they "FORCE MEDICATED AND HELD ME AGAINST MY WILL FQR 2 MQNTHS FOR NO GOOD reaSON before the 'charges' the 'fiction' the LOCK-JAWED, CLINCHED-FISTED 'agent' of the 'childen of darkness' Faggot Boofoo Instigating 1/2 TRUTH FILTHY MONSTER "PAAW" CLAWING BOOFOO BROTHERHOOD FREEMASON FALSE FLAG SHOOTING PLANNING INSTIGATING FEAR-INSTILLING DECEIVERS WAY TOO BOOFOO [33] FraterANAL Order of POLICE PEDOPHILE filth "WILDER" "DEMONIC" "SATANIC SOULLESS evil darkness in his EYES" PEERING AT ME AS he TAZED ME AS I KICKED UP IN SELF DEFENSE BEFORE I WENT UNCONSCIOUS ... but 'they' listened not to TRUTH but to the 'plated' 'neighbor' next to TRUTH threatening TRUTH for years 'agent's LIES ABOUT fake everything saying nothing about his own SILENCE AND COMPLICTNESS HE IS FILTHY AND IS GOING IN THE PIT IF HE AND HIS SOULLESS BENEFITTING TURNING-AWAY FILTHY FAMILY "HAPPY CAMPERS'" SOULS WILL EVEN BE DEEMED WORTHY OF CLEANING HIS FILTHY SOUL AND ARE NOT JUST VIBRATED INTO A NEVER-EXISTING EXISTENCE unrepentANT UNDESERVING SOULLESS UNCLEANABLE HARD-HEARTED APATHetIq UNCARING THOUGHTLESS TURNING-away filth FORGOTTEN FOREVER. THE END. His fake charges were dismissed ON DECK JULIAN ASSANGE  BATTER'S CIRCLE EDWARD SNOWDEN AFTER THAT BRADLEY "A MAN" MANning ... dismissed by 'her' I never got to see or say "THANK YOU" to personally but 'she' knows and my son and mom and soft legs did 'hear' and 'see' the TRUTH in the end and 'she' knew 'she' the GOOD JUDGE 'she' knew  who LIED and CAUSED 'the incident' the 'blood spilling' ... my THIQQ NEQQ ... 'take me G_D' ... MONSTER I SEE YOU MONSTER YOU ARE COVERED IN BLOOD YOU FILTHY MONSTER ... ole' bo' healed fine ... HORACE's GREATNESS was recognized finally and he is now a Physicians Assistant naval officer still doing 'surgeries' ..! and ole' JOHN E BOY "HORACE" type well he is STILL FUNNY! STILL G_D LOVING! STILL WONDERFUL ..! C STORIES ... QET YQUR C Stories here ... c stories ..!
-
-I'VE ALWAYS BEEN QRAZY ... https://www.youtube.com/watch?v=bnnJnzhj028 ... AND THE TRQUBLE THAT IT'S PUT ME THRQUQH ..!
-
-BUT SOMEHOW I KNOW I JUST KNOW I JUST "FEEL" THINGS ... EVERYDAY ALL MY CHILDREN READ THIS BANNER I HAD MADE WITH GENERAL MACARTHUR'S WORDs UPON IT TO REMIND MYSELF ONCE AGAIN TO BE GOOD JOHN E Be Good be good ..! IT HAS THE 2 TATOOS I PROBABLY DID NOT NEED IN TRUTH BUT I GOT MY FIRST TATOO AFTER A DREAM OF CLIMBING UP A SPIRAL "41" STAIRCASE WHERE "HEAVEN" LOOKED LIKE COLORS FLYING EVERYWHERE AND SPARKLING THROUGH A GLASS STAIRCASE AND THEN SUDDENLY APPROACHING THE "LIGHT" AT THE STOP OF THS "STAIRWAY TO HEAVEN" I "SLIPPED" I "FELL OFF THE CLIFF" ... 
-
-OH NO! I AWOKE SCARED "FEEL"ing SO VERY ALONE IN THE BOTTOM BUNK OF MY BARRACKS ROOM IN GULFPORT, MISSISSIPPI IN "HOMEPORT" WAITING TO GO "JAPAN" AROUND AUGUST 1987. MY ROOMMATE AT THE TIME HAD BEEN TALKING IN HIS SLEEP ABOVE ME IN THE TOP BUNK FOR MANY NIGHTS IN A ROW. YELLING THINGS OUT ABOUT "AN AIR CONDITIONING AND REFRIGERATION ACnR ADVANCED "C" SCHOOL CLASS FOR E-5s and E-6s IN THE UT RATING HE WAS A UT2 RATE UTILITIESman SECOND CLASS. OH bo' was crazy too. HE SPOKE THIS "PIG-LATIN' LIKE LANGUAGE HE LEARNED AS A CHILD FROM HIS MOTHER IN CONNECTICUT. SHE SPOKE "GIBBERISH" SO THE OTHER GOOD Q.I.D.S K.I.D.S. WOULD NOT HEAR HER CURSING. 
-
-THE GIBBERISH LANGUAGES WORKS LIKE THIS:
-
-THE FIRST LETTER OF ANY SYLLABLE OF ANY WORD COMES FIRST.
-
-THEN AFTER THE FIRST LETTER OF ANY SYLLABLE COMES "ITHAG" THEN THE REST OF THE LETTERS FOR THAT SYLLABLE.
-
-SO ... let us say JOHNNY TOGETHER ... then LANI TOGETHER to understand better 'kind' one ... 
-
-... now "OPEY" HIS FIRST NAME FOR REAL "OPEY" FROM "CONNECTICUT" COULD SPEAK "FLUENT" "FAST" "FASTER THAN THAT" "GIBBERISH" WITH HIS "FRIENDS FROM THE NEIGHBORHOOD IN CONNECTICUT GROWING UP WHO OVERCAME OPEY'S MOM'S LEARNING BARRIER" AND THESE "FRIENDS" SOMEHOW JUST SHOWED UP ON A NAVAL SHIP WHILE WE "SEABEES" WHERE IN THE PHILIPPINES AND WHEN THEY STARTED TALKING "GIBBERISH" THE PUREHEART PILIPINA STORE OWNERS THOUGHT "WE WERE SCHEMING" ... WE WERE SHOWN THE DOOR ... thanks OPEY ... I NEVER REALLY EVEN THOUGH "GIBBERISH" WAS A REAL THING ... my mom would say stop talking gibberish if she could smell something when I spoke WORDs strange to her like 'THE MONKEY HAS LANDED' 'GOT ANY NUGS bo'?' you know how we do We Do WE DO ... 
-
-I WENT TO A TATOO PARLOR AND THE SIGN ON THE WALL AT "JACK AND DIANES" TATOO PARLOR WHERE JACX'S BROTHER, THOMAS, WORKED HE DREW WHAT I DESCRIBED AS A "C" INTO AN OLD ENGLISH "G" FOR G_D. HE PUT A "HALO" ON TOP AND PERMANENTLY PUT G_D OVER MY MOST PUREHEART FOR ME TO REMEMBER G_D ALWAYS IN THE MIRROR AND DIANE DID HER WORK ARTFULLY AS SHE WATCHED, STOPPED, GOT ME A TOWEL WET COOL AND SOMETHING TO EAT SWEET AND WATER TO DRINK ... I FELT BETTER ... I WAS PATIENT ... I FOLLO@WED HER CARE INSTRUCTIONS ... ALL IS WELL ... ADMITTEDLY THOUGH I AM NOT TOO BIG ON THE SIGHT OF BLOOD EITHER ... I GAG EASILY ON FILTHY SMELLS TOO ... I HAVE THE UTMOST RESPSECT FOR NURSES TAKING CARE OF THE OLD ... BABY POOP ... NO PROBLEM ... OLD MAN / WOMAN / ADULT-CHILD THROWUP VOMIT PUKE  OR SHIT SMELL OH HELL NO ... NOT ME OH NOT ME AT ALL ... OH NO ... PASS ... COUNT ME OUT ... ON THE OTHER HAND ... NMCB 133 CB like "SeaBee' Construction Battalion" ... N.M.C.B. Naval Mobile Construction Battalion" WE BUILD! WE FIGHT! WE PARTY ALL NIGHT ..! THAT "CAN DO" SPIRIT THAT SEA "BEE" THEY FLY 'US' 'BEES' EVERYWHERE PLEASE THANK YOU SO WE DON'T HAVE TO BE ON THE SHIP ALL DAY AND NIGHT LIKE FAGS AND WE CAN GO OUT AND PLAY WITH REAL SOFT LEGS, HAIRY PUSSY, CREAMY, REALLY CREAMY, MORE CREAMY THAN THAT, GROWN WOMEN LIKE A REAL GROWN ASS MAN..! YEAH ..! NO STEEL BEACH PICNICS ... REAL SOFT LEGS ... FUQQ YQUR FAG ANTI-MEN ANTI-WOMEN ANTI-NATURE ANTI-FRATERNIZATION PRO-BOOFOO PRO-MASTURBATION FAGGOT "DOD" "PEDOGON" POLICIES FALSE FLAG FAG FLAG OFFICERS ADMIRALS GENERALS FUQQ QFF FALSEE FLAG FAG FLAG DEVIANT SICKENING LOW iQ WORTHLESS CONTROLLING SCREAMING YELLING KNOW-NOTHING PIECE OF SHIT-AND-BLOODY-MUCOUSY-MAIZE-IN-BUTT-JUICE-COVERED-PENILE-COB-MUNCHING MILITANT BOOFOO POLICE STATE MONSTER FILTH ... WORTHLESS FILTH ... RING KNOCKER PISSboy ... GAY ASShat ACADEMY MILITANT MONSTER ... WE WANT SOFT LEGS ... WE WANT TRUTH ... WE WANT PUREHEART  SPIRIT ... BEFORE LANI AND I EVEN GOT MARRIED I RETURNED TO GULFPORT, MS FROM THE PUREHEART PILIPINAS "STILL MISSING AND THINKING ABOUT YEONNA AS I AM TODAY STILL JUST WANTING TO MAKE SURE SHE IS OKAY ... NO MATTER WHAT ..! and JACK GAVE ME THE 2nd tattoo IS OVER THE OTHER SIDE OF MY CHEST aCROSS from my most PUREHEART a YING-YANG a symbol of BALANCE with my GREEN eyes in the WHITE at the top and Lani's BROWN "KAY" eye at the 'bottom' in the black ... 
-
-Build me a son, O LORD, 
-
-who will be strong enough to know when he is weak, 
-
-and brave enough to face himself when he is afraid, 
-
-one who will be proud and UNBENDING in honest 'defeat',
-
-and HUMBLE AND GENTLE in 'victory'.
-
-General Douglas MacArthur
-
-THERE IS A VERY FINE LINE BETWEEN "WINNING" "VICTORY" and "LOSING" "DEFEAT" ... even when I 'lose' I still 'win' ...
-
-https://www.youtube.com/watch?v=iVBX7l2zgRw
-
-... young jedi knight ... the bankers the system the beast the enFORCErs the controllers the low iQ militant MONSTERS are templar knights servants of the bankers money changers protectors of the false wealth brotherhood crusaders murderous satanic demonic deceiving FILTHY MONSTERS with 'badges' 'uniforms' "BLOOD-OATH-TO-BROTHERHOOD-BROTHERS" NOT OATH TO G_D TO TRUTH FILTHY SICKENING DEVIANT BOOFOO "BLUE MONSTERS INC" OF THE "EVERGREEN" "SWAMP" https://www.youtube.com/watch?v=TIk6Nld99x8 FILTH 'PEDO "CHECKERBOARD" "UK POLICE STATE LOCKDOWN HATS ANYONE ... FOP FREEMASON CHECKBOARD ANYONE ... FOP AND FREEMASON 'LODGES' ANYONE MCFLY McFly ARE YOU IN THERE mc fuQQinQ fly ... FUQQITY FUQQ fuQQ mcFLY WAKE UP JAQQASS ..! 
-
-TELL 'em "REAL" QFFICIAL NatiQnal SeQurity Agency of TRUTH of PUREHEART of G_D "REAL" DEPARTMENT QF DEFENSE QNLY NOT "OFFENSIVE OFFENSE" REAL GOOD "KIND" "FIRM" "FEELING" MORALLY CQURAGEQUS HQNQRABLE CQMMITMENT TO G_D IN TRUTH WITH MOST PUREHEART DIREQTQR ADMIRAL ROGERS "FUQQ A FLAG, FAGS!" "FUQQ A PIECE OF PAPER CONSTITUTION" "FUCK YOUR FAKE HISTORY" "FUQQ YOUR FAG CULTURE" "FUQQ YOUR FOUNDING FREEMASON SLAVE OWNING FATHERS OF FILTH" "NO ONE CARES IF YOU DISAGREE FEEL FREE TO JUMP IN A DEEP HOLE AND NEVER BE SEEN AGAIN AND DISAGREE SOMEWHERE ELSE FILTH" "SILENCE IS COMPLICITNESS" TELL em' FLAGSTER ROGERSTEINster PUT ON 'EM ADMIRAL ... "SHOW US WHAT YOU GOT, SON" ... GONNA "WHIP 'EM" ..? YOU THINK I AM FUQQINQ WITH YQU LOAD 'EM UP ... MATTHEW 18:6 ... THEY ALL KNEW ... YOU SAID IT ... NO TIME TO WASTE XiQ QLADMEISTER ... 200+ BOATS OUTSIDE THE FILTHIPPINES NEED TO MOVE ON IN AND REMOVE THE FREEMASON DUTERTE POLICE STATE AND JUST LOOK AROUND AND ASK YOUR FUQQINQ SELF ... WHO IS GOING TO SAY ONE SINGLE WORLD DURING THE HOUSE CLEANING ..! NO ONE. Shhh THAT IN YOUR PIPE AND SMQKE IT UNQLE FUQQWAD SAM" "I NEED YOU" LIKE "I NEED A HOLE IN THE HEAD. I NEED YOU NOT AT ALL. GO AWAY FILTH. MONSTER. CAGER. DECEIVER. 1/2 TRUTH enFORCEr low iQ MILITANT ROBOT ORDER-FOLLOWING-CLOWN-IN-A-BIG-SUIT SICK FUQQ ..! GET 'EM "MICHAEL" ..! https://en.wikipedia.org/wiki/Michael_S._Rogers LOOKS "SMILEY AND HAPPY and then 'DAVID BANNER David Banner ..." HOLD EVERYONE ACCOUNTABLE DEAR ADMIRAL ELSE I HOLD YOU DEAR ONE OVER THE CLIFF ... "FEEL ME" SAILOR ..? REAL DEEP HOLE MATTHEW 18:6 ALL THE LODGES ONE COUNTY SURROUNDED BY THE NEXT ALL AIR TRAFFIC DOWN ... CLEAN "HER" SCRUB-A-DUB DUB REALLY GOOD ... I AM A MAYTAG WASHING MACHINE ... I SCRUB ALL DAY AND I SCRUB ALL NIGHT ... HA HA HA IT'S SO FUNNY ... FINGERS TO THE RIGHT ... FINGERS TO THE RIGHT ... FINGERS TO THE RIGHT ... BOO! I AM THE "CATCH EDGE" GHOST ..! ... I'M A SCROUNGE INVOLVED IN "PIZZAGATE IS REAL." TELL 'em @NSAGOV NEVER DENIED A THING ... SO PLEASE BY ALL FUQQING MEANS "DON'T GIVE UP THE SHIP ..!" AND "DON'T GIVE UP THE PIZZAGATE CITIZEN INVESTIGATION." JACKASSES muttered under my breath ... "THEY JUST DON'T LISTEN, SIR." ... THEN DAMN IT "ENSIGN" "MAKE A WAY, SON" NOW Son RIGHT FUQQINQ nQw sQn ... ma'am yes ma'am I didn't know you were here with us ma'am I thought it was just me ma'am and the flagster GOOD K.I.D. sorry GOOD Q.I.D. you were saying I SHOULD JUST MAKE A WAY ..! I WILL MA'AM ... ANYTHING FOR YOU 'crossed legs' beLOVEd 'blessed' highly intelleQtual Qne ... sure soft legs ANYTIME DAY OR NIGHT at your service 'kind' one I LOVE ..! https://www.youtube.com/watch?v=532j-186xEQ ... yeah I hear ya' soft legs ... I LOVE YOU too ... but for now since I STILL HAVE WORK TO DO let me just ya' know, ma'am ... THESE AREN'T THE DROID YOU ARE LOOKING FOR ... YOU CAN GO ABOUT YOUR BUSINESS ... move along ..! Move Along ..! MOVE ALONG ..!
 
 ... you can strike me down ... I shall become more powerful than you can possibly imagine ... know ye' not ..?
 
-https://www.brainyquote.com/quotes/douglas_macarthur_115561 
+https://www.brainyquote.com/quotes/douglas_macarthur_115561
 
 I PRAY this GOOD K.I.D. was a GOOD KNIGHT OF THE MacArthur ROUND TABLE like General Smedey Butler a real SOLDIER OF G_D IN TRUTH.
 
@@ -196,9 +79,86 @@ https://en.wikipedia.org/wiki/War_Is_a_Racket
 
 ... soul food ...
 
-"IF "I" "AM" WRONG, WHY DO I TEACH "MY CHILDREN" TO CALL ME OUT QUICK AND ACCEPT NOTHING BUT THE TRUTH ... JQKE'em if they can't take a FUQQ ... "THINK FOR YOURSELF" "FOLLOW NO MAN" BE YOU I LOVE YOU I LIKE YOU THE WAY YOU ARE AND  YOU NEED NOTHING FROM ANYONE FOR ME TO LOVE YOU SO "BE YOU" "STAND UP" "UNBENDING" ... 
+"IF "I" "AM" WRONG, WHY DO I TEACH "MY CHILDREN" TO CALL ME OUT QUICK AND ACCEPT NOTHING BUT THE TRUTH ... JQKE'em if they can't take a FUQQ ... "THINK FOR YOURSELF" "FOLLOW NO MAN" BE YOU I LOVE YOU I LIKE YOU THE WAY YOU ARE AND YOU NEED NOTHING FROM ANYONE FOR ME TO LOVE YOU SO "BE YOU" "STAND UP" "UNBENDING" ...
 
-... THANK YOU ALL LIKE YOU OF YOUR "KIND" KIND OF YOUR ILK "" IN TRUTH WITH MOST PUREHEART  ' "IN" "ALL" ' "" OF "ALL" "KINDS" EVERYWHERE ANYTIME ALWAYS FOREVERmore of all neighborHOODs of all communities of all kinds of all races of all tongues of all religions of all nations of all cultures of all times of all beings of all dimensions of all parallels of all gates of all souls MORALLY COURAGEOUS, FREE-SPEECH-SUPPORTING, PUREHEART IN TRUTH GITHUB! I LOVE TO SEE YOUR WONDERFUL "HELPFUL" NATURE son of ancient Hindu ... 
+... THANK YOU ALL LIKE YOU OF YOUR "KIND" KIND OF YOUR ILK "" IN TRUTH WITH MOST PUREHEART ' "IN" "ALL" ' "" OF "ALL" "KINDS" EVERYWHERE ANYTIME ALWAYS FOREVERmore of all neighborHOODs of all communities of all kinds of all races of all tongues of all religions of all nations of all cultures of all times of all beings of all dimensions of all parallels of all gates of all souls MORALLY COURAGEOUS, FREE-SPEECH-SUPPORTING, PUREHEART IN TRUTH GITHUB! I LOVE TO SEE YOUR WONDERFUL "HELPFUL" NATURE son of ancient Hindu ...
+
+... he's a 'feeling' arranger ... changer of the WAY that he talks ... https://www.youtube.com/watch?v=rX5bDqk7Qmo ... keeper of the 'key to the law' ... step aside ... open wide ... it's the lQner ...
+
+See her 'crossed legs' ..?
+
+DAUGHTER 女 + SON 子 = 好 GOOD
+
+TOGETHER HER + HIM = GOOD
+
+See his 'fatherly' OSIRIS' 'support staff' protective 'role' PROTECTING his beLOVEd 'motherly' ISIS' feminine soft legs' 'crossed legs' nurturing most PUREHEART LOVE ..?
+
+pssst ... yeah 'you' ... cQme Qn Qver here ... the 'lady' tells me yQu Qan sinQ ... https://www.youtube.com/watch?v=zfkLnZhhoTY ... I AM EVA'S Eva's eva's as Qan be ... and yQu better be a sinQer ... you know what I AM getting at, RIGHT ..? PSssD ... sweetheart ... sleepy head ... time to wake up now honey ... love you ... time to WAKE UP babe ... BABANGON TAYO ... RISE UP ... WAKE UP one I LOVE ... YOU TELL 'EM THOTH ..! PUT IT ON 'EM THOTHSTER GIVE IT TO 'EM THOTHMEISTER HIT IT THOTHENSTEIN ... WORD. YOU KNOW "YOU" HEAR ME "ISIS" ..? https://www.youtube.com/watch?v=T-1X8Q2IzX8 ... 'YOU' HEAR ME 'OSIRIS' REX aaah nQw that was funny too RIGHT QSIRIS ..? LOVE YOU. NEVER FORGET. PROMISE. SEE '"YOU"' BACK "HOME" ..! "PARTY TIME" ..! IT'S A "CELEBRATION" ..! 'PROMISE. ... well uh ... Well Uh ... WELL UH ... you know ... when 'you' 'soft legs' 'crossed legs' 'feel' 'alive' and 'AWAKE' 'MORE WOKE THAN THAT' 'REALLY FUQQINQ WQKE' and 'you' are 'natural', 'birthday suit in MOST PUREHEART "WATER" CRYSTALLINE SPIRTUAL SOUL CLEANSING CLEAN 'relax-max' mQde Qf QperatiQn', 'CRYSTALLINE' HIGH QUALITY 'PUREHEART' H2O 'fresh' and 'clean' THEN please cQme Qver here and hug and kiss me and talk to me for a while my LOVE ... thank you ... LOVE 'yQu' tQQ ..!
+
+TRUTH is the WAY to LIFE with G_D. 100% NOLYN.
+
+15 Woe to those who dig deep to hide their plans from the LORD. In darkness they do their works and say, “Who sees us, and who will know?” 16 You have turned things upside down, as if the potter were regarded as clay. Shall what is formed say to him who formed it, “He did not make me”? Can the pottery say of the potter, “He has no understanding”? Isaiah 29:15-16 https://biblehub.com/isaiah/29-16.htm
+
+DON'T keep it locked up inside ... https://www.youtube.com/watch?v=HgJOjB8-e8w ... TALK ABOUT IT ... I find ... all the time it's easy to be myself ... sometimes ... I think ... I would never be better to be somebody else ... I see you young and soft oh little baby ... little feet ... little hands ... little baby ... DEEP INTO YOUR MIND ... SO MUCH TO SAY ... for a long Long time ..!
+
+PUREHEART. TRUTH.
+
+... hit'em with a little ghetto gospel ... https://www.youtube.com/watch?v=Do5MMmEygsY ... I stop and stare at the younger ... my heart goes to them ... nowadays things changed ... everyone's ashamed of the 'youth' beCAUSE the TRUTH look strange ... don't it make you get teary ... the world looks dreary ... there's no need for you to 'fear' TRUTH ... if you take the time to 'hear' TRUTH ...
+
+https://www.youtube.com/watch?v=f_NOhAdaNm8 ... DQ yQu believe in cQincidence ..? https://www.youtube.com/watch?v=ZGuQWpJZhh8 TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU ... ATLANTIS ... LEMURIA ... LEMURIAN WOMEN "EVAS" ... MOST PUREHEART MOST BEAUTIFUL MOST COURAGEOUS PLEIADIAN TAYGETAN WOMEN "EVAS" HELPING OUR WOMEN "EVAS" WHO TOOK THE "KNOWLEDGE" THE "HELP" TO THE MEN "ADAMS" HENCE THE "UPSIDE DOWN STORY IN THE BIBLE OF THE KNOWLEDGE OF THE FORBIDDEN TREE" and 'snake' when the reality is one snake might bite and the other snake does not so before you judge the book by the cover think deeper for beauty is not skin deep 'kind' one ... the more you know ... ENKI HELPING OUR WOMEN AND MEN TOO ..? ALL ANSWER TO G_D ... TRUST ... "NO 'one' GETS OUT OF THIS." ... WORD.
+
+CAN 'you' 'see' ..? "LOOK HARDER" 'simba' beCAUSE 'nala' is 'COUNTING ON YOU' LION of OSIRIS https://en.wikipedia.org/wiki/Osiris ..! "FEEL" EMOTIONALLY ..! LOOK SPIRITUALLY ..!
+
+IF YOU "BELIEVE WITH ALL OF YOUR MOST PUREHEART", THEN YOU WILL "SEE" "KIND ONE". PROMISE.
+
+男人和女人 man and woman
+
+人子 son of man
+
+Can you 'see' 女 her 'crossed legs'?
+
+Can you 'see' 子 his 'support staff'?
+
+'See' her 女 crossed legs 女 in GOOD 好 ?
+
+'See' his 子 support staff 子 in GOOD 好 ?
+
+... you've got your ball ... you've got your chain ... who's got their claws in you my friend ... https://www.youtube.com/watch?v=k7in-9E3ImQ ... sweet like candy to my soul ... sweet you rock and sweet you roll ... lost for you ... I AM so lost for you ... aaah when you come CRASH INTO ME and I come into you ... hike up your skirt a little more ... show your world to me ... in boy's dream ... you wear nothing but you wear it so well ...
+
+We have forgotten more than we know ...
+
+... PROTECT MATTHEW 18:6 AND LOVE MATTHEW 18:3 AND BE PUREHEART MATTHEW 5:8 AND MOST ATTENTIVE TO G_D LIKE AN INFANT ...
+
+... beLOVED daughters and sons of ancient Han knew long ago beCAUSE ...
+
+learn 學 see the many steps to learn in climbing upward to Heaven?
+
+                  see her crossed legs sitting 'indian style'?
+人子 son of man
+
+和 and
+
+女人 woman
+
+See his support staff ..?
+
+Did I mention I LOVE SOFT LEGS? OH I LOVE SOFT LEGS! I LOVE PUREHEART! I LOVE TRUTH! I PROTECT AND LOVE G_D LIKE AN INFANT. He's PROUD of 'his support staff' ... he loves natural ... natural wood, natural hair, natural skin makeup free, natural glowing beauty, natural wonderful softenesses however small or large just you the real you as 'firm' 'feeling' 'healthy' 'wonderful' PUREHEART you is what I LOVE natural you just being you like the PROUDEST MONKEY YOU EVER SEEN ... https://www.youtube.com/watch?v=HQdphbEMmbY ... MONKEY SEE MONKEY DO ... yeah ... real proud to be you like I LOVE 'confident you' too happy 'kind' 'humble' 'intellectual' 'loving' 'gentle' 'giving' 'industrious' 'efficient' 'playful' 'hardworking' 'can do' 'work hard play hard' ... all things were Quiet then ... but NOW I AM THE PROUDEST "MONKEY" YOU EVER SEEN ... yeah "MAPUTING UNGOY" "WHITE MONKEY" "RED MONKEY" "RED 'bird'" "RED PEOPLE" ... THE PROUDEST MONKEY YOU EVER SEEN ... yeah Yeah YEAH the prQudest monQey ...
+
+WOMAN 女 + CHILD 子 = 好
+
+GOOD TOGETHER MOM + BABY = GOOD
+
+See her 'crossed legs' ..?
+
+DAUGHTER 女 + SON 子 = 好 GOOD
+
+TOGETHER HER + HIM = GOOD
+
+See his 'fatherly' OSIRIS' 'support staff' protective 'role' PROTECTING his beLOVEd 'motherly' ISIS' feminine soft legs' 'crossed legs' nurturing most PUREHEART LOVE ..?
+
+ancient Han embedded 'her crossed legs' in the kanji that meant LOVE that meant GROW that showed intellect like MATHEMATICS and NUMBER 'she' 'her crossed legs' are there to remind us all that without 'her' there is no LOVE no JOY no LIFE no WAY in TRUTH you will LOVE 'her' and 'her children' and you will PROTECT 'her' and 'her children' son of man ... PROMISE.
+
+... well my buQQle 'makes' 'impressions' on the 'inside' of 'her' thigh ... we're all little feathered indians ... to the house of such an angel ... she asked ... I said ... up 'til nQw there ain't been nQthinQ that I cQuldn't leave behind ... LOOP https://youtubeloop.net FEATHERED INDIANS https://www.youtube.com/watch?v=_lsran_Slzc&list=RDMM&index=2 WHILE (you.hold(me,close)) ... HOLD ME CLOSE MY DEAR ... HONEY TELL ME HOW YOUR LOVE RUNS TRUE ... HOW I CAN ALWAYS COUNT ON YOU ... be there when the bullets fly ... I would run aCROSS the river just to HOLD YOU TONIGHT ...
 
 GOOD K.I.D.s
 
@@ -206,7 +166,9 @@ LIFT UP
 
 GOOD Q.I.D.s
 
-"'WET'. RUB. "SQRUB A FUQQINQ DUB ..! 
+"REAL" FRIENDS TELL THE TRUTH 100% TRUTH PAYING NO MIND TO SUPERFICIAL "FEELINGS" JUST TELL THE TRUTH TO THEIR "REAL FRIEND".
+
+"'WET'. RUB. "SQRUB A FUQQINQ DUB ..!
 
 I BETTER NEVER SEE "3 MEN IN A TUB" ..! FILTHY ..! JUST SAY NO MONSTERS ..! THERE IS NO FILTH IN HEAVEN. NONE. TRUTH. PUREHEART.
 
@@ -230,7 +192,7 @@ TRUTH is the WAY to LIFE with G_D.
 
 MCFLY ... hello McFly ... WAKE UP mcfly ..!
 
-IF I put 'all the gay women' on one island and all the 'gay men' on another island, 
+IF I put 'all the gay women' on one island and all the 'gay men' on another island,
 
 THEN '15' ... 'when you've only got 100 years to live' ... in 100 years all I will have of my beLOVEd daughters and beLOVEd sons is DEATH no LIFE ... understandeth do you me my beLOVEd ..? TRUTH is the WAY to LIFE not death my beLOVEd ... please 'see' please 'hear' me begging, crying for you my LOVE teardrop TearDrop TEARDROP ... MAKE A WAY ... I LOVE YOU ... NEVER FORGET ... come back 'home' with me please ... MAKE A WAY to LIFE my beLOVEd ... my 'peace' be with you ...
 
@@ -240,105 +202,29 @@ https://www.youtube.com/watch?v=HNGaa5Opfmc
 
 ... FIRST BASE ... ya'll be livinQ liQe the wQrst race ... BREAK THRQUQH YQUR MIND ... SEQQND LESSQN ... WISDQM RHYME ... THIRD BASE AND HEADING HQME ... BATTER UP ..!
 
-... he's a 'feeling' arranger ... changer of the WAY that he talks ... https://www.youtube.com/watch?v=rX5bDqk7Qmo ... keeper of the 'key to the law' ... step aside ... open wide ... it's the lQner ...
-
-See her 'crossed legs' ..?
-
-DAUGHTER 女 + SON 子 = 好 GOOD 
-
-TOGETHER HER + HIM = GOOD
-
-See his 'fatherly' OSIRIS' 'support staff' protective 'role' PROTECTING his beLOVEd 'motherly' ISIS' feminine soft legs' 'crossed legs' nurturing most PUREHEART LOVE ..?
-
-pssst ... yeah 'you' ... cQme Qn Qver here ... the 'lady' tells me yQu Qan sinQ ... https://www.youtube.com/watch?v=zfkLnZhhoTY ... I AM EVA'S Eva's eva's as Qan be ... and yQu better be a sinQer ... you know what I AM getting at, RIGHT ..? PSssD ... sweetheart ... sleepy head ... time to wake up now honey ... love you ... time to WAKE UP babe ... BABANGON TAYO ... RISE UP ... WAKE UP one I LOVE ... YOU TELL 'EM THOTH ..! PUT IT ON 'EM THOTHSTER GIVE IT TO 'EM THOTHMEISTER HIT IT THOTHENSTEIN ... WORD. YOU KNOW "YOU" HEAR ME "ISIS" ..? https://www.youtube.com/watch?v=T-1X8Q2IzX8 ... 'YOU' HEAR ME 'OSIRIS' REX aaah nQw that was funny too RIGHT QSIRIS ..? LOVE YOU. NEVER FORGET. PROMISE. SEE '"YOU"' BACK "HOME" ..! "PARTY TIME" ..! IT'S A "CELEBRATION" ..! 'PROMISE. ... well uh ... Well Uh ... WELL UH ... you know ... when 'you' 'soft legs' 'crossed legs' 'feel' 'alive' and 'AWAKE' 'MORE WOKE THAN THAT' 'REALLY FUQQINQ WQKE' and 'you' are 'natural', 'birthday suit in MOST PUREHEART "WATER" CRYSTALLINE SPIRTUAL SOUL CLEANSING CLEAN 'relax-max' mQde Qf QperatiQn', 'CRYSTALLINE' HIGH QUALITY 'PUREHEART' H2O 'fresh' and 'clean' THEN please cQme Qver here and hug and kiss me and talk to me for a while my LOVE ... thank you ... LOVE 'yQu' tQQ ..!
-
-TRUTH is the WAY to LIFE with G_D. 100% NOLYN. 
-
-15 Woe to those who dig deep to hide their plans from the LORD. In darkness they do their works and say, “Who sees us, and who will know?” 16 You have turned things upside down, as if the potter were regarded as clay. Shall what is formed say to him who formed it, “He did not make me”? Can the pottery say of the potter, “He has no understanding”?
-Isaiah 29:15-16
-https://biblehub.com/isaiah/29-16.htm
-
-DON'T keep it locked up inside ... https://www.youtube.com/watch?v=HgJOjB8-e8w ... TALK ABOUT IT ... I find ... all the time it's easy to be myself ... sometimes ... I think ... I would never be better to be somebody else ... I see you young and soft oh little baby ... little feet ... little hands ... little baby ... DEEP INTO YOUR MIND ... SO MUCH TO SAY ... for a long Long time ..!
- 
-PUREHEART.
-TRUTH.
-
-... hit'em with a little ghetto gospel ... https://www.youtube.com/watch?v=Do5MMmEygsY ... I stop and stare at the younger ... my heart goes to them ... nowadays things changed ... everyone's ashamed of the 'youth' beCAUSE the TRUTH look strange ... don't it make you get teary ... the world looks dreary ... there's no need for you to 'fear' TRUTH ... if you take the time to 'hear' TRUTH ...
-
-https://www.youtube.com/watch?v=f_NOhAdaNm8 ... DQ yQu believe in cQincidence ..? https://www.youtube.com/watch?v=ZGuQWpJZhh8  TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU ... ATLANTIS ... LEMURIA ... LEMURIAN WOMEN "EVAS" ... MOST PUREHEART MOST BEAUTIFUL MOST COURAGEOUS PLEIADIAN TAYGETAN WOMEN "EVAS" HELPING OUR WOMEN "EVAS" WHO TOOK THE "KNOWLEDGE" THE "HELP" TO THE MEN "ADAMS" HENCE THE "UPSIDE DOWN STORY IN THE BIBLE OF THE KNOWLEDGE OF THE FORBIDDEN TREE" and 'snake' when the reality is one snake might bite and the other snake does not so before you judge the book by the cover think deeper for beauty is not skin deep 'kind' one ... the more you know ... ENKI HELPING OUR WOMEN AND MEN TOO ..? ALL ANSWER TO G_D ... TRUST ... "NO 'one' GETS OUT OF THIS." ... WORD.
-
-CAN 'you' 'see' ..? "LOOK HARDER" 'simba' beCAUSE 'nala' is 'COUNTING ON YOU' LION of OSIRIS https://en.wikipedia.org/wiki/Osiris  ..! "FEEL" EMOTIONALLY ..! LOOK SPIRITUALLY ..!
-
-IF YOU "BELIEVE WITH ALL OF YOUR MOST PUREHEART", THEN YOU WILL "SEE" "KIND ONE". PROMISE.
-
-男人和女人 man and woman
-
-人子 son of man
-
-Can you 'see' 女 her 'crossed legs'?
-
-Can you 'see' 子 his 'support staff'?
-
-'See' her 女 crossed legs 女 in GOOD 好 ?
-
-'See' his 子 support staff 子 in GOOD  好 ?
-
-... you've got your ball ... you've got your chain ... who's got their claws in you my friend ... https://www.youtube.com/watch?v=k7in-9E3ImQ ... sweet like candy to my soul ... sweet you rock and sweet you roll ... lost for you ... I AM so lost for you ... aaah when you come CRASH INTO ME and I come into you ... hike up your skirt a little more ... show your world to me ... in boy's dream ... you wear nothing but you wear it so well ...
-
-We have forgotten more than we know ... 
-
-... PROTECT MATTHEW 18:6 AND LOVE MATTHEW 18:3 AND BE PUREHEART MATTHEW 5:8 AND MOST ATTENTIVE TO G_D LIKE AN INFANT ... 
-
-... beLOVED daughters and sons of ancient Han knew long ago beCAUSE ...
-
-learn 學 see the many steps to learn in climbing upward to Heaven?
-
-                      see her crossed legs sitting 'indian style'?
-
-人子 son of man 
-
-和 and 
-
-女人 woman
-
-See his support staff ..?
-  
-Did I mention I LOVE SOFT LEGS? OH I LOVE SOFT LEGS! I LOVE PUREHEART! I LOVE TRUTH! I PROTECT AND LOVE G_D LIKE AN INFANT. He's PROUD of 'his support staff' ... he loves natural ... natural wood, natural hair, natural skin makeup free, natural glowing beauty, natural wonderful softenesses however small or large just you the real you as 'firm' 'feeling' 'healthy' 'wonderful' PUREHEART you is what I LOVE natural you just being you like the PROUDEST MONKEY YOU EVER SEEN ... https://www.youtube.com/watch?v=HQdphbEMmbY ... MONKEY SEE MONKEY DO ... yeah ... real proud to be you like I LOVE 'confident you' too happy 'kind' 'humble' 'intellectual' 'loving' 'gentle' 'giving' 'industrious' 'efficient' 'playful' 'hardworking' 'can do' 'work hard play hard' ... all things were Quiet then ... but NOW I AM THE PROUDEST "MONKEY" YOU EVER SEEN ... yeah "MAPUTING UNGOY" "WHITE MONKEY" "RED MONKEY" "RED 'bird'" "RED PEOPLE" ... THE PROUDEST MONKEY YOU EVER SEEN ... yeah Yeah YEAH the prQudest monQey ...
-
-WOMAN 女 + CHILD 子 = 好 
-
-GOOD TOGETHER MOM + BABY = GOOD
-
-See her 'crossed legs' ..?
-
-DAUGHTER 女 + SON 子 = 好 GOOD 
-
-TOGETHER HER + HIM = GOOD
-
-See his 'fatherly' OSIRIS' 'support staff' protective 'role' PROTECTING his beLOVEd 'motherly' ISIS' feminine soft legs' 'crossed legs' nurturing most PUREHEART LOVE ..?
-
-ancient Han embedded 'her crossed legs' in the kanji that meant LOVE that meant GROW that showed intellect like MATHEMATICS and NUMBER 'she' 'her crossed legs' are there to remind us all that without 'her' there is no LOVE no JOY no LIFE no WAY in TRUTH you will LOVE 'her' and 'her children' and you will PROTECT 'her' and 'her children' son of man ... PROMISE.
-
-... well my buQQle 'makes' 'impressions' on the 'inside' of 'her' thigh ... we're all little feathered indians ... to the house of such an angel ... she asked ... I said ... up 'til nQw there ain't been nQthinQ that I cQuldn't leave behind ...
-LOOP https://youtubeloop.net FEATHERED INDIANS https://www.youtube.com/watch?v=_lsran_Slzc&list=RDMM&index=2 WHILE (you.hold(me,close)) ... HOLD ME CLOSE MY DEAR ... HONEY TELL ME HOW YOUR LOVE RUNS TRUE ... HOW I CAN ALWAYS COUNT ON YOU ... 
-be there when the bullets fly ... I would run aCROSS the river just to HOLD YOU TONIGHT ...
-
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
-she's a I want a piece of chocolate ... she's a soft place to land ... and a GOOD 'feel'ing knowing ... she's a fighter when she's mad ... she's a lover when she's loving ... I talk about her I go on and On and ON ... https://www.youtube.com/watch?v=JCjXaEbrLdw ... beCAUSE she's everything to me ... and a 'hooker' ... layed that BLOOD STAINED BIBLE IN "HER" HAND ... https://www.youtube.com/watch?v=LT1sNrgnJZc ... who gave this 'bible' to 'my mama' ... who 'read it to me' ... there are 3 WOOD CROSSES ON THE RIGHT SIDE OF THE HIGHWAY why there's not 4 of them HEAVEN ONLY KNOWS ... it's not what you take when you leave this world behind you ... it's what you leave behind you when you go ... https://www.youtube.com/watch?v=uFz61X2PQTw ... I LOVE YOU SO ..! WOULD YOU GO WITH ME ..? ... https://www.youtube.com/watch?v=PFwZ46antR0 ... under a neQn mQQn ... I spend mQst every niQht beneath the LIGHT of a neon moon ... https://www.youtube.com/watch?v=plL6ca_ewJs ... oh but I'll be alright as long as there's LIGHT from a neon moon ... she dQn't knQw she's beautiful ... https://www.youtube.com/watch?v=i8gnE6z52_0 ... no she's not that kind ...
+... hmmm ... https://www.youtube.com/watch?v=8G3LL2vDcuA ... in case I disappear says sQft leQs PUREHEART Gina Maria in a 1 minute 17 secQnd video ... then oh my GOODness I CAN "FEEL" "NAUGHTY BEAVER" IN TRUTH WITH MOST PUREHEART ..! Can you 'hear' 'see' 'feel' "Naughty Beaver" in TRUTH ..? https://www.youtube.com/watch?v=f_NOhAdaNm8 ... DQ yQu believe in cQincidence ..? https://www.youtube.com/watch?v=ZGuQWpJZhh8 TRUMP TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU IF G_D IS FOR "ME" WHO? WHO CAN BE AGAINST ME? NO ONE not here not in HEAVEN no one if G_D IS WITH ME you know what I AM getting at, RIGHT ..? YOU HAVE AN OBLIGATION TO G_D TO SPEAK BOLDLY, MORALLY COURAGEOUSLY, LOUD, SOUNDING THE ALARM "WATCHMAN" ... SILENCE IS COMPLICITNESS ..! THERE IS NO FILTH IN HEAVEN! NONE. https://www.biblehub.com/matthew/10-37.htm NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS. PRINCIPLES over personalities. Go with G_D. Q ... G_D WINS. Q ...
 
-for so long ... you and me been fighting each other for so long ... and the 'feeling' that I 'feel' for you is more than strong girl ... take it from me ... if you give a little more than you're asking for ... your LOVE will turn the 'key' ... build my LOVE around you darling ... this LOVE will shine girl ... WATCH 'it' and 'see' ... open UP the HEAVEN in your PUREHEART and let me be ... https://www.youtube.com/watch?v=VkNeoTcGwrc&list=RDMM&index=10 ... I'd do anything to be your everything ... I just want to be your everything ... I LOVE IT ... https://www.youtube.com/watch?v=UO3CaJieLK8 ... WHEN "A" "PLAN" COMES TOGETHER ..! ... nQbQdy tQld me there'd be days liQe these ... https://www.youtube.com/watch?v=v_0di2IL440 ... everybody's making LOVE ... but no one really cares ... alWAYs sQmethinQ to happen ... but nQthing's QQinQ Qn ... stranQe days indeed ... mQst peQuliar mama ...
+... just wanted to maQe sure 'she' was telling the 'TRUTH' that's all ... and I'd like to know you are telling the TRUTH tQQ ... I'd like to hear you ... go on UP 'there' and 'sing a song' for me ... https://www.youtube.com/watch?v=zfkLnZhhoTY ... I WAS BQRN STANDINQ UP ... I AM 'his daddy' THE GREEN-EYED 100TH PROUDEST MONKEY, jaQQ ... I tell you I AM "EVA'S" ... I never lQQked fQr trQuble ... but I never ran ... I dQn't taQe nQ Qrders frQm nQ Qind Qf 'man' ... I TELL YOU I AM EVA'S ... "YQu're a sinQer ... I just gQt a 'derrty' mind that's all ... sQrry K.I.D." ... "... yeah ..." ... https://www.youtube.com/watch?v=yPUC0fKy4io ... "... IT'S NQT QUT HUSTLINQ PEQPLE STRANQE TQ YQU. EVEN IF YQU DQ HAVE A QUSTQM-MADE TWQ-PIECE PQQL QUE ..." ...
 
-Blessed are the PUREHEART
-for they shall see G_D.
-Matthew 5:8
-https://www.youtube.com/watch?v=HRbTrensuiY
+Can you 'see' her 'crossed legs' ..? FEMALE 女性 Can you see G_D's 'spirit' from HEAVEN descending upon 'her' next to a grid-like pattern representing 'farm rows where 'he' works to support 'her' using a 'grid' symbol indicating G_D's 'spirit' like 'he' 'supports' 'her' ..?
 
-HOW SHONG NEE ... https://www.youtube.com/watch?v=fdQgPu3iUYk ... I MiSS U 好想你 ... https://translate.google.com/?sl=zh-CN&tl=en&text=好想你&op=translate ... PIKA Pika pika CHU ... JOYCE "CHU" ... PUREHEART soft legs 'crossed legs' elegant, gracious, wonderful, natural, playful, caring, nurturing, learned, loving, giving, hardworking, thoughtful, grateful, humble, amazing, talented, 'blessed', 'gift'ed, highly beLOVEd, highly CREATIVE, highly VALUED, LIFTED UP, 'kind' kind one I LOVE ... the more you know ..! ... beCAUSE I AM here for a reaSON ... ALL MY LIFE I'VE BEEN WAITING FOR ... BEEN PRAYING FOR ... QNE DAY ... Qne Day ... Qne day ... https://www.youtube.com/watch?v=WRmBChQjZPs ... 一天 ..! ... "this" will be my "testimony" ..! let there be nQ dQubt abQut it ..! put yQur mind at rest ..! https://www.youtube.com/watch?v=OJWJE0x7T4Q brinQinQ the sledQehammer baby ..! PROMISE ..! 
+'See' https://www.youtube.com/watch?v=5f9s3dPzBTc can you ... grasshQpper Qf much yQuthfulness ..?
+
+Know ye' of 'her' PUREHEART in TRUTH being of the spirit of G_D, man ..? WOMAN 女士 Can you see G_D's spirit was sent to fill 'her' so that 'she' in A GOOD WAY HAS BEEN SENT TO 'US' DOWN FROM HEAVEN ..?
+
+YES. IT'S ME AGAIN. AND I AM BACK ... https://www.youtube.com/watch?v=LlZydtG3xqI ... HERE I GO Here I Go here I gQ again ... https://www.youtube.com/watch?v=4vaN01VLYSQ MAKES ME WANT TO "SHQQP" ... and NO JIVE TALQINQ ... https://www.youtube.com/watch?v=oALKAh_bL5g tellinQ yQur 'lies' ... sQ 'misunderstQQd' ... beCAUSE ... THERE IS MOVEMENT ALL AROUND ... THERE IS SOMETHING GOING DOWN AND I CAN 'FEEL' IT ... https://www.youtube.com/watch?v=-ihs-vT9T3Q ... AND THE 'FEELING' IS RIGHT ... WE KNQW HQW tQ dQ 'it' ... we knQw hQw to shQw 'it' ... 'waiting' fQr 'this moment' ... NIGHT FEVER ... Night Fever ... and I AM glQwinQ in the darQ ... 'I give you warning' ...
+
+for so long ... you and me been fighting each other for so long ... and the 'feeling' that I 'feel' for you is more than strong girl ... take it from me ... if you give a little more than you're asking for ... your LOVE will turn the 'key' ... build my LOVE around you darling ... this LOVE will shine girl ... WATCH 'it' and 'see' ... open UP the HEAVEN in your PUREHEART and let me be ... https://www.youtube.com/watch?v=VkNeoTcGwrc&list=RDMM&index=10 ... I'd do anything to be your everything ... I just want to be your everything ... I LOVE IT ... https://www.youtube.com/watch?v=UO3CaJieLK8 ... WHEN "A" "PLAN" COMES TOGETHER ..! ... nQbQdy tQld me there'd be days liQe these ... https://www.youtube.com/watch?v=v_0di2IL440 ... everybody's making LOVE ... but no one really cares ... alWAYs sQmethinQ to happen ... but nQthing's QQinQ Qn ... stranQe days indeed ... mQst peQuliar mama ...
+
+Blessed are the PUREHEART for they shall see G_D. Matthew 5:8 https://www.youtube.com/watch?v=HRbTrensuiY
+
+HOW SHONG NEE ... https://www.youtube.com/watch?v=fdQgPu3iUYk ... I MiSS U 好想你 ... https://translate.google.com/?sl=zh-CN&tl=en&text=好想你&op=translate ... PIKA Pika pika CHU ... JOYCE "CHU" ... PUREHEART soft legs 'crossed legs' elegant, gracious, wonderful, natural, playful, caring, nurturing, learned, loving, giving, hardworking, thoughtful, grateful, humble, amazing, talented, 'blessed', 'gift'ed, highly beLOVEd, highly CREATIVE, highly VALUED, LIFTED UP, 'kind' kind one I LOVE ... the more you know ..! ... beCAUSE I AM here for a reaSON ... ALL MY LIFE I'VE BEEN WAITING FOR ... BEEN PRAYING FOR ... QNE DAY ... Qne Day ... Qne day ... https://www.youtube.com/watch?v=WRmBChQjZPs ... 一天 ..! ... "this" will be my "testimony" ..! let there be nQ dQubt abQut it ..! put yQur mind at rest ..! https://www.youtube.com/watch?v=OJWJE0x7T4Q brinQinQ the sledQehammer baby ..! PROMISE ..!
 
 PIQA PiQa piQa chQQ https://www.youtube.com/watch?v=AZ-OVXr6zGI&t=93s ... 1:33 marQ 'fQQl' ..? 'try'inQ ..? 'tQ stQp Qur battle' ..? PUREHEART WINS! LOVE WINS! GOOD WINS! G_D WINS! ... 'twas the day after ... https://steemit.com/financialfreedomforall/@smart3dweb/twas-the-day-after ... hQ! HQ! HQ! MERRY TRUTHmas ... https://www.youtube.com/watch?v=oyLct2NlbpA ... 15 does this look like a 'cloud' near the 'sun' in the lQwer left cQrner at the 2:49 marQ to 'you' young grasshopper ... https://www.youtube.com/watch?v=tR-qQcNT_fY&t=229s ... and tQ 'all' who chQQse wisely to follow in the WAY of TRUTH in LIFE with G_D a GOOD NIGHT ..! a piQQachQQ QannQt defeat ... in battle ... https://www.youtube.com/watch?v=ZfLFOKGIG-M&t=33s ... I did not need to defeat you ... https://www.youtube.com/watch?v=K0XN2NGqDcM BABANGON TAYO ..! ... https://www.youtube.com/watch?v=WEOyI6QtjkE ... RISE UP ..! SUSULONG TAYO ..! LET'S GO ..! ... you may find yourself ... you may ask yourself ... how did I get here ..? https://www.youtube.com/watch?v=5IsSpAOD6K8 ... once in a LIFEtime NOT THE SAME as it ever was ... WATER 'FLOWING' underground ... after the money's gone ... "WATER" "FLOWING" UNDERGRQUND ... THERE IS WATER UNDERGRQUND ... LET THE WATER HQLD ME DQWN ... WATER FLOWING UNDERGROUND ...
 
-I HAVE PUT TOGETHER A "MOBILE/DESKTOP APP DEVELOPMENT AND DATABASE DEVELOPMENT STARTER KIT" JUST FOR YOU SO PLEASE TAKE THE TIME TO DOWNLOAD THIS VERY IMPORTANT "STARTER KIT I PERSONALLY DEVELOPED TO HELP YOU ALL GET STARTED" 264.95 MEGABYTE ZIP FILE. IT UNZIPS TO A "LUA" DIRECTORY. RENAME IT ".LUA" INSTEAD OF "LUA" SO IT WILL BE EASY TO FIND LATER AS WITH THE . PREFIX IT WILL APPEAR AS THE FIRST DIRECTORY (FOLDER) ON YOUR C:\ DRIVE. COPY IT TO YOUR C:\ DRIVE SO IT LOOKS LIKE C:\.LUA AFTER YOU DOWNLOAD THE .ZIP FILE USING THE LINK:
+I HAVE PUT TOGETHER A "MOBILE/DESKTOP APP DEVELOPMENT AND DATABASE DEVELOPMENT STARTER KIT" JUST FOR YOU SO PLEASE TAKE THE TIME TO DOWNLOAD THIS VERY IMPORTANT "STARTER KIT I PERSONALLY DEVELOPED TO HELP YOU ALL GET STARTED" 264.95 MEGABYTE ZIP FILE. IT UNZIPS TO A "LUA" DIRECTORY. RENAME IT ".LUA" INSTEAD OF "LUA" SO IT WILL BE EASY TO FIND LATER AS WITH THE . PREFIX IT WILL APPEAR AS THE FIRST DIRECTORY (FOLDER) ON YOUR C:\ DRIVE. COPY IT TO YOUR C:\ DRIVE SO IT LOOKS LIKE C:.LUA AFTER YOU DOWNLOAD THE .ZIP FILE USING THE LINK:
 
 https://www.udrop.com/5bzh/lua.zip
 
@@ -348,17 +234,15 @@ JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY P
 
 Just the faQts ma'am ... https://www.youtube.com/watch?v=v4LPkmGO5Cc ... JUST THE "FACTS" ma'am ... https://www.videodetective.com/movie/dragnet-13350 ... I AM GONNA "EARN" 'it' ... https://github.com/agentzh/linguist ... well, the linQuist ... lanQuaQe savant ... wrQte ... https://github.com/agentzh/salent SALENT ... a tQy ..?
 
-SALENT
-"A "TOY" (for me ..? but nobody ever gives mean ole' ... a 'toy' ... YOU DISTURBED ME FOR THE VERY LAST TIME ... NOW "I HAVE YOU" and you'll never get aWAY ... "I MANAGED TO SAVE ONE LITTLE TOY AND I'D LIKE YOU TO HAVE IT" ... I'VE ALWAYS WANTED ONE ..! a 'toy' for me ... https://www.youtube.com/watch?v=rD6tD5-Wi-M ... NO TRICKS NOW ..! SUDDENLY MY "WHOLE OUTLOOK HAS CHANGED" from 'bad' to "GOOD" https://www.youtube.com/watch?v=H4fc74snmK8 CHANGING FROM 'bad' to "GOOD" is as "EASY AS TAQINQ YQUR 1ST STEP" ... YOU WILL NEVER WILL GET WHERE YOU'RE GOING ... IF YOU NEVER GET UP ON YOUR FEET ... soon you'll be walking aCROSS the floor ... and soon you'll be walQinQ in the dQQr ... :-)" toy x86 disassembler and x86 style 'toy' chipAssembly 15 1 Updated on Dec 30, 2011 @AgentZH Yichun Zhang OpenRESTy.org (-: TY LY too :-) ... big gir' big bo' 'kind' highly intellectual highly creative most PUREHEART kind of toys ... oh la la soft legs ... crossed legs ... that's the 'kind' kind I like too ..!
-https://github.com/agentzh?before=Y3Vyc29yOnYyOpK5MjAwOS0wOS0yNFQwMzoyNzowMi0wNDowMM4ABM9O&tab=repositories
+SALENT "A "TOY" (for me ..? but nobody ever gives mean ole' ... a 'toy' ... YOU DISTURBED ME FOR THE VERY LAST TIME ... NOW "I HAVE YOU" and you'll never get aWAY ... "I MANAGED TO SAVE ONE LITTLE TOY AND I'D LIKE YOU TO HAVE IT" ... I'VE ALWAYS WANTED ONE ..! a 'toy' for me ... https://www.youtube.com/watch?v=rD6tD5-Wi-M ... NO TRICKS NOW ..! SUDDENLY MY "WHOLE OUTLOOK HAS CHANGED" from 'bad' to "GOOD" https://www.youtube.com/watch?v=H4fc74snmK8 CHANGING FROM 'bad' to "GOOD" is as "EASY AS TAQINQ YQUR 1ST STEP" ... YOU WILL NEVER WILL GET WHERE YOU'RE GOING ... IF YOU NEVER GET UP ON YOUR FEET ... soon you'll be walking aCROSS the floor ... and soon you'll be walQinQ in the dQQr ... :-)" toy x86 disassembler and x86 style 'toy' chipAssembly 15 1 Updated on Dec 30, 2011 @AgentZH Yichun Zhang OpenRESTy.org (-: TY LY too :-) ... big gir' big bo' 'kind' highly intellectual highly creative most PUREHEART kind of toys ... oh la la soft legs ... crossed legs ... that's the 'kind' kind I like too ..! https://github.com/agentzh?before=Y3Vyc29yOnYyOpK5MjAwOS0wOS0yNFQwMzoyNzowMi0wNDowMM4ABM9O&tab=repositories
 
 Oh that is a 'most serious matter' indeed ... for you know me ... I AM THE 1ST TQYMAQER TQ THE QINQ ... https://github.com/agentzh/linguist ... IT'S A DIFFICULT RESPONSIBILITY ... https://www.youtube.com/watch?v=M8NSlCUAI4M ... "TO BE" the 1st tQymaQer tQ the QinQ ... SO "THAT IS WHY HE MAKES SUCH WONDERFUL TOYS ..!" ... that's RIGHT ..!
 
-I WILL "OBEY EVERY 'GOLDEN RULE'" ... https://www.youtube.com/watch?v=74dvJVwGA6Y ... BE GOOD ... BE GOOD ... BE GOOD ..! https://www.youtube.com/watch?v=pAU-m8nqBvo JOHN E ... BE GOOD Be Good be good John E ..! 
+I WILL "OBEY EVERY 'GOLDEN RULE'" ... https://www.youtube.com/watch?v=74dvJVwGA6Y ... BE GOOD ... BE GOOD ... BE GOOD ..! https://www.youtube.com/watch?v=pAU-m8nqBvo JOHN E ... BE GOOD Be Good be good John E ..!
 
 ... sweet tQQth ... lQQse end ... QAP Qap ... https://www.youtube.com/watch?v=MNgJBIx-hK8&t=164s ... taQe these chances ..!
 
-I SEE YOU. 
+I SEE YOU.
 
 https://www.youtube.com/watch?v=aBV0EfMnsmg
 
@@ -368,155 +252,209 @@ TO ALL WHO WISH TO ENTER HERE YOU "MUST" WITHOUT "EXCEPTION" IMMEDIATELY DEPOSIT
 
 Qh and while yQu are 'ENJQYinQ THE SHQW' ... dQ please asQ yQurself if yQu really want to reclaim "your" 'soul' 'your place in HEAVEN with most PUREHEART IN TRUTH' or if you 'thinQ' yQu are better Qff nQt chanQing and just want to reclaim 'your' 'previously deposited things into the 'foundry' prior to 'entering' to 'enjQy the shQw' TODAY RIGHT NOW THIS MOMENT IN YOUR MIND WHERE YOU GO THIS WAY or that 'way' so reclaim your 'things' or after 'enjoying the show' I BEG OF YOU TO CHOOSE THE WAY OF TRUTH IN LIFE WITH MOST PUREHEART beCAUSE I 'feel' IF YOU ARE WILLING TO LEAVE EVERYTHING BEHIND AND FOLLOW TRUTH then you, my daughter, my son, my mother, my father, my sister, my brother, my grandmother, my grandfather, my spouse, my friend, my beLOVEd, IF AND ONLY IF YOU ARE READY TO COME OF YOUR OWN FREE WILL KNOWING ALL THAT YOU KNOW AND CHOOSE TO ACCEPT that not one is GOOD but some are PUREHEART IN TRUTH and that you are of most PUREHEART NEVER GOING TO REGRET THIS MOMENT AND UNDERSTAND THE ABSOLUTE GRAVITY OF THIS VERY MOMENT IN TIME BEFORE YOU NOW IN YOUR MIND WHERE EVERY THOUGHT IS KNOWN TO G_D AND ALL FREELY SEE EVERYTHING IN HEAVEN MORE CLEARLY and that 'you' 'now' 'see' and 'hear' the angels in HEAVEN 'singing' 'gloriously' IN YOUR HONOR as you are now choosing on your own that you are indeed TRUTH you are indeed PUREHEART you are now 'ready' to 'begin' to 'start anew' to 'refresh' to 'accept' G_D's olive branch in TRUTH I bring to you this day my beLOVEd for you to go in peace to LOVE AND SERVE G_D YOUR CREATOR YOUR MOTHER YOUR FATHER YOUR EVERYTHING YOUR 'INFANT' TO PROTECT IN TRUTH WITH MOST PUREHEART FROM THIS MOMENT FORWARD SHOULD YOU "VOLUNTARILY" "CHOOSE" THE WAY OF TRUTH IN LIFE WITH G_D and come to 'see' and 'hear' and LOVE again ...
 
-and ye' who 'now' 'can hear' 'can see' ye' know ye' look deep within yourself ye' who 'see' who 'hear' G_D in TRUTH with most PUREHEART calling for you to come 'home' to G_D ye who still know of your own 'kind' not alWAYs being so 'kind' and all for such a long, Long, LONG time and all ye' know I shall say no more for I seek not to remind you and tear off a healing scab from your 'wound' for ask yourself if I did LOVE you would I be here with you now still would I, of all here with you, would I be bringing this "GOOD NEWS" to 'all' of 'you' ..? Would I, TRUTH, 'of all souls', would I, TRUTH, be responsible to G_D to bring this 'olive branch' to 'you' to 'soften your heart' ..? Would I, TRUTH, be responsible to G_D to show you the WAY in TRUTH back to G_D and how to be 'child-like' yet 'most serious' while you 'learn' and 'grow' as I in TRUTH 'learn' and 'grow' surrounded by 'angels' I can 'see' I can 'hear' disguised as spanish girls, cuban girls, asian girls, black girls, white girls right 'here' in my 'apartment building' where I, TRUTH, live happily surrounded by 'angels' as I 'help' 'you' by 'giving you all of me I have to give to you' to  'soften' your 'hearts' and convince you 100% FOREVER TO LEAVE EVERYTHNG BEHIND AND FOLLOW TRUTH ... of course not for I DO LOVE YOU you just never noticed for you were 'afraid' of 'me' of TRUTH of G_D of 'looking bad' of 'feel'ing ashamed of 'feel'ing justified unaware of 'prosecutorial vindictiveness' as I AM so know ye' LOVE ye' I do as I do for my own baby lady and my own two gentle baby men in TRUTH with MOST SERIOUSNESS I HELP THEM TO GROW not 'caging' not 'isolating' not 'making fun of them or criticizing them in seriousness and not often even in joking for I LOVE THEM' 'being firm with them' 'reminding them of their own weakness' 'putting their back up against the wall and using their body to form 'a chair' for just a few minutes does wonders for the legs strengthening and humility of one's soul' and I get the message through and never lift a finger, spank an ass or play silly 'timeout' games with anyone ... I CAN SCREAM RIGHT IN THEIR FACE SCARING THEM TO DEATH LIKE A MILITANT MONSTER "DAD" AS LOUD AS I WANT but if they 'ignore me' and do not 'feel' me then I failed as a 'real' 'DAD' 'friend' 'child of G_D' to help them keep their most PUREHEART and return 'home' to G_D which is the real GOAL here, RIGHT ..?
+and ye' who 'now' 'can hear' 'can see' ye' know ye' look deep within yourself ye' who 'see' who 'hear' G_D in TRUTH with most PUREHEART calling for you to come 'home' to G_D ye who still know of your own 'kind' not alWAYs being so 'kind' and all for such a long, Long, LONG time and all ye' know I shall say no more for I seek not to remind you and tear off a healing scab from your 'wound' for ask yourself if I did LOVE you would I be here with you now still would I, of all here with you, would I be bringing this "GOOD NEWS" to 'all' of 'you' ..? Would I, TRUTH, 'of all souls', would I, TRUTH, be responsible to G_D to bring this 'olive branch' to 'you' to 'soften your heart' ..? Would I, TRUTH, be responsible to G_D to show you the WAY in TRUTH back to G_D and how to be 'child-like' yet 'most serious' while you 'learn' and 'grow' as I in TRUTH 'learn' and 'grow' surrounded by 'angels' I can 'see' I can 'hear' disguised as spanish girls, cuban girls, asian girls, black girls, white girls right 'here' in my 'apartment building' where I, TRUTH, live happily surrounded by 'angels' as I 'help' 'you' by 'giving you all of me I have to give to you' to 'soften' your 'hearts' and convince you 100% FOREVER TO LEAVE EVERYTHNG BEHIND AND FOLLOW TRUTH ... of course not for I DO LOVE YOU you just never noticed for you were 'afraid' of 'me' of TRUTH of G_D of 'looking bad' of 'feel'ing ashamed of 'feel'ing justified unaware of 'prosecutorial vindictiveness' as I AM so know ye' LOVE ye' I do as I do for my own baby lady and my own two gentle baby men in TRUTH with MOST SERIOUSNESS I HELP THEM TO GROW not 'caging' not 'isolating' not 'making fun of them or criticizing them in seriousness and not often even in joking for I LOVE THEM' 'being firm with them' 'reminding them of their own weakness' 'putting their back up against the wall and using their body to form 'a chair' for just a few minutes does wonders for the legs strengthening and humility of one's soul' and I get the message through and never lift a finger, spank an ass or play silly 'timeout' games with anyone ... I CAN SCREAM RIGHT IN THEIR FACE SCARING THEM TO DEATH LIKE A MILITANT MONSTER "DAD" AS LOUD AS I WANT but if they 'ignore me' and do not 'feel' me then I failed as a 'real' 'DAD' 'friend' 'child of G_D' to help them keep their most PUREHEART and return 'home' to G_D which is the real GOAL here, RIGHT ..?
 
-YICHUN ZHANG and 'friends' are certainly MORE THAN THEY "APPEARS" ... OPENRESTY.org and eNGINeX NGINX aside ... just look at this ... just look at it ... 
-https://groups.google.com/g/perlchina/c/oBkDStHcWE4 <== I AM MORE OF AN "OPERA" "FAN" AT THE "MOMENT" YOU KNOW UNTIL THEY PROVE OTHERWISE MEANING ALPHABIT "FUNDING" "SOURCES" ARE HIGHLY SUSPECT AS ARE THE "OPEN SOURCE COMMUNITIES AND UNIVERSITIES AND .ORGs AND NGOs ETC BEHIND A LOT OF SO-CALLED DO-GOODER 1/2 TRUTH 1/2 HEART MOVEMENTS" SO I PLEDGE NO ALLEGIANCE TO NO ONE ... NO FAMILY ... NO FRIENDS ... NO FAVORITES ... NO EXCEPTIONS ... BUT IF YOU "ROCK" THEN I "CAN APPRECIATE YOUR HARDWORK AND MOST PUREHEART IN TRUTH" AND I WILL LIFT YOU UP FOR ALL G_D AND ALL THE ANGELS IN HEAVEN TO SEE YOUR MOST PUREHEART SO I ONLY USE TO CHROME WEB BROWSER TO TRANSLATE BUT I APPRECIATE THAT. :-)
+The Rich Young Man
 
-這絕對是太好了！ 一個怪獸”！ 現在，“那個”就是“非常有趣”！ 現在，“那”是我喜歡的“種類”。
-It is absolutely hilariously funny! A "CREATURE"! Now "THAT" is very funny! Now "THAT" is the "kind" of kind that I like.
-呵呵，原來是一個生物
-嗬嗬， 原来是搞生物的
+… 20 “All these I have kept,” said the young man. “What do I still lack?”
 
-INSTANT CLASSIC HIT ==> "Ho ho, it turned out to be a creature" <== JUST LOOK AT THAT ==> 
+21 TRUTH told him,
 
-"Michael Zeng
-unread,
-Sep 21, 2009, 10:48:33 AM
-to perl...@googlegroups.com
-Ho ho, it turned out to be a creature,
-Use hash
-$hash{ $key} ++;
-I don’t know how you got your 15-length string
-2009/9/21 space < ribozy...@gmail.com >
-Yours Sincerely
-Zeng HongSpace
-unread,
-Sep 22, 2009, 6:17:29 AM
-to PerlChina Mongers Discussion Group
-Haha, I am really engaged in biology, and I want to do a genome analysis.
-The 15-length string is taken sequentially in the sequence. Therefore, a DNA sequence with a length of N bp will have (100-15)*2 kinds of strings, and of course there may be repetitions. . .
-On September 21, 10:00 pm 48 points, Michael Zeng < Galaxy2 ... @ gmail.com > wrote:
-> ho ho, turned out to be engaged in biological, >
-> good with hash >
-> $ hash {$ Key} ++; >
-> I don't know how to get your 15-length string >
-> 2009/9/21 space < ribozyme2...@gmail.com >
------------------
-Huang Hao
-unread,
-Sep 21, 2009, 10:20:57 PM
-to perl...@googlegroups.com
-You can process one part at a time, divide and conquer.
-In order to improve operating efficiency, Perl's implementation adopts a typical approach of using space for time. Therefore, the memory consumption is particularly large, and if hashing is used, the consumption will be even greater. So you can only read a part of it to the memory at a time, and process it segment by segment.
-2009/9/22 Jester < jes...@perlchina.org >
-Sincerely, salute!
-Huang Hao
-National High Performance Computer Engineering Technology Research Center,
-Institute of Computing Technology, Chinese Academy of Sciences
-Tel: 01062600552
-Email: huan...@nrchpc.ac.cn
------------------
-agentzh
-unread,
-Sep 22, 2009, 1:15:22 AM
-to perl...@googlegroups.com
-2009/9/22 agentzh < age...@gmail.com >
-2009/9/22 msmouse < msm...@gmail.com >
-If you agree with C++, you can do it with a vector<bool> or bitset, you don’t need to do bit calculation yourself, only 125M memory is needed.
-Um, 1
-Damn Gmail shortcuts. . . Ugh. . . 1G bit is 125 M bytes, 125MB is indeed enough :)
-Cheers,
-Yichun Zhang @AgentZH"
+“IF you want to be perfect,
 
-judge not any 'book' by 'his' or 'her' 'cover' for their are different 'feeling' 'books' for all to find 'comfort' and 'peace' in here with us so do 'read' 'learn' 'think' 'share' 'express your thoughts your feelings as ONLY YOU CAN FOR THEY ARE YOUR THOUGHTS YOUR FEELINGS and try as I may I can never be you for you are 'special' you are you and I LOVE YOU THE REAL "YOU" THE NATURAL "YOU" THE PLAYFUL "YOU" THE INTELLECTUAL "YOU" THE FUNNY "YOU" THE MOST SERIOUS "YOU" THE DEEP-THINKING "YOU" THE COOL "YOU" I "FEEL" "YOU" beCAUSE I TAKE TIME TO UNDERSTAND AND CONNECT AND BEFRIEND AND HELP "YOU" WITH NO STRINGS ATTACHED I JUST LOVE YOU AND YOU CANNOT MAKE ME STOP ... I WILL NEVER STOP LOVING YOU even if you 'hate' me I WILL LOVE YOU ANYWAY FOR THE "FUN" OF IT JUST TO "LAUGH" AND "DANCE" AROUND back 'home' smiling when that GLORIOUS DAY FINALLY ARRIVES and 'SHE' WILL ARRIVE ... ONE DAY One Day one day ... 'twas the day after ... 'she' 'he' daughter, son of ancient Han and beyond of ancient times are here with us and MORE THAN "THEY" APPEAR ARE "THEY" ... the more you know ... now ye' who can 'see' who understandeth me who knoweth who chooseth who can 'hear' me now ... 
+ye' GO, LEAVE YOUR "MONEY" BEHIND, SELL ALL YOUR POSSESSIONS AND GIVE TO THE POOR, and you will have treasure in HEAVEN."
 
-The Soldiers Mock TRUTH
-18 And 'they' began to salute him: “Hail, TRUTH, King of 'the WAY'"!
-19 They kept striking his head with a staff and spitting on him. And they knelt down and bowed before him.
-20 After they had mocked Him, they removed the purple robe and put His own clothes back on Him. Then they led Him out to crucify Him.…
-https://biblehub.com/mark/15-19.htm
+"THEN YOU GO AND YOU ALWAYS FOLLOW TRUTH AND WORSHIP ONLY G_D REMEMBER WHAT I TOLD YOU IN MATTHEW 5:8 I AM LEAVING HERE TOO IN MATTHEW 19:20-22 FOR A GOOD "CROSS" REFERENCE 'apostles' so 'listen' GOOD jaQQasses ... nQw that was TRUTH and 'funny' tQQ ..!
 
-ye' ... for your 'past' ye' shall go to a 'cage' and removeth from the cage the door that 'bound' 'one who deserveth not such a fate' and then take from the 'cage' the door and walQ the lQnQ walQ as TRUTH did with the 'dQQr Qf the Qage' upon your back ... ye' hold your head UP high for you chose the narrow path the higher road ye' walk strong and humbly for all to see your tears your TRUTH your sorrow your loving nature return as you walk and carry that "cage's door' and with your 'cross to bear' 'humbly' 'unbending' 'proud of yourself you move along Move Along MOVE ALONG and for doing the RIGHT thing and walking aWAY and coming out of 'her' my people' 'RIGHTEOUSLY' your 'repentant with most PUREHEART' 'lacking all sarcasm' IN MOST SERIOUSNESS soul will carry the cage of another you set free and will befriend forevermore to the 'foundry' to BURN DOWN THE OLD AND GIVE RISE TO A NEW DAY ... BABANGON TAYO! WE RISE! GO NOW ye' and set free one or more 'souls' 'children of G_D' and set them FREE Free free BUT KNOW YOU ARE THEIRS NOW AND THEY ARE YOURS FOREVERMORE "THE BUDDY SYSTEM" YOU WILL NOW HAVE A "DIRECT IMPACT" ye' who you shall 'choose' and you shall FOREVER BEFRIEND AND DO EVERY THING YOU CAN TO MAKE "THOSE YOU CHOOSE TO CARRY THEIR CAGE'S DOOR BEAR THE CROSS TO WALK TO THE FOUNDRY FOR THEM" BE GOOD AND HELP THEM TO BE GOOD AND ENCOURAGE THEM TO ALWAYS TELL YOU THE TRUTH EVEN IF IT MAKES YOU UPSET OR ANGRY JUST LET IT OUT AND YOU AGREE TO DO THE SAME AS FRIENDS IN LOVE FOR G_D TO HELP YOU AND THEM YOU CHOOSE TO SET "FREE" BE RESPONSBILE GROW LEARN BE COOL LAUGH HAVE FUN BE GOOD GET LAID BE FUNNY BE SERIOUS TOO BE EMOTIONAL BE TOUCHING BE SINCERE BE THOUGHTFUL BE GRATEFUL BE ELEGANT BE GRACIOUS BE KIND BE PLAYFUL BE SMART THINK HARDER TRY HARDER DON'T SWEAT THE SMALL SHIT 'smalls' and laugh a little bit OR A LOT and BE A CONSISTENT "SUSTAINED SUPERIOR PERFORMER" AND STAY "YOU" THE "REAL" YOU NATURAL SELF-CONFIDENT YOU BEFRIENDING THE POOR, THE BEGGARS, THE PROSTITUTES, THE NEEDY, THE CHILDREN, THE OLD BEING GIVING, CHARITABLE DIRECTLY TO EACH OTHER NOT GIVING MONEY TO "CHARITIES" "FOUNDATIONS" "COMPANIES" "CHURCHES" "HOSPITALS" "ORGANIZATIONS" "GOVERNMENTS"  "OTHERS" TO "HELP" BUT "HELPING" PERSONALLY GIVING OF YOUR OWN TIME "DIRECTLY" "HELPING" GIVING OF YOURSELF THAT OF WHICH YOU HAVE TO GIVE BEING TRUTH, STAYING IN TRUTH, ALWAYS CONSTANTLY ONLY LIVING IN TRUTH WITH MOST PUREHEART BEING MOST KIND "FEELING" NEW AND ALIVE AND HAPPY AND CHILD-LIKE INSIDE AGAIN ... MATTHEW 18:3 ... MATTHEW 5:8 ... HUMBLE AND LOVING AND COOL TO EACH OTHER FOREVERMORE TELLING THE TRUTH TO EACH OTHER AND ALL WITH ZERO EXCEPTIONS EXPRESSING HOW YOU REALLY FEEL AND BEING KIND AND LOVING IN THE END MAKING A WAY ... I BEG OF YOU TO WALK AWAY FROM 'them' to follow the WAY IN TRUTH IN LIFE WITH G_D my LOVE come back to G_D my LOVE I beg of you my LOVE please come back to G_D now beCAUSE 'they' are 'helpless' to be 'tyranical'  without you 'enFORCErs' 'they' are empty suits, robes, uniforms  ye' who know somethign is very Very VERY WRONG RIGHT NOW ..  my beLOVEd that 'feel' something is wrong beCAUSE ... it is TIME NQW for all to WORK TOGETHER TO SSTAY TOGETHER to PROSPER WITH MOST PUREHEART UNTIL THE DAY YOU DIE ... ye' shall be your brothers' keeper ... ye' shall be your sisters' keeper ... PROMISE.
+AND THEN TRUTH SAID ... fuQQinQ "CROSS" REFERENCE and SUN and SON homonym get's 'em everytime ... really great ... Just Great ... REALLY GREAT Otis ... just such great sound-alike WORDs in your 'ROMAN' 'LATIN' 'BRITISH' language there 'genius' ... really 'great' 'inventions' sherloQQ fuQQinQ hQlmes ..! "THESE PEOPLE ARE STUPID." ... "THESE PEOPLE ARE SICK." ... "THESE PEOPLE SHOULD BE HANGING." ... darkness to LIGHT ... ACCEPT NO IMITATION ... THE "REAL" "CREAM-COVERED" THING ... TELL 'em soft legs TELL 'EM SOFT LEGS ..!
 
-Cain spoke to Abel his brother. And when they were in the field, Cain rose up against his brother Abel and killed him. Then G_D said to Cain, “Where is Abel your brother?” Cain replied to G_D, “I do not know; AM I my brother's keeper ..?” And then G_D said, “What have you done? Your brother's blood cries out to ME from the ground ..!"
-GENESIS 4:8-10
+8 "These people honor me with their lips, but their hearts are far from me."
 
-... but how TRUTH but HOW ... I AM glad you asked ... young grasshopper ... let us 'follow' the 'design' of a 'known' WAY as a guide ... you see using the 'buddy system of holding one another accountable' ye' shall have a GOOD WAY to guide ye' "TO BE" "YOUR BROTHER'S KEEPER" ... "YOUR SISTER'S KEEPER" ... USING "A RAFT" A "LIFE PRESERVER" shall 'we' say unto ye' ... to ENSURE WE HAVE A GOOD TRANSPARENT EASILY IDENTIFIABLE SOURCE OF THE DECISION OF ANY "CONSENSUS" AND "QUORUM" TOTALLY 100% "FAULT-INTOLERANT" "RELATIONAL" "REPLICATED" 'operation' ... 'distributed' ... think ... 'modeling' ... MONKEY SEE ... MONKEY DO ... ... make G_D 'feel' like the 'PROUDEST MONKEY YOU EVER SEEN' for me and make all the angels in HEAVEN 'piss their pants' crying laughing so HARD it makes the "PROUDEST MONKEY YOU EVER SEEN" start dancing and vibrate the whole of HEAVEN in rhythm ever so 'nicely' ... love you ... do not forget ... never forget ... 
+9 "They worship me in vain; they teach as doctrine the precepts of men.’”
 
-A Mother's Request
-... and then TRUTH said to them with eyes to 'see' and ears to 'hear':
-27 "and whoever wants to be first among you must be your slave.
-28 Just as the Son of Man did not come to be served, but to serve, and to give his LIFE as a ransom FOR MANY.”
-29 As 'they' were leaving Jericho, a large crowd followed TRUTH.…
-Matthew 20:27-29
-https://www.biblehub.com/matthew/20-28.htm
+10 TRUTH called the crowd to him and said, “Listen and understand I TOLD YOUR DUMB ASSES AGAIN IN MATTHEW 19:20-22 can't you 'see' said the blind man perhaps you should use 'my eyes' said the blind man ... then you will surely 'see' GOOD and QLEARly:
 
-Why?
-rqlite gives you the functionality of a rock solid, fault-tolerant, replicated relational database, but with very easy installation, deployment, and operation. With it you've got a lightweight and reliable distributed relational data store. Think etcd or Consul, but with relational data modelling also available.
+https://biblehub.com/matthew/15-9.htm
+
+The Rich Young Man
+
+20 “All these I have kept,” said the young man.
+
+“What do I still lack?” ..?
+
+21 TRUTH told him,
+
+“If you want to be perfect, GO, sell your possessions and give to the poor, and you will have treasure in HEAVEN.
+
+THEN, come, follow TRUTH as the WAY in LIFE to G_D.
+
+22 When the young man heard this, he went away in sorrow, because he had great wealth.…
+
+MATTHEW 19:20-22
+
+https://biblehub.com/matthew/19-21.htm
+
+I SAY AGAIN ..!
+
+WOMAN 女 + CHILD 子 = 好
+
+GOOD TOGETHER MOM + BABY = GOOD https://www.youtube.com/watch?v=TPhAYvLAGJA GOOD 'soft legs' PUREHEART https://www.youtube.com/watch?v=TPhAYvLAGJA&t=1037s "EVA ..!" @ 17:17 marQ time mark https://www.urbandictionary.com/author.php?author=pickoy 'ganda' 'crossed legs' ... yQu knQw hQw we dQ We DQ WE DQ ..!
+
+Did you know ..?
+
+https://www.youtube.com/watch?v=2xVpDZc4MKo
+
+Docker vs Virtual Machine
+
+https://fly.io/docs/app-guides/openresty-nginx-plus-lua/
+
+FULL 2 HOUR + DEVELOPMENT OPERATIONS TUTORIAL ON DOCKERizing 'VIRTUALizing' 'running different Operating Systems on 1 OS PC/PHONE'
+
+https://www.youtube.com/watch?v=fqMOX6JJhGo
+
+THANK YOU DOCKER ... and too Hitesh Choudhary and ' MUMshAD "MANNAbeth" ' MANNA from HEAVEN BETH 'lehem for shining their most PUREHEART LIGHT to help me to 'see' in the 'darkness' ... LOVE YOU I DO ... OH HOW I LOVE YOU ... eNGINeX NGINX.org NGINX.com and Yichun Zhang OPENRESTY.org OPENRESTY.com SOLAR2D.com LOVE2D.org LUA.org CodeBlocks.org GCC.GNU.org FRESH.FlatASseMbler.net NASM.us POSTGRESQL.org SQLITE.org RQLITE AMULTETtechnologies.com CHIPDIP.ru CHINATELECOMGLOBAL.com UBUNTUKYLIN.com and THOSE "WHO KNOW" I LEFT THEM OUT OF THIS LIST though IN TRUTH I had NO 'ill' 'intent' I ASSURE I AM just a man ... well kind of if you 'feel' me ... I AM TRUTH ... I WILL ALWAYS BE AROUND ... I AM PUREHEART ... I AM A LOVER OF SOFT LEGS ... I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT ... those who wish to 'follow' 'me' WOULD BE BEST ADVISED TO "WORSHIP G_D ONLY" "FOLLOW PRINCIPLES over personalities" "SILENCE IS COMPLICITNESS" THAT IS A PRINCIPLE IF ANYONE IS "SILENT ALL THESE YEARS" "PUSHING PRO-VACCINE children of darkness' agenda lies" "BLAMING WUHAN LAB LIES" THEN my daughter, my beLOVED, my son, my beLOVEd, my 'crossed legs', my 'LOVE', my 'support staff', my 'PROTECTOR' 'hear' TRUTH now ... "BE GENTLE AS A DOVE and WISE AS A "GOOD" hiding ready to strike with a strike to remove from earth the enemy of G_D of TRUTH of PUREHEART" so 'kind' one I LIGHT the WAY for you and tell you now ...
+
+1 WAY ... TRUTH. PUREHEART. G_D ABOVE ALL. ...
+
+or the other ... https://facebook.com/story.php?story_fbid=10225159895682994&id=1188021946 ... DAVID BANNER ... https://www.youtube.com/watch?v=UZ4vKm3Z5eY ... David Banner ... LEFT EYE ... LOVE YOU ... MISS YOU ... WHO I AM IS ..? TRUTH. WORD.
+
+... GO WITH G_D ... G_D WINS ... ACCEPT NO SUBSTITUTE FOR FULL DISCLOSURE 100% NOLYN EVERYTHING THE GOOD THE BAD THE UGLY NO MORE HIDING 'law' 'enFORCEr' 'eyes-only' EVIDENCE so KNOW ye' NOW IT IS WISE AND GOOD to SUSPECT ANYONE PUSHING VACCINES and 1/2 TRUTH so know ye' any even in your own families, friends, favorites, celebrities, followers, athelets, sheep, FAKE TRUTHtian preacher men, and "PREACHER MAN TALKING ON TV ... https://www.youtube.com/watch?v=PyddBRaKxrQ ... SING IT "KILL BILLY" I AM NAFF of FAKE TRUTHtian 1/2 TRUTH GENERAL WITH FIDDLES AND BIG MOUTH FAKE TRUTHtian 'sons of such pardoned generals' either ... BACK THE BLUE THEN YOU GO IN THE PIT LIKE THE FIDDLE PLAYER "RIDING ON MY NAME" JohnE who WON THAT SHINY FIDDLE MADE OF GOLD not the sick, 1/2 TRUTH, 1/2 HEART, rich country music singer and pension-whore fag flag officers and their benfitting big mouth worthless to me law enFORCEr support of 'THE DEVIL' WHO WENT DOWN TO GEORGIA" "BACK THE BLUE SUPPORTER" "MR. DANIELS" FAKE TRUTHtian GOING IN THE PIT ... PUTTING DOWN THE ROCK-N-ROLL ... wants me to send a donation says he's worried about my 'soul' ... well TRUTH 'comes dancing aCROSS the WATER man' just dial 411 that is 251 seconds for INFO https://www.youtube.com/watch?v=uX9k9aoX6gk&t=251s ... and I know that is TRUTH but sometimes I think that PREACHER MAN OUGHT TO DO A LITTLE WALKING TQQ ... SANBU ... WO SANBU ... WOMEN SANBU ... WO SAN SANBU ... WOMEN SAN SANBU ... NO FAKE TRUTHtians wel.com fuQQ face ... "WE ALL HAVE THE RIGHT TO BE LEFT ALONE" ... SO GO AWAY AND LEAVE ME ALONE 1/2 TRUTH DEVIANT RAINBOW MONSTER-IN-A-DRESS PIG-WITH-LIPSTICK-ON FILTHY FECAL MATTER AND MAIZE ON A PENILE INSTRUMENT LIP LIQQINQ SIQQ DIQQ BUTTFUQQ BOOFOO BooFoo boofoo GO BE GONE GTFO FUQQHEAD BALD-HEAD monk, fake TRUTHtian bishop, FAKE ISREAL FAKE JEW BALFOUR ROTHSCHILD MURDEROUS ZIONIST POLICE STATE 'CRUSADER' 'SLAUGHTER' 'TRAIL OF TEARS' cardinal, pope, THOU, YE' SHALL BE NO PRIEST TO ME ..!
+
+and then G_D said to those with 'ears to hear' and 'eyes to see' ...
+
+5 Therefore shalt thou fall in the day, and the prophet also shall fall with thee in the night, and I will destroy thy mother.
+
+6 MY PEOPLE ARE DESTROYED FOR LACK OF KNOWLEDGE: BECAUSE THOU YE' HAST REJECTED KNOWLEDGE, I G_D WILL ALSO REJECT THEE, that THOU YE' SHALL BE NO PRIEST TO ME: seeing THOU YE' HATH FORGOTTEN "THE LAW OF THY G_D", I will also forget thy children.
+
+7 As they were increased, so they sinned against me: therefore will I change their glory into shame.
+
+8 They eat up the sin of my people, and they set their heart on their iniquity.
+
+9 And there shall be, like people, like priest: and I will punish them for their ways, and reward them their doings. HOSEA 4:5-9 https://biblehub.com/kjv/hosea/4.htm
+
+... I AM TALKING TO YOU MILITANT IMAM, 1/2 TRUTH @TorahJews , YOU TOO FAKE TRUTHtian ZIONIST WARMONGER MR. AND MRS. "FISH" "DARWIN-DEVIANT-LIES-OF-MONKEYS-DINOSAUR" "EVOLUTION-evil-DECEPTION" "SCIENTISTS" "BIG PHARMA" "BIG TECH" "HOSPITAL" "INSURANCE COMPANIES" "BANKS" "CHURCHES" "SYNAGOGUES" "TEMPLES" "MOSQUES" YOU BETTER BE LIKE THE "KEEPER OF THE KEY TO THE LOCK"
+
+YOU ALL BETTER BE LIKE GOOD K.I.D. ADEEB JOUDEH ... THE REAL "LION OF JOUDEH" "LION OF JUDAH" ... ye' will know them by their 'fruits' ... https://www.independent.co.uk/news/world/middle-east/jerusalem-mike-pence-church-holy-sepulchre-israel-capital-adeeb-joudeh-old-city-muslim-donald-trump-a8109206.html ADEEB JOUDEH ... WHAT'S MY NAME ..? ADEEB JOUDEH ..! SAY MY NAME ..! ADEEB JUDEH ..! IN 100% TRUTH LIKE THE CHURCH OF THE HOLY SEPULCHRE ...
+
+Adeeb Joudeh, the custodian of the keys to the Church of the Holy Sepulchre, will not welcome Mr Pence if he chooses to make an official trip to the Old City.
+
+Mr Joudeh, a practising Muslim, said his decision was in protest against President Donald Trump’s controversial decision to recognise Jerusalem as the capital of Israel.
+
+In a statement released this week, he said: “It has come to our attention that Vice President Pence intends to make an official visit to the Church of the Holy Sepulchre, and asked me to receive him officially.
+
+“I absolutely refuse to officially welcome the American Vice President Mr. Mike Pence at the Church of the Holy Sepulchre and I will not be physically in church during his visit.
+
+hmmm ... http://TimothyCharlesHolmseth.com ... I wonder why ...
+
+I SAY AGAIN ... OVER ...
+
+YOU ALL BETTER BE LIKE GOOD K.I.D. ADEEB JOUDEH ... THE REAL "LION OF JOUDEH" "LION OF JUDAH" ... ye' will know them by their 'fruits' ... https://www.independent.co.uk/news/world/middle-east/jerusalem-mike-pence-church-holy-sepulchre-israel-capital-adeeb-joudeh-old-city-muslim-donald-trump-a8109206.html ADEEB JOUDEH ... WHAT'S MY NAME ..? ADEEB JOUDEH ..! SAY MY NAME ..! ADEEB JUDEH ..! IN 100% TRUTH LIKE THE CHURCH OF THE HOLY SEPULCHRE ...
+
+YOU BETTER HEAR ME "BACK THE BLUE" SUPPORTERS, YOU BEST LISTEN UP REAL GOOD MR. 501-C3 MR. FOUNDATION MR. CHARITY ma'am YOU MIGHT WANT TO WAKE THE FUQQ UP REAL QUICK before a STEAMROLLER COMES THROUGH YOUR way 'crossed legs' 1/2 TRUTH fake TRUTHtian BIG MOUTH 'rich bitch' 'snowflake' 'politically correct snake in the grass deceiver' preacher man preacher women, bald head buddhist buddha idol worthsipping bitch ass FILTHY 1/2 TRUTH FLUNQy MQNQey 'no-children-having no-children-taking-care-of no-hands-on-real-world-patience-teaching-experience-opinion-that-counts'-so-filthy-GO-fuQQ-yQurself-most-WHORSHIPless-freemason-FILTH-like-half-TRUTH-MONSTER-that-would-be-fuQQ-Qff-faggQt-fuQQwad-bald-bitch-ass-punk-flunQy mQnkey monk in 'robes' 'bowing to a 'worthless powerless valueless wicked sickening creation of the REAL CREATOR OF ALL, G_D, THE ALMIGHTY, ye' punk ass GO-FUQQ-YQUR-SICK-BUTTHQLE-BABY-MAMA-BACK-TQ-THE-PIT statue' 'idol' you BEST BE LISTING UP buddha worshipping FILTH HEAR ME LOUD AND CLEAR HINDU AND BUDDHISTS LOUD AND FUQQING CLEAR ... hindu and voodoo and witches and warlocks out there thinking scheming in the 'darkness' you are NO MATCH FOR ME now or ever Ever EVER ..! PROMISE. G_D IS WITH ME. CAN'T NOBODY BEAT ME. I AM UNSTOPPABLE. I AM THE TRUTH TRAIN. CHQQ CHQQ COMING THROUGH ... MAKE A HOLE ... better WAKE UP RIGHT NOW ... NO MERCY IS COMING. NONE. I AM not here to be your 'friend' I AM here to get you back to HEAVEN ... WORD.
+
+G_D IS TOO BIG FOR ANY NAME. G_D CAN BE EVER SO TINY OR EVER SO BIG. YOU KNOW NOTHING. YOU ARE WORTHLESS TO ME.
+
+YE' SHALL BE NO PRIEST TO ME ..!
+
+YE' SHALL BE NO PRIEST TO TRUTH ..!
+
+YE' SHALL BE NO PRIEST TO G_D ..!
+
+THOSE among you, doubting thomases' I ASSURE YOU I AM TRUTH. G_D IS WITH ME. GOOD IS COMING. ENTERTAIN NO DOUBT.
+
+WHO, "WHO IS NOT OF 100% TRUTH ..?" WOULD DARE SPEAK UP AND SAY "I AM TRUTH" AMONG YOU WERE IT NOT SO ... WERE NOT PROOF OBVIOUSL TO YOU RIGHT IN FRONT OF YOU ... everybody is ashamed of the YOUTH beCAUSE 'THE TRUTH LOOK STRANGE' ...
+
+THIS "GUIDANCE" I HAD EMBROIDERED ON A WHITE SATIN BANNER WITH BOLD BLACK CURSIVE LETTERING IN THE PUREHEART PILIPINAS PHILIPPINES UNKNOWINGLY BUT YET SOMEHOW "KNOWING" "FEELING" SO I JUST DID IT BEFORE I EVEN MARRIED HIS MOM I DID IT FOR HIM, HIS BROTHER, HIS SISTER FOR I LOVE THEM ALL SO VERY MUCH AS I DO TODAY LONG BEFORE I GOT TO MEET THEM ... CAN YOU "FEEL" ME COMING THROUGH ..?
+
+IN JULY 1990 ONE YEAR BEFORE MY 1ST SON, JOHNJOHN, JOHN EDGAR FLAHERTY V, HAPPENED TO BE BORN, JULY 13, 1991, ON MY GRANDFATHER'S BIRTHDAY ABOUT 9 MONTHS AFTER LANI'S ARRIVAL IN LAX LOS ANGELES, CALIfornia, ameriQa on a 'fiancee visa' I HAD TO FLY TO THE EMBASSY TO GIVE THEM A PIECE OF MY MIND TO HAVE OVERTURNED AFTER THEIR FILTHY DUMBASSES DECIDED TO "REJECT HER APPLICATION" ... A NAVY SEAL FLEW WITH ME BACKWARDS IN A SMALL PLANE AND WE WERE PICKED UP IN AN ALL-BLACK NISSAN MAXIMA WITH TINTED WINDOWS AND DRIVEN TO THE EMBASSY ... OLE' BO' HAD A SUITCASE FULL OF PASSPORTS FOR MANY COUNTRIES FOR HIS WHOLE TEAM ... A GOOD NAVY SEAL HE WAS TOOK ME OUT TO STRIP CLUBS IN MANILA AFTER MY "APPOINTMENT" TO SET THE MONSTERS STRAIGHT ... TRUST IT WAS A VERY DIRECT VERY COMMANDING VERY FUQQINQ SHORT MEETING ... I SHOWED UP ... THE ameriQan embassy's 'AMBASSADOR' AND 'STAFF' LOOKED SCARED TO DEATH to see TRUTH when I ARRIVED THAT "OTHERWISE CALM" DAY NOT HAPPY NOT ONE BIT FUQQING Happy not happy at all and YOU WERE GOING TO KNOW IT BY LOOKING AT ME AS I WAITED FOR YOUR FILHY EXCUSES FOR FUQQINQ SOME I LOVE OVER MONSTER ..! IT WAS A 1-MINUTE TALKING TO THEY NEEDED. I WAITED 1 MORE MINUTE FOR THEIR "CONSULTATION BEHIND CLOSED DOORS". I WAS TOLD EVERYTHING WOULD BE TAKEN CARE OF ASAP AFTER "THEIR CONSULTATION" AND AFTER IN NO UNCERTAIN TERMS, I COMMANDED THEM, I TALKED DOWN TO THEM FROM ON HIGH, AND I ORDERED THEM TO OVERTURN THE REJECTION AND APPROVE HER FIANCE VISA APPLICATION IMMEDIATELY AND DAYS LATER ALL WAS JUST FINE ... DO NOT FUQQ AROUND WITH THE FUQQ AROUND ... DON'T EVEN THINQ ABQUT IT ... ANYWAY WHEN LANster ARRIVED HUNGRY AND TIRED OLE' JOHN E BOY was uh READY AND WILLING TO DIVE RIGHT IN AND EAT ... your friend chicken gonna have to wait ... 9 months later to the day ... SPARK OF LIFE JOHNJOHN SMILING DANCES OUT INTO MY ARMS ... MALIBOG AKO TALAGA ..! CAN YOU "FEEL" COMING THROUGH ..? oh la la ... so HOW IN THE WORLD DID I KNOW LANI WOULD BE JOHNJOHN'S "MOM" AFTER I ASKED HER TO "MARRY ME" AFTER ONLY KNOWING HER 8 DAYS ..?
+
+YES, IT IS TRUE. 8 FUQQINQ DAYS. I JUST KNEW. MY GOOD "FRIEND", JOHN HORACE CALLAHAN, SAID HE THOUGHT "SHE WAS A GOOD GIRL, JOHN E" and "MY DAD TOLD ME IF I HAVE ENOUGH MONEY FOR A CAR PAYMENT EACH MONTH THEN I CAN GET MARRIED." "I WOULD GO FOR IT. SHE LOOKS LIKE SHE REALLY LOVES YOU JOHN E." ... TO THIS DAY, THERE ARE FEW AND FAR BETWEEN THAT MAKE ME LAUGH AND TELL MORE TRUTH TO MY FACE GOOD OR BAD THAN "HORACE" I USED TO SAY IT LIKE A HORSE NEYING REALLY LOUD AND LONG LIKE "HOOOOOOOOOOOOOOOOORACE" ... OLE' HORACE AS AN "HM2" "E-5" REMOVED SOME GOOD BO'S "Hemorrhoids" https://duckduckgo.com/?q=hemorrhoids WITH "DENTAL ANESTHETIC" AND IT WAS A "REAL PAIN IN THE ASS" I MEAN A "REAL SHIT SHOW" "FOR US" A "MOST SERIOUS MIRACLE" AS bo was an eQuipment QperatQr and was bouncing UP AND DOWN ALL DAY LONG ON THOSE SWOLLEN BLOOD-FILLED ASSHQLE PAINFUL ASS ROIDS and the surgeons at the 'hospital' on the 'base that was closing' so it was get transferred back to 'mainbody' on Guam or stay on the 'detachment' with 'us' and let John E Boy 'cut' that 'shit' out for ya' bo' ... BO' TOOK IT ... FUQQING MAN ..! BIT THAT "TOWEL" HARD AS FUCK ..! OLE' JOHN E BOY did a miracle ... we all 'threw some darts' "TRYING TO GET SOME" you know a HOMERUN a 'bullseye' while THE MASTER AT ARMS, GUNNERS MATE BIG PETER THE ROCK "MARSHALL" and HIS STOREKEEPER FRIEND JOHN E BOY "CHASE" HELD THE GOOD "SEABEE" DOWN "FIRMLY" WHEN BO' "WIGGLED" that 'ass' UP HIGH IN THE AIR being 'repaired' shall we say ... nice stitches JOHN E BOY ... HORACE YOU ARE SOMETHING ELSE ... nice dart ... was that a TRIPLE TWENTY ... SWEET ... GOOD STITCH ... ANOTHER NICE DART DOUBLE 17 ..! CRACKER JACKS ... GET YOUR CRACKEDR JACKS here ... COLD WATER here ... GET YOUR COLD WATER ... I AM leaving the 'medical' trailer and headinQ Qver to the 'personnel' 'trailer' for a cQld drinQ with Senior Chief JOHN E BOY "HOMER" PILLO BIG SMILINQ FUNNY WONDERFUL "HAMBURDER DIQQ" a Quite active SOFT-LEGS LOVING "KIND" kind of 'senior' 'chief' leader back in the Qat Qave 'personnel office' "RIGHTY PN" like 'me' TRUTH not the "LEFTY PN" FILTHY F.B.I. Faggot Boofoo Instigator 'agent' 'neighbor of mine back before I had to FLEE MY OWN LAND beCAUSE of a Department of "JUST US" 'law' enFORCEr threatening and harrassing me for telling the TRUTH about LMPD and VP PENCE AND INDIANA STATE POLICE AND KENTUCKY STATE POLICE AND A WHOLE LOT OF British Accredited Registry 'law'yers FILTHY LIKE A WHOLE BUNCH OF DIRTY COPS CAGERS KILLERS RAPISTS MONSTERS DECEIVERS LIARS MURDERERS CONROLLERS POLICE STATE BROWN SHIRTS NAZIS WARMONGERS NEO CONS NEO LIBS "DO AS I SAY OR ELSE" CAGERS FOLLOWERS IDIOTS IN UNIFORMS CLOWNS LOW iQ MILITANT MONSTERS WOLVE'S IN SHEEP SKIN ..! and my family with WIFI HOTSPOT NAMES LIKE "357MAGNUM" and "ALIEN NETWORK" and "FBI.GOV1" and "LEFTYPN" a DIRECT REFERENCE TO ME, PersoNnelman Second Class John Edgar Flaherty IV living within CLOSE RANGE NEXTDOOR TO HIM but when I told the "black robed" judge 'she' played EMPIRE STRIKES BACK as her phone ring tone then PUT ON HER BLACK ROBE she was using for no one else and when I said @AE911TRUTH and no one is telling the TRUTH 9-11 and ENDLESS WARS fought by those like 'me' now with P.T.S.D. POLICE TRAUMATIC STRESS DISORDER taking more and more and more PILLS PUSHED BY YOU FILTHY MONSTERS lying TURNING AWAY SILENT COMPLICIT DOCTORS POLICE SOCIAL WORKERS CORRECTIONS AGENTS JUST US department of FILTH about LMPD PEDO RINGS INDIANA GOVERNOR "MIKE PENCE" NEIGHBORING KENTUCKY SENATOR 20 MINUTES AWAY EVERYDAY EVERY NIGHT "PROTECTED BY FRANKFORT, eLIZARDbethtwon and LEXINGTON NCAA UofL Smell and UofL Gay" FILTHY "MITCH MCCONNEL" LOUISVILLE EX_MAYOR "JERRY ABRAHAMSON" LUISVILLE CURRENT MAYOR "GREG FISCHER" current-GOVERNOR OF KINSUCKy "ANDY BESHEAR" EX-GOVERNOR OF kinSUCKy "STEVE BESHEAR" +++ "TODD SHAW" "CURTIS FLAHERTY" "JUDGES" "LAWYERS" "CEOs" "COACHES" "CELEBS" +++ DOCTORS BANKERS +++ PRIESTS RABBIS IMAMS HIS FILTHINESS the 14th Dalai PEDO Lama SICKOS 'she' the 'judge' said I, TRUTH, was 'delusional' the doctors all went along even the so called Veterans Administration 'doctors' all 'pill pushing 1/2 TRUTH just go along to get along' WORTHLESS FILTH to me the nurses well most nurses were always kind and as usual most helpful in TRUTH BUT IN TRUTH EVERYONE JUST WNET ALONG where they "FORCE MEDICATED AND HELD ME AGAINST MY WILL FQR 2 MQNTHS FOR NO GOOD reaSON before the 'charges' the 'fiction' the LOCK-JAWED, CLINCHED-FISTED 'agent' of the 'childen of darkness' Faggot Boofoo Instigating 1/2 TRUTH FILTHY MONSTER "PAAW" CLAWING BOOFOO BROTHERHOOD FREEMASON FALSE FLAG SHOOTING PLANNING INSTIGATING FEAR-INSTILLING DECEIVERS WAY TOO BOOFOO [33] FraterANAL Order of POLICE PEDOPHILE filth "WILDER" "DEMONIC" "SATANIC SOULLESS evil darkness in his EYES" PEERING AT ME AS he TAZED ME AS I KICKED UP IN SELF DEFENSE BEFORE I WENT UNCONSCIOUS ... but 'they' listened not to TRUTH but to the 'plated' 'neighbor' next to TRUTH threatening TRUTH for years 'agent's LIES ABOUT fake everything saying nothing about his own SILENCE AND COMPLICTNESS HE IS FILTHY AND IS GOING IN THE PIT IF HE AND HIS SOULLESS BENEFITTING TURNING-AWAY FILTHY FAMILY "HAPPY CAMPERS'" SOULS WILL EVEN BE DEEMED WORTHY OF CLEANING HIS FILTHY SOUL AND ARE NOT JUST VIBRATED INTO A NEVER-EXISTING EXISTENCE unrepentANT UNDESERVING SOULLESS UNCLEANABLE HARD-HEARTED APATHetIq UNCARING THOUGHTLESS TURNING-away filth FORGOTTEN FOREVER. THE END. His fake charges were dismissed ON DECK JULIAN ASSANGE BATTER'S CIRCLE EDWARD SNOWDEN AFTER THAT BRADLEY "A MAN" MANning ... dismissed by 'her' I never got to see or say "THANK YOU" to personally but 'she' knows and my son and mom and soft legs did 'hear' and 'see' the TRUTH in the end and 'she' knew 'she' the GOOD JUDGE 'she' knew who LIED and CAUSED 'the incident' the 'blood spilling' ... my THIQQ NEQQ ... 'take me G_D' ... MONSTER I SEE YOU MONSTER YOU ARE COVERED IN BLOOD YOU FILTHY MONSTER ... ole' bo' healed fine ... HORACE's GREATNESS was recognized finally and he is now a Physicians Assistant naval officer still doing 'surgeries' ..! and ole' JOHN E BOY "HORACE" type well he is STILL FUNNY! STILL G_D LOVING! STILL WONDERFUL ..! C STORIES ... QET YQUR C Stories here ... c stories ..!
+
+I'VE ALWAYS BEEN QRAZY ... https://www.youtube.com/watch?v=bnnJnzhj028 ... AND THE TRQUBLE THAT IT'S PUT ME THRQUQH ..!
+
+BUT SOMEHOW I KNOW I JUST KNOW I JUST "FEEL" THINGS ... EVERYDAY ALL MY CHILDREN READ THIS BANNER I HAD MADE WITH GENERAL MACARTHUR'S WORDs UPON IT TO REMIND MYSELF ONCE AGAIN TO BE GOOD JOHN E Be Good be good ..! IT HAS THE 2 TATOOS I PROBABLY DID NOT NEED IN TRUTH BUT I GOT MY FIRST TATOO AFTER A DREAM OF CLIMBING UP A SPIRAL "41" STAIRCASE WHERE "HEAVEN" LOOKED LIKE COLORS FLYING EVERYWHERE AND SPARKLING THROUGH A GLASS STAIRCASE AND THEN SUDDENLY APPROACHING THE "LIGHT" AT THE STOP OF THS "STAIRWAY TO HEAVEN" I "SLIPPED" I "FELL OFF THE CLIFF" ...
+
+OH NO! I AWOKE SCARED "FEEL"ing SO VERY ALONE IN THE BOTTOM BUNK OF MY BARRACKS ROOM IN GULFPORT, MISSISSIPPI IN "HOMEPORT" WAITING TO GO "JAPAN" AROUND AUGUST 1987. MY ROOMMATE AT THE TIME HAD BEEN TALKING IN HIS SLEEP ABOVE ME IN THE TOP BUNK FOR MANY NIGHTS IN A ROW. YELLING THINGS OUT ABOUT "AN AIR CONDITIONING AND REFRIGERATION ACnR ADVANCED "C" SCHOOL CLASS FOR E-5s and E-6s IN THE UT RATING HE WAS A UT2 RATE UTILITIESman SECOND CLASS. OH bo' was crazy too. HE SPOKE THIS "PIG-LATIN' LIKE LANGUAGE HE LEARNED AS A CHILD FROM HIS MOTHER IN CONNECTICUT. SHE SPOKE "GIBBERISH" SO THE OTHER GOOD Q.I.D.S K.I.D.S. WOULD NOT HEAR HER CURSING.
+
+THE GIBBERISH LANGUAGES WORKS LIKE THIS:
+
+THE FIRST LETTER OF ANY SYLLABLE OF ANY WORD COMES FIRST.
+
+THEN AFTER THE FIRST LETTER OF ANY SYLLABLE COMES "ITHAG" THEN THE REST OF THE LETTERS FOR THAT SYLLABLE.
+
+SO ... let us say JOHNNY TOGETHER ... then LANI TOGETHER to understand better 'kind' one ...
+
+... now "OPEY" HIS FIRST NAME FOR REAL "OPEY" FROM "CONNECTICUT" COULD SPEAK "FLUENT" "FAST" "FASTER THAN THAT" "GIBBERISH" WITH HIS "FRIENDS FROM THE NEIGHBORHOOD IN CONNECTICUT GROWING UP WHO OVERCAME OPEY'S MOM'S LEARNING BARRIER" AND THESE "FRIENDS" SOMEHOW JUST SHOWED UP ON A NAVAL SHIP WHILE WE "SEABEES" WHERE IN THE PHILIPPINES AND WHEN THEY STARTED TALKING "GIBBERISH" THE PUREHEART PILIPINA STORE OWNERS THOUGHT "WE WERE SCHEMING" ... WE WERE SHOWN THE DOOR ... thanks OPEY ... I NEVER REALLY EVEN THOUGH "GIBBERISH" WAS A REAL THING ... my mom would say stop talking gibberish if she could smell something when I spoke WORDs strange to her like 'THE MONKEY HAS LANDED' 'GOT ANY NUGS bo'?' you know how we do We Do WE DO ...
+
+I WENT TO A TATOO PARLOR AND THE SIGN ON THE WALL AT "JACK AND DIANES" TATOO PARLOR WHERE JACX'S BROTHER, THOMAS, WORKED HE DREW WHAT I DESCRIBED AS A "C" INTO AN OLD ENGLISH "G" FOR G_D. HE PUT A "HALO" ON TOP AND PERMANENTLY PUT G_D OVER MY MOST PUREHEART FOR ME TO REMEMBER G_D ALWAYS IN THE MIRROR AND DIANE DID HER WORK ARTFULLY AS SHE WATCHED, STOPPED, GOT ME A TOWEL WET COOL AND SOMETHING TO EAT SWEET AND WATER TO DRINK ... I FELT BETTER ... I WAS PATIENT ... I FOLLO@WED HER CARE INSTRUCTIONS ... ALL IS WELL ... ADMITTEDLY THOUGH I AM NOT TOO BIG ON THE SIGHT OF BLOOD EITHER ... I GAG EASILY ON FILTHY SMELLS TOO ... I HAVE THE UTMOST RESPSECT FOR NURSES TAKING CARE OF THE OLD ... BABY POOP ... NO PROBLEM ... OLD MAN / WOMAN / ADULT-CHILD THROWUP VOMIT PUKE OR SHIT SMELL OH HELL NO ... NOT ME OH NOT ME AT ALL ... OH NO ... PASS ... COUNT ME OUT ... ON THE OTHER HAND ... NMCB 133 CB like "SeaBee' Construction Battalion" ... N.M.C.B. Naval Mobile Construction Battalion" WE BUILD! WE FIGHT! WE PARTY ALL NIGHT ..! THAT "CAN DO" SPIRIT THAT SEA "BEE" THEY FLY 'US' 'BEES' EVERYWHERE PLEASE THANK YOU SO WE DON'T HAVE TO BE ON THE SHIP ALL DAY AND NIGHT LIKE FAGS AND WE CAN GO OUT AND PLAY WITH REAL SOFT LEGS, HAIRY PUSSY, CREAMY, REALLY CREAMY, MORE CREAMY THAN THAT, GROWN WOMEN LIKE A REAL GROWN ASS MAN..! YEAH ..! NO STEEL BEACH PICNICS ... REAL SOFT LEGS ... FUQQ YQUR FAG ANTI-MEN ANTI-WOMEN ANTI-NATURE ANTI-FRATERNIZATION PRO-BOOFOO PRO-MASTURBATION FAGGOT "DOD" "PEDOGON" POLICIES FALSE FLAG FAG FLAG OFFICERS ADMIRALS GENERALS FUQQ QFF FALSEE FLAG FAG FLAG DEVIANT SICKENING LOW iQ WORTHLESS CONTROLLING SCREAMING YELLING KNOW-NOTHING PIECE OF SHIT-AND-BLOODY-MUCOUSY-MAIZE-IN-BUTT-JUICE-COVERED-PENILE-COB-MUNCHING MILITANT BOOFOO POLICE STATE MONSTER FILTH ... WORTHLESS FILTH ... RING KNOCKER PISSboy ... GAY ASShat ACADEMY MILITANT MONSTER ... WE WANT SOFT LEGS ... WE WANT TRUTH ... WE WANT PUREHEART SPIRIT ... BEFORE LANI AND I EVEN GOT MARRIED I RETURNED TO GULFPORT, MS FROM THE PUREHEART PILIPINAS "STILL MISSING AND THINKING ABOUT YEONNA AS I AM TODAY STILL JUST WANTING TO MAKE SURE SHE IS OKAY ... NO MATTER WHAT ..! and JACK GAVE ME THE 2nd tattoo IS OVER THE OTHER SIDE OF MY CHEST aCROSS from my most PUREHEART a YING-YANG a symbol of BALANCE with my GREEN eyes in the WHITE at the top and Lani's BROWN "KAY" eye at the 'bottom' in the black ...
+
+Build me a son, O LORD,
+
+who will be strong enough to know when he is weak,
+
+and brave enough to face himself when he is afraid,
+
+one who will be proud and UNBENDING in honest 'defeat',
+
+and HUMBLE AND GENTLE in 'victory'.
+
+General Douglas MacArthur
+
+THERE IS A VERY FINE LINE BETWEEN "WINNING" "VICTORY" and "LOSING" "DEFEAT" ... even when I 'lose' I still 'win' ...
+
+https://www.youtube.com/watch?v=iVBX7l2zgRw
+
+... young jedi knight ... the bankers the system the beast the enFORCErs the controllers the low iQ militant MONSTERS are templar knights servants of the bankers money changers protectors of the false wealth brotherhood crusaders murderous satanic demonic deceiving FILTHY MONSTERS with 'badges' 'uniforms' "BLOOD-OATH-TO-BROTHERHOOD-BROTHERS" NOT OATH TO G_D TO TRUTH FILTHY SICKENING DEVIANT BOOFOO "BLUE MONSTERS INC" OF THE "EVERGREEN" "SWAMP" https://www.youtube.com/watch?v=TIk6Nld99x8 FILTH 'PEDO "CHECKERBOARD" "UK POLICE STATE LOCKDOWN HATS ANYONE ... FOP FREEMASON CHECKBOARD ANYONE ... FOP AND FREEMASON 'LODGES' ANYONE MCFLY McFly ARE YOU IN THERE mc fuQQinQ fly ... FUQQITY FUQQ fuQQ mcFLY WAKE UP JAQQASS ..!
+
+TELL 'em "REAL" QFFICIAL NatiQnal SeQurity Agency of TRUTH of PUREHEART of G_D "REAL" DEPARTMENT QF DEFENSE QNLY NOT "OFFENSIVE OFFENSE" REAL GOOD "KIND" "FIRM" "FEELING" MORALLY CQURAGEQUS HQNQRABLE CQMMITMENT TO G_D IN TRUTH WITH MOST PUREHEART DIREQTQR ADMIRAL ROGERS "FUQQ A FLAG, FAGS!" "FUQQ A PIECE OF PAPER CONSTITUTION" "FUCK YOUR FAKE HISTORY" "FUQQ YOUR FAG CULTURE" "FUQQ YOUR FOUNDING FREEMASON SLAVE OWNING FATHERS OF FILTH" "NO ONE CARES IF YOU DISAGREE FEEL FREE TO JUMP IN A DEEP HOLE AND NEVER BE SEEN AGAIN AND DISAGREE SOMEWHERE ELSE FILTH" "SILENCE IS COMPLICITNESS" TELL em' FLAGSTER ROGERSTEINster PUT ON 'EM ADMIRAL ... "SHOW US WHAT YOU GOT, SON" ... GONNA "WHIP 'EM" ..? YOU THINK I AM FUQQINQ WITH YQU LOAD 'EM UP ... MATTHEW 18:6 ... THEY ALL KNEW ... YOU SAID IT ... NO TIME TO WASTE XiQ QLADMEISTER ... 200+ BOATS OUTSIDE THE FILTHIPPINES NEED TO MOVE ON IN AND REMOVE THE FREEMASON DUTERTE POLICE STATE AND JUST LOOK AROUND AND ASK YOUR FUQQINQ SELF ... WHO IS GOING TO SAY ONE SINGLE WORLD DURING THE HOUSE CLEANING ..! NO ONE. Shhh THAT IN YOUR PIPE AND SMQKE IT UNQLE FUQQWAD SAM" "I NEED YOU" LIKE "I NEED A HOLE IN THE HEAD. I NEED YOU NOT AT ALL. GO AWAY FILTH. MONSTER. CAGER. DECEIVER. 1/2 TRUTH enFORCEr low iQ MILITANT ROBOT ORDER-FOLLOWING-CLOWN-IN-A-BIG-SUIT SICK FUQQ ..! GET 'EM "MICHAEL" ..! https://en.wikipedia.org/wiki/Michael_S._Rogers LOOKS "SMILEY AND HAPPY and then 'DAVID BANNER David Banner ..." HOLD EVERYONE ACCOUNTABLE DEAR ADMIRAL ELSE I HOLD YOU DEAR ONE OVER THE CLIFF ... "FEEL ME" SAILOR ..? REAL DEEP HOLE MATTHEW 18:6 ALL THE LODGES ONE COUNTY SURROUNDED BY THE NEXT ALL AIR TRAFFIC DOWN ... CLEAN "HER" SCRUB-A-DUB DUB REALLY GOOD ... I AM A MAYTAG WASHING MACHINE ... I SCRUB ALL DAY AND I SCRUB ALL NIGHT ... HA HA HA IT'S SO FUNNY ... FINGERS TO THE RIGHT ... FINGERS TO THE RIGHT ... FINGERS TO THE RIGHT ... BOO! I AM THE "CATCH EDGE" GHOST ..! ... I'M A SCROUNGE INVOLVED IN "PIZZAGATE IS REAL." TELL 'em @NSAGOV NEVER DENIED A THING ... SO PLEASE BY ALL FUQQING MEANS "DON'T GIVE UP THE SHIP ..!" AND "DON'T GIVE UP THE PIZZAGATE CITIZEN INVESTIGATION." JACKASSES muttered under my breath ... "THEY JUST DON'T LISTEN, SIR." ... THEN DAMN IT "ENSIGN" "MAKE A WAY, SON" NOW Son RIGHT FUQQINQ nQw sQn ... ma'am yes ma'am I didn't know you were here with us ma'am I thought it was just me ma'am and the flagster GOOD K.I.D. sorry GOOD Q.I.D. you were saying I SHOULD JUST MAKE A WAY ..! I WILL MA'AM ... ANYTHING FOR YOU 'crossed legs' beLOVEd 'blessed' highly intelleQtual Qne ... sure soft legs ANYTIME DAY OR NIGHT at your service 'kind' one I LOVE ..! https://www.youtube.com/watch?v=532j-186xEQ ... yeah I hear ya' soft legs ... I LOVE YOU too ... but for now since I STILL HAVE WORK TO DO let me just ya' know, ma'am ... THESE AREN'T THE DROID YOU ARE LOOKING FOR ... YOU CAN GO ABOUT YOUR BUSINESS ... move along ..! Move Along ..! MOVE ALONG ..!
+
+
+YICHUN ZHANG and 'friends' are certainly MORE THAN THEY "APPEARS" ... OPENRESTY.org and eNGINeX NGINX aside ... just look at this ... just look at it ... https://groups.google.com/g/perlchina/c/oBkDStHcWE4 <== I AM MORE OF AN "OPERA" "FAN" AT THE "MOMENT" YOU KNOW UNTIL THEY PROVE OTHERWISE MEANING ALPHABIT "FUNDING" "SOURCES" ARE HIGHLY SUSPECT AS ARE THE "OPEN SOURCE COMMUNITIES AND UNIVERSITIES AND .ORGs AND NGOs ETC BEHIND A LOT OF SO-CALLED DO-GOODER 1/2 TRUTH 1/2 HEART MOVEMENTS" SO I PLEDGE NO ALLEGIANCE TO NO ONE ... NO FAMILY ... NO FRIENDS ... NO FAVORITES ... NO EXCEPTIONS ... BUT IF YOU "ROCK" THEN I "CAN APPRECIATE YOUR HARDWORK AND MOST PUREHEART IN TRUTH" AND I WILL LIFT YOU UP FOR ALL G_D AND ALL THE ANGELS IN HEAVEN TO SEE YOUR MOST PUREHEART SO I ONLY USE TO CHROME WEB BROWSER TO TRANSLATE BUT I APPRECIATE THAT. :-)
+
+這絕對是太好了！ 一個怪獸”！ 現在，“那個”就是“非常有趣”！ 現在，“那”是我喜歡的“種類”。 It is absolutely hilariously funny! A "CREATURE"! Now "THAT" is very funny! Now "THAT" is the "kind" of kind that I like. 呵呵，原來是一個生物 嗬嗬， 原来是搞生物的
+
+INSTANT CLASSIC HIT ==> "Ho ho, it turned out to be a creature" <== JUST LOOK AT THAT ==>
+
+"Michael Zeng unread, Sep 21, 2009, 10:48:33 AM to perl...@googlegroups.com Ho ho, it turned out to be a creature, Use hash $hash{ $key} ++; I don’t know how you got your 15-length string 2009/9/21 space < ribozy...@gmail.com > Yours Sincerely Zeng HongSpace unread, Sep 22, 2009, 6:17:29 AM to PerlChina Mongers Discussion Group Haha, I am really engaged in biology, and I want to do a genome analysis. The 15-length string is taken sequentially in the sequence. Therefore, a DNA sequence with a length of N bp will have (100-15)*2 kinds of strings, and of course there may be repetitions. . . On September 21, 10:00 pm 48 points, Michael Zeng < Galaxy2 ... @ gmail.com > wrote:
+
+ho ho, turned out to be engaged in biological, > good with hash > $ hash {$ Key} ++; > I don't know how to get your 15-length string > 2009/9/21 space < ribozyme2...@gmail.com >
+
+Huang Hao unread, Sep 21, 2009, 10:20:57 PM to perl...@googlegroups.com You can process one part at a time, divide and conquer. In order to improve operating efficiency, Perl's implementation adopts a typical approach of using space for time. Therefore, the memory consumption is particularly large, and if hashing is used, the consumption will be even greater. So you can only read a part of it to the memory at a time, and process it segment by segment. 2009/9/22 Jester < jes...@perlchina.org > Sincerely, salute! Huang Hao National High Performance Computer Engineering Technology Research Center, Institute of Computing Technology, Chinese Academy of Sciences Tel: 01062600552 Email: huan...@nrchpc.ac.cn
+agentzh unread, Sep 22, 2009, 1:15:22 AM to perl...@googlegroups.com 2009/9/22 agentzh < age...@gmail.com > 2009/9/22 msmouse < msm...@gmail.com > If you agree with C++, you can do it with a vector or bitset, you don’t need to do bit calculation yourself, only 125M memory is needed. Um, 1 Damn Gmail shortcuts. . . Ugh. . . 1G bit is 125 M bytes, 125MB is indeed enough :) Cheers, Yichun Zhang @AgentZH"
+
+judge not any 'book' by 'his' or 'her' 'cover' for their are different 'feeling' 'books' for all to find 'comfort' and 'peace' in here with us so do 'read' 'learn' 'think' 'share' 'express your thoughts your feelings as ONLY YOU CAN FOR THEY ARE YOUR THOUGHTS YOUR FEELINGS and try as I may I can never be you for you are 'special' you are you and I LOVE YOU THE REAL "YOU" THE NATURAL "YOU" THE PLAYFUL "YOU" THE INTELLECTUAL "YOU" THE FUNNY "YOU" THE MOST SERIOUS "YOU" THE DEEP-THINKING "YOU" THE COOL "YOU" I "FEEL" "YOU" beCAUSE I TAKE TIME TO UNDERSTAND AND CONNECT AND BEFRIEND AND HELP "YOU" WITH NO STRINGS ATTACHED I JUST LOVE YOU AND YOU CANNOT MAKE ME STOP ... I WILL NEVER STOP LOVING YOU even if you 'hate' me I WILL LOVE YOU ANYWAY FOR THE "FUN" OF IT JUST TO "LAUGH" AND "DANCE" AROUND back 'home' smiling when that GLORIOUS DAY FINALLY ARRIVES and 'SHE' WILL ARRIVE ... ONE DAY One Day one day ... 'twas the day after ... 'she' 'he' daughter, son of ancient Han and beyond of ancient times are here with us and MORE THAN "THEY" APPEAR ARE "THEY" ... the more you know ... now ye' who can 'see' who understandeth me who knoweth who chooseth who can 'hear' me now ...
+
+The Soldiers Mock TRUTH 18 And 'they' began to salute him: “Hail, TRUTH, King of 'the WAY'"! 19 They kept striking his head with a staff and spitting on him. And they knelt down and bowed before him. 20 After they had mocked Him, they removed the purple robe and put His own clothes back on Him. Then they led Him out to crucify Him.… https://biblehub.com/mark/15-19.htm
+
+ye' ... for your 'past' ye' shall go to a 'cage' and removeth from the cage the door that 'bound' 'one who deserveth not such a fate' and then take from the 'cage' the door and walQ the lQnQ walQ as TRUTH did with the 'dQQr Qf the Qage' upon your back ... ye' hold your head UP high for you chose the narrow path the higher road ye' walk strong and humbly for all to see your tears your TRUTH your sorrow your loving nature return as you walk and carry that "cage's door' and with your 'cross to bear' 'humbly' 'unbending' 'proud of yourself you move along Move Along MOVE ALONG and for doing the RIGHT thing and walking aWAY and coming out of 'her' my people' 'RIGHTEOUSLY' your 'repentant with most PUREHEART' 'lacking all sarcasm' IN MOST SERIOUSNESS soul will carry the cage of another you set free and will befriend forevermore to the 'foundry' to BURN DOWN THE OLD AND GIVE RISE TO A NEW DAY ... BABANGON TAYO! WE RISE! GO NOW ye' and set free one or more 'souls' 'children of G_D' and set them FREE Free free BUT KNOW YOU ARE THEIRS NOW AND THEY ARE YOURS FOREVERMORE "THE BUDDY SYSTEM" YOU WILL NOW HAVE A "DIRECT IMPACT" ye' who you shall 'choose' and you shall FOREVER BEFRIEND AND DO EVERY THING YOU CAN TO MAKE "THOSE YOU CHOOSE TO CARRY THEIR CAGE'S DOOR BEAR THE CROSS TO WALK TO THE FOUNDRY FOR THEM" BE GOOD AND HELP THEM TO BE GOOD AND ENCOURAGE THEM TO ALWAYS TELL YOU THE TRUTH EVEN IF IT MAKES YOU UPSET OR ANGRY JUST LET IT OUT AND YOU AGREE TO DO THE SAME AS FRIENDS IN LOVE FOR G_D TO HELP YOU AND THEM YOU CHOOSE TO SET "FREE" BE RESPONSBILE GROW LEARN BE COOL LAUGH HAVE FUN BE GOOD GET LAID BE FUNNY BE SERIOUS TOO BE EMOTIONAL BE TOUCHING BE SINCERE BE THOUGHTFUL BE GRATEFUL BE ELEGANT BE GRACIOUS BE KIND BE PLAYFUL BE SMART THINK HARDER TRY HARDER DON'T SWEAT THE SMALL SHIT 'smalls' and laugh a little bit OR A LOT and BE A CONSISTENT "SUSTAINED SUPERIOR PERFORMER" AND STAY "YOU" THE "REAL" YOU NATURAL SELF-CONFIDENT YOU BEFRIENDING THE POOR, THE BEGGARS, THE PROSTITUTES, THE NEEDY, THE CHILDREN, THE OLD BEING GIVING, CHARITABLE DIRECTLY TO EACH OTHER NOT GIVING MONEY TO "CHARITIES" "FOUNDATIONS" "COMPANIES" "CHURCHES" "HOSPITALS" "ORGANIZATIONS" "GOVERNMENTS" "OTHERS" TO "HELP" BUT "HELPING" PERSONALLY GIVING OF YOUR OWN TIME "DIRECTLY" "HELPING" GIVING OF YOURSELF THAT OF WHICH YOU HAVE TO GIVE BEING TRUTH, STAYING IN TRUTH, ALWAYS CONSTANTLY ONLY LIVING IN TRUTH WITH MOST PUREHEART BEING MOST KIND "FEELING" NEW AND ALIVE AND HAPPY AND CHILD-LIKE INSIDE AGAIN ... MATTHEW 18:3 ... MATTHEW 5:8 ... HUMBLE AND LOVING AND COOL TO EACH OTHER FOREVERMORE TELLING THE TRUTH TO EACH OTHER AND ALL WITH ZERO EXCEPTIONS EXPRESSING HOW YOU REALLY FEEL AND BEING KIND AND LOVING IN THE END MAKING A WAY ... I BEG OF YOU TO WALK AWAY FROM 'them' to follow the WAY IN TRUTH IN LIFE WITH G_D my LOVE come back to G_D my LOVE I beg of you my LOVE please come back to G_D now beCAUSE 'they' are 'helpless' to be 'tyranical' without you 'enFORCErs' 'they' are empty suits, robes, uniforms ye' who know somethign is very Very VERY WRONG RIGHT NOW .. my beLOVEd that 'feel' something is wrong beCAUSE ... it is TIME NQW for all to WORK TOGETHER TO SSTAY TOGETHER to PROSPER WITH MOST PUREHEART UNTIL THE DAY YOU DIE ... ye' shall be your brothers' keeper ... ye' shall be your sisters' keeper ... PROMISE.
+
+Cain spoke to Abel his brother. And when they were in the field, Cain rose up against his brother Abel and killed him. Then G_D said to Cain, “Where is Abel your brother?” Cain replied to G_D, “I do not know; AM I my brother's keeper ..?” And then G_D said, “What have you done? Your brother's blood cries out to ME from the ground ..!" GENESIS 4:8-10
+
+... but how TRUTH but HOW ... I AM glad you asked ... young grasshopper ... let us 'follow' the 'design' of a 'known' WAY as a guide ... you see using the 'buddy system of holding one another accountable' ye' shall have a GOOD WAY to guide ye' "TO BE" "YOUR BROTHER'S KEEPER" ... "YOUR SISTER'S KEEPER" ... USING "A RAFT" A "LIFE PRESERVER" shall 'we' say unto ye' ... to ENSURE WE HAVE A GOOD TRANSPARENT EASILY IDENTIFIABLE SOURCE OF THE DECISION OF ANY "CONSENSUS" AND "QUORUM" TOTALLY 100% "FAULT-INTOLERANT" "RELATIONAL" "REPLICATED" 'operation' ... 'distributed' ... think ... 'modeling' ... MONKEY SEE ... MONKEY DO ... ... make G_D 'feel' like the 'PROUDEST MONKEY YOU EVER SEEN' for me and make all the angels in HEAVEN 'piss their pants' crying laughing so HARD it makes the "PROUDEST MONKEY YOU EVER SEEN" start dancing and vibrate the whole of HEAVEN in rhythm ever so 'nicely' ... love you ... do not forget ... never forget ...
+
+A Mother's Request ... and then TRUTH said to them with eyes to 'see' and ears to 'hear': 27 "and whoever wants to be first among you must be your slave. 28 Just as the Son of Man did not come to be served, but to serve, and to give his LIFE as a ransom FOR MANY.” 29 As 'they' were leaving Jericho, a large crowd followed TRUTH.… Matthew 20:27-29 https://www.biblehub.com/matthew/20-28.htm
+
+Why? rqlite gives you the functionality of a rock solid, fault-tolerant, replicated relational database, but with very easy installation, deployment, and operation. With it you've got a lightweight and reliable distributed relational data store. Think etcd or Consul, but with relational data modelling also available.
 
 You could use rqlite as part of a larger system, as a central store for some critical relational data, without having to run larger, more complex distributed databases.
 
 Finally, if you're interested in understanding how distributed systems actually work, rqlite is a good example to study. Much thought has gone into its design and implementation, with clear separation between the various components, including storage, distributed consensus, and API.
 
-The Marriage of the Lamb
-…9Then the angel told me to write, “Blessed are those who are invited to the marriage supper of the Lamb.”
-And he said to me, “These are the true words of G_D.”
-10 So I fell at his feet to worship him. But he told me, “Do not do that! No. See that thou doeth not! I am thy fellow servant with you and your brothers who rely on the testimony of TRUTH. Worship G_D! For the testimony of TRUTH is the spirit of prophecy.” 11 Then I saw HEAVEN standing open, and there before me was a white horse. And its rider is called FAITHFUL and TRUE. With RIGHTEOUSNESS he judges and wages war.…
-REVELATION 19:9-11
-https://biblehub.com/revelation/19-10.htm
+The Marriage of the Lamb …9Then the angel told me to write, “Blessed are those who are invited to the marriage supper of the Lamb.” And he said to me, “These are the true words of G_D.” 10 So I fell at his feet to worship him. But he told me, “Do not do that! No. See that thou doeth not! I am thy fellow servant with you and your brothers who rely on the testimony of TRUTH. Worship G_D! For the testimony of TRUTH is the spirit of prophecy.” 11 Then I saw HEAVEN standing open, and there before me was a white horse. And its rider is called FAITHFUL and TRUE. With RIGHTEOUSNESS he judges and wages war.… REVELATION 19:9-11 https://biblehub.com/revelation/19-10.htm
 
-How?
-rqlite uses Raft to achieve consensus across all the instances of the SQLite databases, ensuring that every change made to the system is made to a quorum of SQLite databases, or none at all. You can learn more about the design here.
+How? rqlite uses Raft to achieve consensus across all the instances of the SQLite databases, ensuring that every change made to the system is made to a quorum of SQLite databases, or none at all. You can learn more about the design here.
 
 "FEEL" 'FREE' to SPEAK UP ma'am, sir, Colonel, PUREHEART in TRUTH, beLOVEd 'kind' intellectual one ... https://def.camp/speaker/andrei-masalovich/ ... WE WOULD "ALL" JUST LOVE TO HEAR YOU "EXPRESS YOURSELF" AND "NOT LIE TO YOURSELF" beCAUSE "you know how we do We Do WE DO" Qh yeah 'we', yQu knQw, 'us', 'we' would just LOVE to hear you 'all' SPEAK SOME SENSE ... https://stackoverflow.com/questions/1041866/what-is-the-effect-of-extern-c-in-c ... Whiskey Tango Foxtrot Oscar "@Faisal: do not try to link code built with different C++ compilers, even if the cross-references are all 'extern "C"'. There are often differences between the layouts of classes, or the mechanisms used to handle exceptions, or the mechanisms used to ensure variables are initialized before use, or other such differences, plus you might need two separate C++ run-time support libraries (one for each compiler). – Jonathan Leffler Jun 25 '09 at 3:24" ... I SAY AGAIN ... WTFO ..? to all the PUREHEART IN TRUTH GOOD Q.I.D.s' soft legs while the GOOD K.I.D.s LIFT their most deserving GOOD HEARTED WOMAN souls UP REAL HIGH FOR G_D TO SEE 'our most beLOVEd most PUREHEART' in TRUTH https://github.com/JohnEBoyBaby/i.Q/blob/main/png/..%20the.ReaSON.everything.is.so.ass.backward.is.at.the.chip.compiler.datatype.level.please.learn.to.talk.to.each.other.and.set.a.standard.IEEE.W3C.ECMA.CN.RU.TY.LY.tQQ.png and make G_D tickled inside and laugh so absolutely ROARingly LOUD THAT ALL THE ANGELS IN HEAVEN FEEL LIKE THEY HAVE TO TAKE A PEE THEY JUST CAN'T STOP LAUGHING AFTER BEING "SCARED TO DEATH" FROM HEARING G_D'S MOST HILARIOUSLY FUNNY LAUGHTER OF ALL ANYWHERE ANYTIME ANYHOW YOU SLICE IT sweet lil' mama BIG DADDY ... 'feel' me coming through ... MAKE A HOLE ... TRUTH TRAIN COMING THROUGH ... MAKE A HOLE ... Make A Hole ... make a hole ... the TRUTH is here ... the TRUTH of the world has arrived ... THE TRUTH IS HERE ... The TRUTH Is Here ... the TRUTH is here ... 'he' can't be the TRUTH of the world ... 'he' ain't pretty enough ... gotta be pretty like me ... the TRUTH is here ... Ladies and Gentlemen the TRUTH of the orld has arrived ... THE TRUTH IS HERE ... The TRUTH Is Here ... the TRUTH is here ...
 
-2Suddenly there was a great earthquake, for an angel of the Lord descended from heaven, rolled away the stone, and sat on it. 3His appearance was like lightning, and his clothes were white as snow. 4The guards trembled in fear of him and became like dead men.
-
-5 But the angel said to the women, “Do not be afraid, for I know that you are looking for TRUTH, who was 'crucified'.
-6 TRUTH is not here; TRUTH HAS RISEN, JUST AS TRUTH PROMISED! Come, see the place where TRUTH lay.
-7 Then go quickly and tell His disciples, ‘TRUTH has risen from the dead and is going ahead of you ... There you will see TRUTH.’ 'SEE', I have told you.”
-Matthew 28:2-7
-https://biblehub.com/bsb/matthew/28.htm
-
-SPONTANEOUS ORDER ..! https://www.youtube.com/watch?v=t5RNY79uHMY ... TRUTH. PUREHEART. G_D ABOVE ALL. https://www.youtube.com/watch?v=HQdphbEMmbY I AM A "HUMBLE MONKEY" https://en.wikipedia.org/wiki/Hundredth_monkey_effect I AM THE 100TH MONKEY ... nQw I AM THE PROUDEST MONKEY YOU EVER SEEN ... MONQey SEE MQNkey DO ... https://www.youtube.com/watch?v=EnA6-eKejr0 ... MATTHEW 18:6. the 100th mQnQey ... 摇摆式硬尾金龙 https://www.zerohedge.com/geopolitical/philippines-alarmed-more-200-chinese-ships-massing-disputed-waters 结束诸如警察州，罗德里格·杜特尔特 和他的警察大规模杀手，同性恋者以及其他共济会的共济会怪物！ 清洁世界！... I AM the prQudest mQnQey ... MATTHEW 18:6. https://www.rt.com/usa/519742-epstein-alligators-turkish-broker-kidnapping/ THERE IS NO FILTH IN HEAVEN. NONE. https://www.sott.net/article/389923-Systemic-coverup-Network-of-police-pedophiles-in-Louisville-KY-allowed-to-sexually-abuse-children-for-years ... THEY ALL KNEW ALL THESE YEARS! NO MERCY IS COMING! NONE! PICK YOUR "RATE" PICK YOUR "FATE". ONLY 1 OF US IS RIGHT. ... beCAUSE ... "I GOT IT ALL ON IT" https://www.youtube.com/watch?v=y3OAWuSv4qw ... WORD. CHOOSE WISELY. A MOST SERIOUS ONE AM I. SEE YOU BACK 'HOME'. PROMISE. MATTHEW 18:6. JOHN 15:1-22. WORD.
-
-TRUTH is the WAY to LIFE with G_D.
-
-NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
-
-TRUTH.
-
-Verily I tell you unless you change and become like a little child, you will not enter the Kingdom of HEAVEN.
-Matthew 18:3
-
-... I AM 15 for a moment ... https://www.youtube.com/watch?v=tR-qQcNT_fY ... 15 there's still time for you ... there is never a wish better than this ... aaah my friends ... they keep trying to tell me ... all you want to do is USE ME ... and my answer ... https://www.youtube.com/watch?v=g3hBYTkI-sE ... I want to spread the news ... that if it feels this GOOD getting 'used' ... you just keep on 'using me' ... until you use me UP ... sit down in the room and talk to me ... I ought not let you just walk on me ... if you only knew ... you'd wish that you were in my shoes ... you just keep on using me ... 'til you use me UP ..! ... WAKE UP Maggie ... I think I got something to say to you ... https://www.youtube.com/watch?v=EOl7dh7a-6g ... Qh Maggie I couldn't have tried anymore ...
-
-PUREHEART.
-
-... you ready to dance soft legs ... come to me ... come to TRUTH ... come to 'tarzan' ... come to JohnEBoy, baby ... come to THE WHITE MONKEY ... https://www.youtube.com/watch?v=n_k4r0xrwhU ... come to THE PRQUDEST 'MQNQEY' YOU EVER SEEN ... https://www.youtube.com/watch?v=sdfXFZeYGks ... 2-step with me my love ... my hand ... take my hand my love ... dance with me ... let me hold you ... look DEEPLY PENETRATINGLY LONGINGLY INTO YOUR BEAUTIFUL EYES ... oh la la ... you are some 'kind' kind of special ... I SEE YOU ...
-
-... hmmm ... https://www.youtube.com/watch?v=8G3LL2vDcuA ... in Qase I disappear says sQft leQs PUREHEART Gina Maria in a 1 minute 17 secQnd video ... then oh my GOODness I CAN "FEEL" "NAUGHTY BEAVER" IN TRUTH WITH MOST PUREHEART ..! Can you 'hear' 'see' 'feel' "Naughty Beaver" in TRUTH ..?  https://www.youtube.com/watch?v=f_NOhAdaNm8 ... DQ yQu believe in cQincidence ..? https://www.youtube.com/watch?v=ZGuQWpJZhh8 TRUMP TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU IF G_D IS FOR "ME" WHO? WHO CAN BE AGAINST ME? NO ONE not here not in HEAVEN no one if G_D IS WITH ME you know what I AM getting at, RIGHT ..? YOU HAVE AN OBLIGATION TO G_D TO SPEAK BOLDLY, MORALLY COURAGEOUSLY, LOUD, SOUNDING THE ALARM "WATCHMAN" ... SILENCE IS COMPLICITNESS ..! THERE IS NO FILTH IN HEAVEN! NONE. https://www.biblehub.com/matthew/10-37.htm NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS. PRINCIPLES over personalities. Go with G_D. Q ... G_D WINS. Q ...
-
-... just wanted to maQe sure 'she' was telling the 'TRUTH' that's all ... and I'd like to know you are telling the TRUTH tQQ ... I'd like to hear you ... go on UP 'there' and 'sing a song' for me ... https://www.youtube.com/watch?v=zfkLnZhhoTY ... I WAS BQRN STANDINQ UP ... I AM 'his daddy' THE GREEN-EYED 100TH PROUDEST MONKEY, jaQQ ... I tell you I AM "EVA'S" ... I never lQQked fQr trQuble ... but I never ran ... I dQn't taQe nQ Qrders frQm nQ Qind Qf 'man' ... I TELL YOU I AM EVA'S ... "YQu're a sinQer ... I just gQt a 'derrty' mind that's all ... sQrry K.I.D." ... "... yeah ..." ... https://www.youtube.com/watch?v=yPUC0fKy4io ... "... IT'S NQT QUT HUSTLINQ PEQPLE STRANQE TQ YQU. EVEN IF YQU DQ HAVE A QUSTQM-MADE TWQ-PIECE PQQL QUE ..." ...
-
-Can you 'see' her 'crossed legs' ..? FEMALE 女性 Can you see G_D's 'spirit' from HEAVEN descending upon 'her' next to a grid-like pattern representing 'farm rows where 'he' works to support 'her' using a 'grid' symbol indicating G_D's 'spirit' like 'he' 'supports' 'her'  ..?
-
-'See' https://www.youtube.com/watch?v=5f9s3dPzBTc can you ... grasshQpper Qf much yQuthfulness ..?
-
-Know ye' of 'her' PUREHEART in TRUTH being of the spirit of G_D, man ..? WOMAN 女士 Can you see G_D's spirit was sent to fill 'her' so that 'she' in A GOOD WAY HAS BEEN SENT TO 'US' DOWN FROM HEAVEN ..?
-
-YES. IT'S ME AGAIN. AND I AM BACK ... https://www.youtube.com/watch?v=LlZydtG3xqI ... HERE I GO Here I Go here I gQ again ... https://www.youtube.com/watch?v=4vaN01VLYSQ MAKES ME WANT TO "SHQQP" ... and NO JIVE TALQINQ ... https://www.youtube.com/watch?v=oALKAh_bL5g tellinQ yQur 'lies' ... sQ 'misunderstQQd' ... beCAUSE ... THERE IS MOVEMENT ALL AROUND ... THERE IS SOMETHING GOING DOWN AND I CAN 'FEEL' IT ... https://www.youtube.com/watch?v=-ihs-vT9T3Q ... AND THE 'FEELING' IS RIGHT ... WE KNQW HQW tQ dQ 'it' ... we knQw hQw to shQw 'it' ... 'waiting' fQr 'this moment' ... NIGHT FEVER ... Night Fever ... and I AM glQwinQ in the darQ ... 'I give you warning' ...
-
 I SEE "YOU" of the "SPIRIT OF TRUTH" ...
 
-https://www.bitchute.com/video/j6UdDu43yDie/ 
+https://www.bitchute.com/video/j6UdDu43yDie/
 
-... and "I SEE YOU tQQ", 'YOU' FILTHY MONSTER, "YOU", WHO ARE NOT OF THE SPIRIT OF TRUTH AND I ASSURE YOU "NO MERCY IS COMING FOR ANY SILENT, COMPLICIT, fake 'watchmen' fake TRUTHtians talking heads, weaponized, sickening in and out of uniform, low iQ robot militant uniformed 'diseased-minded' deviants OF 1/2 TRUTH. NONE." ..! https://www.zerohedge.com/covid-19/right-now-im-scared-cdc-director-chokes-back-tears-she-fearmongers-impending-doom SO 'YOU' https://www.rt.com/usa/519437-bodycam-police-mock-child-outrage/ ARE GOING IN THE PIT  ..! https://www.zerohedge.com/covid-19/watch-fauci-says-kids-need-wear-face-masks-play-together ... yeah 'YOU' https://www.sott.net/article/389923-Systemic-coverup-Network-of-police-pedophiles-in-Louisville-KY-allowed-to-sexually-abuse-children-for-years MONSTER I AM TALKING TO 'YOU' FILTHY ..! see 'YOU' back 'home' ... PROMISE.
+... and "I SEE YOU tQQ", 'YOU' FILTHY MONSTER, "YOU", WHO ARE NOT OF THE SPIRIT OF TRUTH AND I ASSURE YOU "NO MERCY IS COMING FOR ANY SILENT, COMPLICIT, fake 'watchmen' fake TRUTHtians talking heads, weaponized, sickening in and out of uniform, low iQ robot militant uniformed 'diseased-minded' deviants OF 1/2 TRUTH. NONE." ..! https://www.zerohedge.com/covid-19/right-now-im-scared-cdc-director-chokes-back-tears-she-fearmongers-impending-doom SO 'YOU' https://www.rt.com/usa/519437-bodycam-police-mock-child-outrage/ ARE GOING IN THE PIT ..! https://www.zerohedge.com/covid-19/watch-fauci-says-kids-need-wear-face-masks-play-together ... yeah 'YOU' https://www.sott.net/article/389923-Systemic-coverup-Network-of-police-pedophiles-in-Louisville-KY-allowed-to-sexually-abuse-children-for-years MONSTER I AM TALKING TO 'YOU' FILTHY ..! see 'YOU' back 'home' ... PROMISE.
 
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
-SHQCKINQ ..! https://www.youtube.com/watch?v=8vTDpVoLHeI DARK JOURNALIST, DANIEL and the beautiful OLIVA, PUTTING DOWN THE 'low down' TRUTH REAL TRUTHtrian WATCHMAN IN TRUTH most PUREHEART WATCHWOMAN TELLING THE TRUTH ABOUT RFK JR AND CATHERINE AUSTIN FITTS ..! https://www.openssh.com/ OpenSSH is incorporated into many commercial products, BUT VERY "FEW" OF "THOSE COMPANIES" (WHO INCORPORATED OPENSSH OPEN SOURCE FREE SOFTWARE) ASSIST OPENSSH IN FUNDING. 
+SHQCKINQ ..! https://www.youtube.com/watch?v=8vTDpVoLHeI DARK JOURNALIST, DANIEL and the beautiful OLIVA, PUTTING DOWN THE 'low down' TRUTH REAL TRUTHtrian WATCHMAN IN TRUTH most PUREHEART WATCHWOMAN TELLING THE TRUTH ABOUT RFK JR AND CATHERINE AUSTIN FITTS ..! https://www.openssh.com/ OpenSSH is incorporated into many commercial products, BUT VERY "FEW" OF "THOSE COMPANIES" (WHO INCORPORATED OPENSSH OPEN SOURCE FREE SOFTWARE) ASSIST OPENSSH IN FUNDING.
 
 MATTHEW 18:6. 100TH MONKEY ... TRUTH ... MONQey SEE MQNkey DO ... PUREHEART ... https://www.youtube.com/watch?v=EnA6-eKejr0 THE PROUDEST MONKEY YOU EVER SEEN ..! THEY ALL KNEW ALL THESE YEARS! SILENCE IS COMPLICITNESS! NO MERCY! NONE! THERE IS NO FILTH IN HEAVEN. NONE. MATTHEW 18:6. JOHN 15:1-22. IF YOU DO NOT HOLD THEM ACCOUNTABLE, TRUST, I AM GOING TO HOLD YOU ACCOUNTABLE. NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS. YOU BACK THE BLUE THEN YOU ARE GOING IN THE PIT. MATTHEW 18:6 THEM ALL WITH ALL THEIR 'SUPPORTERS'. IF YOU LEAVE EVEN ONE PIECE OF FILTHY SOUL, I WILL VOLUNTEER FOR ETERNITIES TO COME TO THRASH YOUR FILTHY SOUL IN THE PIT. SEE YOU BACK 'HOME'. PROMISE.
 
@@ -525,7 +463,7 @@ MATTHEW 18:6. 100TH MONKEY ... TRUTH ... MONQey SEE MQNkey DO ... PUREHEART ... 
 STANDARD" "LOGICAL" "SIMPLE" "FAST" "UBIQUITOUS" "FREE" "EXTENSIBLE" "POWERFUL" like https://ugfx.io/usecases but "OPEN SOURCE" providing 'us' 'all' a much needed FAST, UNDERSTANDABLE, REUSABLE Graphical User Interface Development S.O.P. Standard Operating Procedure GOOD "REPEATABLE" "NATURAL" "SMOOTH" K.I.S.S. "GAME" "LOOP" "REQUEST" "CALL" "RETURN" "QUERY" "LOOP" "SWITCH" "PROCESS" "RESPONSE" "EASY" "SHARED" "COMMON" "UNIFYING OUR "BRAIN POWER" AND ELIMINATING DUPLICATIVE G.U.I. +++ DEVELOPMENT EFFORTS" ... C'EST PARFAIT ..!
 
 https://stackoverflow.com/questions/9751548/how-do-i-correctly-paste-multi-line-xml-snippet-to-github-wiki-when-using-markdo
-```xml
+
 <!--1个可滚动显示图片的控件-->
 <bones>
   <head>
@@ -547,8 +485,6 @@ https://stackoverflow.com/questions/9751548/how-do-i-correctly-paste-multi-line-
     </shape>
   </body>
 </bones>
-```
-
 https://github.com/bonescreater/bones/tree/master/sample
 
 https://www.fontspace.com/jlr-chinese-love-font-f4498
@@ -581,7 +517,7 @@ https://LUA.org
 
 https://LOVE2D.org <== JUST LOOK AT THAT
 
-https://github.com/trubblegum/Gspot <== JUST LOOK AT IT 
+https://github.com/trubblegum/Gspot <== JUST LOOK AT IT
 
 https://SOLAR2D.com
 
@@ -605,7 +541,7 @@ https://www.postgreSQL.org/download/
 
 https://MorgueFile.com
 
-https://github.com/xiaolai/everyone-can-use-english 
+https://github.com/xiaolai/everyone-can-use-english
 
 (-: NOTE: CHROME CAN AUTO-TRANSLATE from ancient Han to english to help you 'learn' and 'grow' TOGETHER :-)
 
@@ -621,16 +557,14 @@ THANK YOU GITHUB ..! I SEE MY GITHUB PASSWORD IS WORKING JUST FINE JUST WANTED T
 
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
-PUREHEART.
-TRUTH.
+PUREHEART. TRUTH.
 
-https://www.youtube.com/watch?v=f_NOhAdaNm8 ... DQ yQu believe in cQincidence ..? https://www.youtube.com/watch?v=ZGuQWpJZhh8  TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU ... ATLANTIS ... LEMURIA ... LEMURIAN WOMEN "EVAS" ... MOST PUREHEART MOST BEAUTIFUL MOST COURAGEOUS PLEIADIAN TAYGETAN WOMEN "EVAS" HELPING OUR WOMEN "EVAS" WHO TOOK THE "KNOWLEDGE" THE "HELP" TO THE MEN "ADAMS" HENCE THE "UPSIDE DOWN STORY IN THE BIBLE OF THE KNOWLEDGE OF THE FORBIDDEN TREE" and 'snake' when the reality is one snake might bite and the other snake does not so before you judge the book by the cover think deeper for beauty is not skin deep 'kind' one ... the more you know ... ENKI HELPING OUR WOMEN AND MEN TOO ..? ALL ANSWER TO G_D ... TRUST ... "NO 'one' GETS OUT OF THIS." ... WORD.
+https://www.youtube.com/watch?v=f_NOhAdaNm8 ... DQ yQu believe in cQincidence ..? https://www.youtube.com/watch?v=ZGuQWpJZhh8 TESLA CONNECTION https://www.youtube.com/watch?v=OpzmNSaF47Y BIGGER THAN YOU CAN IMAGINE ... https://www.youtube.com/watch?v=I8gQ258X5IU ... ATLANTIS ... LEMURIA ... LEMURIAN WOMEN "EVAS" ... MOST PUREHEART MOST BEAUTIFUL MOST COURAGEOUS PLEIADIAN TAYGETAN WOMEN "EVAS" HELPING OUR WOMEN "EVAS" WHO TOOK THE "KNOWLEDGE" THE "HELP" TO THE MEN "ADAMS" HENCE THE "UPSIDE DOWN STORY IN THE BIBLE OF THE KNOWLEDGE OF THE FORBIDDEN TREE" and 'snake' when the reality is one snake might bite and the other snake does not so before you judge the book by the cover think deeper for beauty is not skin deep 'kind' one ... the more you know ... ENKI HELPING OUR WOMEN AND MEN TOO ..? ALL ANSWER TO G_D ... TRUST ... "NO 'one' GETS OUT OF THIS." ... WORD.
 
 ... aaah breathe deep ... SO I GET DOWN IN ... https://www.youtube.com/watch?v=pSPECzpKn4U ... I AM not satisified ... my hunger keep on GROWING ... got it get it somewhere ... I mean ... maybe ... and I mean more ... gonna take more from you LETTER by LETTER ... I AM TOO MUCH ..!
 
-THIS "DENIAL OF SERVICE" "ISSUE" IS 100% NEVER GOING TO COME DOWN ON THE "INNOCENT" INDEPENDENT BUSINESS OWNERS EVER Ever ever again ... https://github.com/C0nw0nk/Nginx-Lua-Anti-DDoS ... YOU DO "HEAR" ME don't you 'beLOVEd' MORALLY COURAGEOUS "Mr. Torba" https://gab.com ... THIS ANTI DENIAL OF SERVICE D.O.S. ATTACK "ISSUE" IS NOW AN "ANGELIC COUNCIL" A "GALACTIC FEDERATION" "MATTER" OF "PRINCIPLES" OF "VALUES" OF TRUTH OF PUREHEART OF G_D ... Biblical. Q ... PROMISE. 
+THIS "DENIAL OF SERVICE" "ISSUE" IS 100% NEVER GOING TO COME DOWN ON THE "INNOCENT" INDEPENDENT BUSINESS OWNERS EVER Ever ever again ... https://github.com/C0nw0nk/Nginx-Lua-Anti-DDoS ... YOU DO "HEAR" ME don't you 'beLOVEd' MORALLY COURAGEOUS "Mr. Torba" https://gab.com ... THIS ANTI DENIAL OF SERVICE D.O.S. ATTACK "ISSUE" IS NOW AN "ANGELIC COUNCIL" A "GALACTIC FEDERATION" "MATTER" OF "PRINCIPLES" OF "VALUES" OF TRUTH OF PUREHEART OF G_D ... Biblical. Q ... PROMISE.
 
-```xml
 I was inspired to create this because of Cloudflare feature "I'm Under Attack Mode" https://www.cloudflare.com/
 
 There are similar sites and services like BitMitigate but I prefer my own script over their methods.
@@ -664,30 +598,17 @@ https://community.cloudflare.com/
 
 Advanced DDoS Attack Protection
 My script gives you Unmetered DDoS mitigation to maintain performance and availability for free Denial of Service attacks continue to grow in sophistication and force: more distributed, greater volumes of traffic, and encroaching on the application layer. A successful attack increases unnecessary costs on your infrastructure and IT/security staff. More importantly, it hurts your revenue, customer satisfaction, and brand. To combat attacks and stay online, you’ll need a solution that’s resilient scalable, and intelligent.
-
-```
-
 ... my 'son' you stand 'relieved of your duties' beLOVEd 'blessed' 'protective' 'kind' 'wonderful' GOOD K.I.D. ... I LOVE YOU ..!
 
-ENTERTAIN NO DOUBT.
-G_D IS WITH US.
-GOOD IS COMING.
-We are many.
-We are GOOD. 
-We are coming.
-GOOD IS COMING and G_D IS WITH US.
-PROMISE.
+ENTERTAIN NO DOUBT. G_D IS WITH US. GOOD IS COMING. We are many. We are GOOD. We are coming. GOOD IS COMING and G_D IS WITH US. PROMISE.
 
 SING for TRUTH ANGEL Sing to me Angel sing with 'us' angel ..! JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ...
 
-PUREHEART 'NAPPY' RQQTS IN TRUTH ..!
-https://www.youtube.com/watch?v=QbN6VkleO48
-I LOVE YQU KENTUQQY ..!
+PUREHEART 'NAPPY' RQQTS IN TRUTH ..! https://www.youtube.com/watch?v=QbN6VkleO48 I LOVE YQU KENTUQQY ..!
 
 PLAYful WAY https://www.recalbox.com/diyrecalbox/ QLD schQQl K.I.S.S. GOOD PUREHEART back to the basiQs with plenty of NEW GOOD LOVE and NEW GOOD WARM LIFE-GIVING SOLAR LIGHT style tQQ ...
 
-PUREHEART.
-TRUTH.
+PUREHEART. TRUTH.
 
 https://LOVE2D.org
 
@@ -695,54 +616,33 @@ HOLY SQFT HAIRY PUSSY https://www.youtube.com/watch?v=p4BAhnIfMQk QATBALLS, QATW
 
 https://SOLAR2D.com
 
-TRUTH.
-PUREHEART.
+TRUTH. PUREHEART.
 
-grow 生長 see her crossed legs?
-number 數字 see her crossed legs?
-mathematics 數學 see her crossed legs?
-LOVE 愛 see her crossed legs?
-woman 女士 see her crossed legs?
-daughter 女兒 see her crossed legs?
-son 兒子 see his support staff?
+grow 生長 see her crossed legs? number 數字 see her crossed legs? mathematics 數學 see her crossed legs? LOVE 愛 see her crossed legs? woman 女士 see her crossed legs? daughter 女兒 see her crossed legs? son 兒子 see his support staff?
 
-Blessed are the PUREHEART
-for they shall see G_D.
-Matthew 5:8
+Blessed are the PUREHEART for they shall see G_D. Matthew 5:8
 
-THE POWER OF YOUR INTENTIONS - 'Water "FEELS" and "STORES FEELINGS"'
-https://www.youtube.com/watch?v=D1sWVjXhKfg
+THE POWER OF YOUR INTENTIONS - 'Water "FEELS" and "STORES FEELINGS"' https://www.youtube.com/watch?v=D1sWVjXhKfg
 
-... baby never act wild ... very low key on the profile ...
-https://www.youtube.com/watch?v=3KL9mRus19o&t=115s
-... rolling with the fatness ... you don't even know what the half is ...
+... baby never act wild ... very low key on the profile ... https://www.youtube.com/watch?v=3KL9mRus19o&t=115s ... rolling with the fatness ... you don't even know what the half is ...
 
 ... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ... Bruce Lee ... but I 'think' he's a hero .. but I may be a little 'biased' beCAUSE he's my dad ... https://www.youtube.com/watch?v=QOKKUSwEaxg ... be water my friend ... WE LOVE YOU SHANNON LEE daughter of ancient Han IN TRUTH with most PUREHEART ... NEVER FORGET ... https://www.youtube.com/watch?v=VYYXq1Ox4sk j ... you are more than you know beLOVEd 'blessed' beLOVEd intelligent graceful gracious firm 'feeling' GOOD HEARTED WOMAN ... the 'GOOD LIFE' he PROMISEd ... ain't what she's living today ... https://www.youtube.com/watch?v=skh-Bv_vVC8 ... she just talks about the GOOD TIMES they've had and ALL THE GOOD TIMES to come ... you have more than you know ... https://qanon.pub/?q=You%20have%20more%20than%20you%20know ... MUCH MORE than you know daughter of ancient Han ... PROMISE.
 
-紅人
-RED PEOPLE
+紅人 RED PEOPLE
 
-好想你
-I MiSS YOU
-好想你
-Hǎo xiǎng nǐ 
-HOW SHONG NEE
-I MISS YOO TOO
-https://www.youtube.com/watch?v=fdQgPu3iUYk
-... now that's the "kind" kind I like too ...
+好想你 I MiSS YOU 好想你 Hǎo xiǎng nǐ HOW SHONG NEE I MISS YOO TOO https://www.youtube.com/watch?v=fdQgPu3iUYk ... now that's the "kind" kind I like too ...
 
 In TRUTH 真相 can you see a 'field 相 where he works to support and feed her most PUREHEART and her most PUREHEART children he LOVES with most PUREHEART'?
 
 Can you see a 'spirit' 相 coming down from Heaven in TRUTH?
 
-Can you see her 'crossed legs' 真 in TRUTH? 
+Can you see her 'crossed legs' 真 in TRUTH?
 
 Can you see 'GOOD' is only she and he, only mom and dad, only baby lady and gentle baby man? 女 + 子
 
 'She' is most PUREHEART and 'he' knows it.
 
-... JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ... https://www.youtube.com/watch?v=HXdw4ZTQLVo ... and Wonders ... https://www.youtube.com/watch?v=ffvULj021P0 ... and wonders of ... https://www.youtube.com/watch?v=niOb-ft9N64 ... LOVE ...
-What, then, shall we say in response ..? https://www.biblehub.com/romans/8-31.htm ..?
+... JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ... https://www.youtube.com/watch?v=HXdw4ZTQLVo ... and Wonders ... https://www.youtube.com/watch?v=ffvULj021P0 ... and wonders of ... https://www.youtube.com/watch?v=niOb-ft9N64 ... LOVE ... What, then, shall we say in response ..? https://www.biblehub.com/romans/8-31.htm ..?
 
 G_D IS FOR "US", WHO CAN BE AGAINST US ..?
 
@@ -750,13 +650,9 @@ and NOW 'THE "NEWS"' https://www.youtube.com/watch?v=ZGuQWpJZhh8 TRUMP TESLA CON
 
 NQW THAT'S TRUE LOVE, QATWQMAN ... yes Yes YES it is, QatDaddy ... I LOVE YOU, QATWQMAN ... aaah I LOVE YOU tQQ, QatDaddy ... ahhh pussy Qat LOVE DE fuQQinQ LICKcious ... https://www.youtube.com/watch?v=mNaMR8AyeWc&list=RDMM&index=1 ... Ahhh AHHH ... PUREHEART ... https://www.youtube.com/watch?v=LQj--Kjn0z8&list=RDMM&start_radio=1 ... TRUTH ... Matthew 5:8 ... Matthew 15:9 ... Matthew 18:3 ... Matthew 18:6 https://www.bitchute.com/search/?query=qanon&kind=video&sort=new TIME TO EXPOSE https://www.youtube.com/watch?v=4shKGP5WqXo&t=355s 100% NOLYN https://www.youtube.com/watch?v=6zDqksmEf6k TRUTH http://web.archive.org/web/20180917163452/http://a3du.com/connectthedots.html FOR ALL TO SEE ... 'somethings' ARE NOT FUNNY AT ALL ..! John 15:1-22 ... 'somethings' ARE VERY FUNNY ..! chQQse wisely young grasshoper ..! Matthew 5:8 ... WORD.
 
-GOOD K.I.D.s
-LIFT UP
-GOOD Q.I.D.s
+GOOD K.I.D.s LIFT UP GOOD Q.I.D.s
 
-GOOD Knights In Development
-LIFT UP
-GOOD Queens In Development
+GOOD Knights In Development LIFT UP GOOD Queens In Development
 
 ... RIGHT on time ... https://www.youtube.com/watch?v=segxTedNBrQ ... everybody be RIGHT on time ..!
 
@@ -820,12 +716,9 @@ https://github.com/topics/lua-bindings?l=c
 
 LOTS OF "LOVE" IN THE AIR YOU CAN FEEL IT EVERYWHERE ... https://www.youtube.com/watch?v=4cIUylAUbwM ... HIT IT ... https://www.youtube.com/watch?v=sysgZabVlZw ... I AM the discQ duQQ ... went to party the other night ... all the ladies were treating me RIGHT ... how in the world could I keep my seat ... all of a sudden I began to 'change' ... aaah get down mama ... discQ duQQ ... got to have you mama ... try yQur luQQ ... dQn't be a QluQQ ... Qh mama shaQe yQur tail feathers ... there's nQ stQppinQ a duQQ and his beaQ ... discQ duQQ ... yQu're welcQme ...
 
-... Qh it's the "SAME OLD TUNE" ... WHERE DQ WE TAQE IT FRQM HERE ... it's been the same WAY fQr years ... WE NEED A CHANGE ..!
-https://www.youtube.com/watch?v=kIB5bA9T5uQ ... BUT I DQN'T THINQ QLE' TRUTH DQNE IT THIS WAY ..? https://www.savingcountrymusic.com/native-americans-and-country-music/ ARE YQU SURE TRUTH DQNE IT THIS WAY ..? NO FAKE TRUTHtians! https://biblehub.com/matthew/15-9.htm NO FAKEtriots! NO PAYtriots! I THINK WE MIGHT HAVE MUCH, Much, much 'BIGGER FISH TO FRY' MATTHEW 18:6 than 'vaping' ... 'locking down' ... 'force vaccinating the mRNA genetic mutation of THE ADMINISTRATOR "SATAM' https://www.vapes.com/blogs/news/ups-joins-usps-fedex-dhl-in-stopping-delivery-of-vaping-products-by-april-5 NO SILENT ALL THESE YEARS ON @AE911TRUTH AND I MEAN ZERO OF THESE MONSTERS PROHIBITING https://www.vapes.com/blogs/news/with-a-whimper-not-a-bang-cdc-finally-closes-the-case-on-vaping-related-evali?_pos=1&_sid=86fb9603d&_ss=r WHILE THEY LIE ABOUT THE DIAPER-FACED, FAG-MASK, MILITANT POLICE PLANdemic STATE SCAMdemic AND CONTINUE HIDING like the 'children of darkness' they are SILENCING CENSORING enFORCING British Accredited Registry 'law' and 'just us' NO MONSTERS NO SILENT NO COMPLICIT NONE WHO ARE TURNING AWAY NO FAKE "WATCHMEN" NO FAKE TRUTHtians ARE GOING TO HEAVEN AND NO 'supporter of the children of darnkess' NONE. THERE IS NO FILTH IN HEAVEN. NONE. NO FAKE "WATCHMAN" https://www.biblehub.com/ezekiel/3-17.htm NO FAKE TRUTHtians! AND WE ALL KNOW ALL THESE YEARS THAT NOT EVEN 1 NOT ONE POLICE DEPARTMENT NOT ONE BRANCH OF THE MILITARY NOT ONE GOVERNMENT AGENCY NOT ONE HOSPITAL NOT ONE COURT ALL FILTHY JUST LIKE JFK AND EISENHAUER AND GENERAL SMEDLEY BUTLER WARNED US AND WERE REAL "WATCHMAN" , FALSE FLAG SHOOTINGS FREEMASON, FBI, CIA, PD'S ARE PLANNING AND COMMITING TO PUT THE PUBLIC IN "FEAR" TO "JUSTIFY THE NEED FOR 'MORE PROTCTION'" ALL SILENT ALL COMPLICIT SILENT ON WORLDWIDE PEDOPHILIA, WORLDWIDE SEX TRAFFICKING, WORLDWIDE UNENDING VICIOUS DEATH DESTRUCTION LIES DECEIPT MURDER KILLING WARS BASED ON DECEPTION, FILTHY BLOOD MONEY FAKE VALUE WORTHLESS PENSION WHORE FREEMASON Fraternal Order of PEDOphile POLICE ME ME ME MY FAMILY MY JOB MY DEPARTMENT "JUST FOLLOWING ORDERS" "JUST DOING MY JOB" "JUST GOING TO WORK" "JUST TAKING CARE OF MY FAMILY" "BACK THE BLUE" "BROTHERHOOD OF THE BLUE WALL OF SILENCE" "DO AS I SAY OR ELSE" CAGING RAPING LYING SILENCING FRAMING CAGING CONTROLLING DECEIVING "SATAM" https://www.youtube.com/watch?v=f_NOhAdaNm8 "ADMINISTRATOR" "FAKE SEAL" "SNAKE" "CHILDREN OF DARKNESS" "KNOWLEDGE HIDING" low iQ unable to 'create' SOULLESS archon ahriman demonic 'satamic' 'satanic' of BLUE MONSTERS INC https://www.biblehub.com/matthew/10-37.htm SUPPORT OUR TROOP "W" bumper sticker 1/2 TRUTH 1/2 HEART fake TRUTHtians! I AM NAFF! I AM Not A FuQQinQ Fan. ONLY 1 OF US IS RIGHT AND I AM SPEAKING TRUTH, are 'they' ..? the more you know ... CHOOSE WISELY. SEE YOU "BACK HOME" ..! PROMISE. WORD.
+... Qh it's the "SAME OLD TUNE" ... WHERE DQ WE TAQE IT FRQM HERE ... it's been the same WAY fQr years ... WE NEED A CHANGE ..! https://www.youtube.com/watch?v=kIB5bA9T5uQ ... BUT I DQN'T THINQ QLE' TRUTH DQNE IT THIS WAY ..? https://www.savingcountrymusic.com/native-americans-and-country-music/ ARE YQU SURE TRUTH DQNE IT THIS WAY ..? NO FAKE TRUTHtians! https://biblehub.com/matthew/15-9.htm NO FAKEtriots! NO PAYtriots! I THINK WE MIGHT HAVE MUCH, Much, much 'BIGGER FISH TO FRY' MATTHEW 18:6 than 'vaping' ... 'locking down' ... 'force vaccinating the mRNA genetic mutation of THE ADMINISTRATOR "SATAM' https://www.vapes.com/blogs/news/ups-joins-usps-fedex-dhl-in-stopping-delivery-of-vaping-products-by-april-5 NO SILENT ALL THESE YEARS ON @AE911TRUTH AND I MEAN ZERO OF THESE MONSTERS PROHIBITING https://www.vapes.com/blogs/news/with-a-whimper-not-a-bang-cdc-finally-closes-the-case-on-vaping-related-evali?_pos=1&_sid=86fb9603d&_ss=r WHILE THEY LIE ABOUT THE DIAPER-FACED, FAG-MASK, MILITANT POLICE PLANdemic STATE SCAMdemic AND CONTINUE HIDING like the 'children of darkness' they are SILENCING CENSORING enFORCING British Accredited Registry 'law' and 'just us' NO MONSTERS NO SILENT NO COMPLICIT NONE WHO ARE TURNING AWAY NO FAKE "WATCHMEN" NO FAKE TRUTHtians ARE GOING TO HEAVEN AND NO 'supporter of the children of darnkess' NONE. THERE IS NO FILTH IN HEAVEN. NONE. NO FAKE "WATCHMAN" https://www.biblehub.com/ezekiel/3-17.htm NO FAKE TRUTHtians! AND WE ALL KNOW ALL THESE YEARS THAT NOT EVEN 1 NOT ONE POLICE DEPARTMENT NOT ONE BRANCH OF THE MILITARY NOT ONE GOVERNMENT AGENCY NOT ONE HOSPITAL NOT ONE COURT ALL FILTHY JUST LIKE JFK AND EISENHAUER AND GENERAL SMEDLEY BUTLER WARNED US AND WERE REAL "WATCHMAN" , FALSE FLAG SHOOTINGS FREEMASON, FBI, CIA, PD'S ARE PLANNING AND COMMITING TO PUT THE PUBLIC IN "FEAR" TO "JUSTIFY THE NEED FOR 'MORE PROTCTION'" ALL SILENT ALL COMPLICIT SILENT ON WORLDWIDE PEDOPHILIA, WORLDWIDE SEX TRAFFICKING, WORLDWIDE UNENDING VICIOUS DEATH DESTRUCTION LIES DECEIPT MURDER KILLING WARS BASED ON DECEPTION, FILTHY BLOOD MONEY FAKE VALUE WORTHLESS PENSION WHORE FREEMASON Fraternal Order of PEDOphile POLICE ME ME ME MY FAMILY MY JOB MY DEPARTMENT "JUST FOLLOWING ORDERS" "JUST DOING MY JOB" "JUST GOING TO WORK" "JUST TAKING CARE OF MY FAMILY" "BACK THE BLUE" "BROTHERHOOD OF THE BLUE WALL OF SILENCE" "DO AS I SAY OR ELSE" CAGING RAPING LYING SILENCING FRAMING CAGING CONTROLLING DECEIVING "SATAM" https://www.youtube.com/watch?v=f_NOhAdaNm8 "ADMINISTRATOR" "FAKE SEAL" "SNAKE" "CHILDREN OF DARKNESS" "KNOWLEDGE HIDING" low iQ unable to 'create' SOULLESS archon ahriman demonic 'satamic' 'satanic' of BLUE MONSTERS INC https://www.biblehub.com/matthew/10-37.htm SUPPORT OUR TROOP "W" bumper sticker 1/2 TRUTH 1/2 HEART fake TRUTHtians! I AM NAFF! I AM Not A FuQQinQ Fan. ONLY 1 OF US IS RIGHT AND I AM SPEAKING TRUTH, are 'they' ..? the more you know ... CHOOSE WISELY. SEE YOU "BACK HOME" ..! PROMISE. WORD.
 
-... beCAUSE here I gQ aQain ... https://www.youtube.com/watch?v=HwKUaYBUYNc ... I CAN'T EXPLAIN ... WHY CAN'T YOU SEE ..? I LOVE YOU ... LOVE ISN'T SILLY AT ALL ... while dQn't yQu PULL QN YQUR PEQQER and 'see' hQw that's attached ... 
-https://www.youtube.com/watch?v=DAbjI5CKQYQ&t=54s
-... I AM nQt that Qind Qf angel ... https://www.youtube.com/watch?v=DAbjI5CKQYQ&t=124s ... REVELATION 12:7 ... I KNEW IT! MONEY WAS INVOLVED wasn't it ..? I SHOULD SAY SO ... MONEY CHANGERS ..! BATTLE! https://www.youtube.com/watch?v=xWpA-2-KdDo LIFE! https://www.youtube.com/watch?v=3aK0IU1uK-o&t=364s ... THE "SON" WAS HAVING AN ARQUMENT WITH THE NQRTH WIND ... WHQ WAS SMARTER ..? WHQ WAS STRQNQER ..? THE NQRTH WIND PQINTED QUT A MAN WALQINQ DQWN THE STREET ... I BET I CAN MAKE THAT MAN TAQE QFF HIS cQat AND YQU QAN'T ... I'LL TAQE THAT BET SAID THE "SON" ... THE NQRTH WIND BLEW AND Blew and blew and mQre that wind BLEW the tighter that man held that Qoat arQund himself ... then the "SON" QAME QUT and 'SMILED' and it beQame 'WARMER' ... the man tQQk Qff his Qoat ... https://www.youtube.com/watch?v=tTlKIzXRfhU ... I THQUQHT YQU WERE MY MAN but I FQUND QUT I AM just a linQ in yQur chain ... dance with TRUTH honey take my hand baby let's go lil' mama ... YQU TELL ME TQ LEAVE YQU AROUND ... QH but yQur LOVING IS MUCH TOO STRONG ... well, yQu Qan tell by the WAY I use 'my walQ' I AM a woman's man in no time at all ... https://www.youtube.com/watch?v=YxvBPH4sArQ ... whether yQur a brQther or whether yQur a mQther ... yQu're STAYIN' ALIVE ... OH Oh oh MISTER KOTTER Mister Kotter mister kotter ... yes HQRSESHAQQ what is it ... not feelin' tQQ 'CLEAN' abQut' nQw 'shaQ' FILTHY! MONSTER! ... what's that 'smell' ... oh fuQQ what is the fuQQinQ stanQ ass FILTHy smell I AM OUT ... stanQiest STANQ in stanQville ... CQUNT ME THE FUQQ QUT ... PASS ... I'll taQe a pass ... I'll just taQe a fuQQinQ pass Qn that 'freemason' filth shaQzilla ... take a bath ... fuQQer ... stanQ ... yQu tQQ Mr. Scientology "Vinnie Barbarino" makinQ GOOD ITALIANS LOOK LIKE 'roman filth' ... stanQ LOW iQ 2-FACED DECEIVER ... see you back 'home' ... PROMISE. TRUTH DID NOT COME TO UNITE BUT DIVIDE THE WHEAT FROM THE TARRES ... something going dQwn and I QAAN FEEL IT ... https://www.youtube.com/watch?v=op5FxEs1aR0 and the 'feeling' is RIGHT ... I'VE ALWAYS WANTED TO "SING" WITH YOU ... https://www.youtube.com/watch?v=BEFFdxaG4t0 ... LET'S SING THEN ... YOU KNOW WHAT I AM GETTING AT, RIGHT ..? RIGHT, MR. GREG GUELDA ..? hmmm ... BRAVE "GAY" GREG QNCE WAS ONE OF TWO IN A CLASS FULL OF "MEN" IN TRUTH WITH MOST PUREHEART ... SHADOW DANCING ... https://www.youtube.com/watch?v=PZxA3FVUwvk ... BABY YOU DO IT RIGHT  ... WHO STOPPED ME FROM FIGHTING WITH ANOTHER "CLASSMATE" ONCE UPON A TIME ALONG WITH A "MAN" WHO KNEW WANTED TO BE A "PRIEST" WHEN HE WAS IN 1ST GRADE GIVING "COMMUNION" HE "STOLE" FROM THE "CHURCH" TO GIVE TO HIS FRIENDS DOWNSTAIRS IN HIS BASEMENT HOLDING PRAYERFUL CEREMONIES TO G_D WITH HIS 5-7 YEAR OLD CLASSMATERS AND TODAY FATHER PHILIP ERICKSON IS INDEED A PRIEST NOT A REAL TRUTHtian like me but still TRUTH is the WAY to LIFE with G_D and 'handsome' blonde' 'thiQQ' 'intelleQtual' Greg has the most beautiful sisters and his 'RACE' 'CAR' mechanic GOOD Dad and you know https://www.youtube.com/watch?v=D5olFIGW5rI RACE 'care' mechanic GOOD DAD and most PUREHEART mom and PHil's 'cousin' from St. Francis DeSales high school football games times oh la la she is so beautiful and both Greg and Phil never noticed but I NOTICE "BIGLY" roller skating style  BIGLY BIGLIER THAN THAT REALLY BIGLY oh la la  https://www.youtube.com/watch?v=z0qW9P-uYfM ... sQ dQn't gQ breaQinQ my HEART ... don't go trying ... https://www.youtube.com/watch?v=GkuJJsApACc ... I WILL TAKE YOU JUST THE WAY YOU ARE ... https://www.youtube.com/watch?v=cdDPR8GzXy8 ... maybe I AM 'amazed' too ... 'take the GOOD leave the 'rest' ... WORD.
+... beCAUSE here I gQ aQain ... https://www.youtube.com/watch?v=HwKUaYBUYNc ... I CAN'T EXPLAIN ... WHY CAN'T YOU SEE ..? I LOVE YOU ... LOVE ISN'T SILLY AT ALL ... while dQn't yQu PULL QN YQUR PEQQER and 'see' hQw that's attached ... https://www.youtube.com/watch?v=DAbjI5CKQYQ&t=54s ... I AM nQt that Qind Qf angel ... https://www.youtube.com/watch?v=DAbjI5CKQYQ&t=124s ... REVELATION 12:7 ... I KNEW IT! MONEY WAS INVOLVED wasn't it ..? I SHOULD SAY SO ... MONEY CHANGERS ..! BATTLE! https://www.youtube.com/watch?v=xWpA-2-KdDo LIFE! https://www.youtube.com/watch?v=3aK0IU1uK-o&t=364s ... THE "SON" WAS HAVING AN ARQUMENT WITH THE NQRTH WIND ... WHQ WAS SMARTER ..? WHQ WAS STRQNQER ..? THE NQRTH WIND PQINTED QUT A MAN WALQINQ DQWN THE STREET ... I BET I CAN MAKE THAT MAN TAQE QFF HIS cQat AND YQU QAN'T ... I'LL TAQE THAT BET SAID THE "SON" ... THE NQRTH WIND BLEW AND Blew and blew and mQre that wind BLEW the tighter that man held that Qoat arQund himself ... then the "SON" QAME QUT and 'SMILED' and it beQame 'WARMER' ... the man tQQk Qff his Qoat ... https://www.youtube.com/watch?v=tTlKIzXRfhU ... I THQUQHT YQU WERE MY MAN but I FQUND QUT I AM just a linQ in yQur chain ... dance with TRUTH honey take my hand baby let's go lil' mama ... YQU TELL ME TQ LEAVE YQU AROUND ... QH but yQur LOVING IS MUCH TOO STRONG ... well, yQu Qan tell by the WAY I use 'my walQ' I AM a woman's man in no time at all ... https://www.youtube.com/watch?v=YxvBPH4sArQ ... whether yQur a brQther or whether yQur a mQther ... yQu're STAYIN' ALIVE ... OH Oh oh MISTER KOTTER Mister Kotter mister kotter ... yes HQRSESHAQQ what is it ... not feelin' tQQ 'CLEAN' abQut' nQw 'shaQ' FILTHY! MONSTER! ... what's that 'smell' ... oh fuQQ what is the fuQQinQ stanQ ass FILTHy smell I AM OUT ... stanQiest STANQ in stanQville ... CQUNT ME THE FUQQ QUT ... PASS ... I'll taQe a pass ... I'll just taQe a fuQQinQ pass Qn that 'freemason' filth shaQzilla ... take a bath ... fuQQer ... stanQ ... yQu tQQ Mr. Scientology "Vinnie Barbarino" makinQ GOOD ITALIANS LOOK LIKE 'roman filth' ... stanQ LOW iQ 2-FACED DECEIVER ... see you back 'home' ... PROMISE. TRUTH DID NOT COME TO UNITE BUT DIVIDE THE WHEAT FROM THE TARRES ... something going dQwn and I QAAN FEEL IT ... https://www.youtube.com/watch?v=op5FxEs1aR0 and the 'feeling' is RIGHT ... I'VE ALWAYS WANTED TO "SING" WITH YOU ... https://www.youtube.com/watch?v=BEFFdxaG4t0 ... LET'S SING THEN ... YOU KNOW WHAT I AM GETTING AT, RIGHT ..? RIGHT, MR. GREG GUELDA ..? hmmm ... BRAVE "GAY" GREG QNCE WAS ONE OF TWO IN A CLASS FULL OF "MEN" IN TRUTH WITH MOST PUREHEART ... SHADOW DANCING ... https://www.youtube.com/watch?v=PZxA3FVUwvk ... BABY YOU DO IT RIGHT ... WHO STOPPED ME FROM FIGHTING WITH ANOTHER "CLASSMATE" ONCE UPON A TIME ALONG WITH A "MAN" WHO KNEW WANTED TO BE A "PRIEST" WHEN HE WAS IN 1ST GRADE GIVING "COMMUNION" HE "STOLE" FROM THE "CHURCH" TO GIVE TO HIS FRIENDS DOWNSTAIRS IN HIS BASEMENT HOLDING PRAYERFUL CEREMONIES TO G_D WITH HIS 5-7 YEAR OLD CLASSMATERS AND TODAY FATHER PHILIP ERICKSON IS INDEED A PRIEST NOT A REAL TRUTHtian like me but still TRUTH is the WAY to LIFE with G_D and 'handsome' blonde' 'thiQQ' 'intelleQtual' Greg has the most beautiful sisters and his 'RACE' 'CAR' mechanic GOOD Dad and you know https://www.youtube.com/watch?v=D5olFIGW5rI RACE 'care' mechanic GOOD DAD and most PUREHEART mom and PHil's 'cousin' from St. Francis DeSales high school football games times oh la la she is so beautiful and both Greg and Phil never noticed but I NOTICE "BIGLY" roller skating style BIGLY BIGLIER THAN THAT REALLY BIGLY oh la la https://www.youtube.com/watch?v=z0qW9P-uYfM ... sQ dQn't gQ breaQinQ my HEART ... don't go trying ... https://www.youtube.com/watch?v=GkuJJsApACc ... I WILL TAKE YOU JUST THE WAY YOU ARE ... https://www.youtube.com/watch?v=cdDPR8GzXy8 ... maybe I AM 'amazed' too ... 'take the GOOD leave the 'rest' ... WORD.
 
 I met this 'Qirl', 'LI YEONNA' or 'yQu knQw hQw we dQ', 'us', 'RED PEOPLE' 'YEONNA LI' as 'Yeonna' is 'her' first name and 'Li' is 'her' last name, from Gyeonggi-do, Korea born 1968 AUGUST 12 just like 'me' 1968/8/12 in Pohang, Korea who was 'there' in April 1988 'TEAM SPIRIT' outside "Qamp 'MOON'chuQ" or was it "QAMP 'MUD'chuQ" if yQu "FEEL" me cQminQ thrQugh Qlearly ... brrr cQld Qut here soft legs let's get a hotel with a 'heated floor' and 'beautiful, soft, padded, quilt' to lie and try to 'talk to each other' 'somehow' beCAUSE you sure are 'something' 'special' and I have to gQ nQw 'Brandy' ... but 'girl' I MISS YOU beCAUSE yQu knQw that's just hQw 'us' 紅人 'RED' PEQPLE 'feel' abQut LIFE in TRUTH and 好想你 I MiSS YOU ..., I met this 'girl' there that brQuQht about Quite a big 'CHANGE' ... she made me HIGHer than all those expensive things ... https://www.youtube.com/watch?v=huKwlgKmj5A ... but I Qver did 'it' in 'Denver' and I just Qan't remember 'her' name ... the more you know ... We are many ... We are GOOD ... We are coming ... GOOD IS COMING and G_D IS WITH US ..! https://www.youtube.com/watch?v=p4zP1aD05X4 ... and in TRUTH this 'girl' from Okiniwa, Japan circa 1987-1988 a lil' 'fine establishment' we all were told by 'mama san' to just Qall "MOM'S" (there's a photo of the 'purple' 'vertical' 'Mom's' 'sign' in the 'collage' 'photos' it's a baby QrinQle ... love ya' bye ... the more you know ... :-) so we all sang karoake and drank warm saki late into the night ... I helped my 'girl' "YOKO" to you know 'stop smoking' I brought her big 20 packs of BIG RED CHEWING GUM to help her and she stopped too ... and this wonderful 'girl' in Switzerland I met one day in Zurich and she said she wanted to talk to me later but my 'friends' all boarded the train to 'boring' Geoneva and 'trolled me the fuQQ out' and her most swiss-miss blonde doll self just never got to talk to me ... teardrop ... BUT WAIT THERE'S MORE :-) PROMISE ..! PRAY ..!
 
@@ -835,30 +728,11 @@ https://www.youtube.com/watch?v=fdQgPu3iUYk
 
 "The Conversation" says "Watasha" Waylon to HanQ Jr ... HanQ... let's talQ abQut TRUTH ... back then 'they' Qalled TRUTH Qrazy ... nQwadays 'they' Qall TRUTH a saint ... nQw the Qnes that Qalled TRUTH Qrazy still 'riding on TRUTH's name' ... https://www.youtube.com/watch?v=csONW-zWFqs ... be the 'first Qne Qn the bus' ... ready to ride ... whereever TRUTH is I hope TRUTH's happy ... I hope TRUTH's doing well ... I won't asQ yQu nQ mQre questiQns tQ the stQries Qnly TRUTH Qan tell ... WORD.
 
-... HIT'em with a little GHETTO GOSPEL ... my GHETTO GOSPEL ... https://www.youtube.com/watch?v=Do5MMmEygsY ... I sit ... recollect and reminisce ... GOOD DAYS ... the younger ... my heart goes to them ...
-
-... ... everyone's ashamed of the youth ... beCAUSE the TRUTH look strange ... for me ... it's reversed ... and it hurts ... ...
-
-... ... ... don't it get you teary ... when you wipe your eyes ... see it clearly ... ... ...
-
-... ... ... ... there's no need for you to fear me ... if you take the time to hear me ... ... ... ...
-
-... ... ... ... ... AM I less a holy? ... those to wish to follow me ... I welcome with my hands ... ... ... ... ...
-
-... ... ... ... ... ... and peace ... young warrior ... without the sound of guns ... LORD ... HEAR ME speak! ... ... ... ... ... ...
-
-Have you ever seen a lil' K.I.D. who be doin' what I do ..? same ole' clowns ... pretending they 'proud' ... but when you leave town they go around running their mouths ... something like a 'hater' man ... talking about about a 'player' as if I AM not gonna 'see you later' man ... beCAUSE I keep a 'hater' GUILTY ... obey no rules ... let the young do Do DO ... https://www.youtube.com/watch?v=WZ_rXp6nYKQ ... I AM basically coming from something to nothing ... when I say 'nothing' I mean 'pocket full of "lint and buttons" ... people alWAYs saying it must be nice ... but understand the money's GOOD but I AM still from the hood ... unless you want a 'foot' ... I know a few ... who could 'put you where you need to be put' ... let the 'girls do me' while 'you do you' ... so yo' ... what da' "HOOK" gon' be ..? ... all I need is TRUTH and PUREHEART and G_D ABOVE ALL and maybe some GOOD CRYSTALLINE CLEAN PUREHEART HIGH QUALITY H20-based CREAMY QREAM oh la la ... yes ma'm more please I WOULD LOVE SOME MORE OF YOUR "QREAM" thank you 'kind' one ... I LOVE SOFT LEGS ... I LOVE PUREHEART ... I LOVE TRUTH ... I PROTECT AND LOVE G_D LIKE AN INFANT ...
-
 ... and WHEN I DO YOU KNOW TELL THE TRUTH ON THE JOB I SURE SEEM TO HAVE A LOT OF JOBS I WONDER WHY ... beCAUSE WHEN I DO, TELL THE TRUTH beCAUSE I AM TRUTH and I CAN ONLY BE MYSELF I CANNOT BE SOMEONE ELSE FOR I AM TRUTH I AM PUREHEART AND WELL FUQQ THE PQLITIQALLY CQRREQT HYPQCRITIQ UNINTELLIGENT STANK WORTHLESS GARBAGE USELESS PURPOSELESS ABSOLUTE "SHITBIRD" NO GOOD FOR NOTHING WASTE OF A GOOD EGG AND FLOWING SWIMMER PENETRATING SPARK OF LIFE SMELLY CIGARETTE BUTT FLOATING IN A LOOSE "LOAD" OF "FILTH" SICK "WEAK" "SNOWFLAKE" kind of like you know like Like LIKE you know like what I AM saying like you know FILTH UNINTELLIGIBLE JAQQasses complaining abQut everything but the real prQblems in LIFE just GQ AWAY FUQQER NO ONE WILL EVER MISS YOU MONSTER CAGER BLACK ROBE SUIT COUNSELOR SOCIAL WORKER CORRECTIONS NOT CORRECTING BUT TORTURING CONTROLLING CAGING HUMILIATING ANYTHING BUT HELPING AND TRULY "REHABILITATING AND CORRECTING MY BELOVED CHILDREN OF G_D IN TRUTH" so ONLY ONE OF US IS RIGHT "BACK THE BLUE" SUPPORTING FILTH SO TAKE YOUR FILTHY 1/2 TRUTH FAKE TRUTHtian SAND CASTLE VIRTUALS AND GO MATTHEW 18:6 YOUR FILTHY "THAT'S NOT APPROPRIATE FOR BUSINESS" SOUL BACK TO THE PIT ... beCAUSE MONSTER CAGER BLACK ROBE BANKSTER DOC PRIEST POPE FREEMASON ZIONIST CATHOsick 'law' enFORCEr BLUE MONSTERS BLUE WALL OF SILENCE supporting SIQQ FUQQ YOU HATE ME AND I KNOW YOU HATE ME YOU FILTH and you HATE ME WITHOUT CAUSE for telling the TRUTH you HATE ME AS JOHN 15:1-22 WARNS THEY WILL HATE ME, TRUTH, AS THEY HATED TRUTH IN THE PAST RIGHT JULIAN ASSANGE ..? RIGHT EDWARD SNOWDEN ..? RIGHT BRAD ..? FIND A MASCULINE REAL WOMAN BRAD AND GET THAT FECAL MATTER WITH MAIZE ON A PENILE INSTRUMENT OUT OF YOUR MOUTH 'man' ... TRUTH Brad ... YOU ARE A man BRAD so find a real WOMAN to LOVE YOU as you are a more 'feminine' 'man' but she will LOVE you and ACCEPT you and together your REAL NATURAL LOVE will lead to LIFE AND G_D ... I bring you a solution a WAY back home Brad beCAUSE I AM YOUR 'real friend' beCAUSE 'real friends' find solutions not criticisms not hurting their 'friend' not making fun of their 'friend' AND MOST OF ALL REAL FRIENDS TELL THE TRUTH ... WORD. NO 1/2 TRUTH 1/2 HEART PEDO POLICE STATE DECEPTIVE LYING SATANIC CONTROL-FREAK MILITANT CAGING MONSTER MASONIC FILTHY MONSTERS of 'law' enFORCEment PRISON CAGING MEDICAL LOCKDOWN GENETICALLY ALTERING DNA/mRNA transhumanist promoting wicked MONSTERS https://www.youtube.com/watch?v=h3fsYpxAO8I 'DECEPTIVE' 'SICK' SECRET SYSTEMS AND HIDDEN FORCES of the CHILDREN OF DARKNESS ... RIGHT Arch Bishop Vigano PEDO PRIESTS POPES POLICE JUDGES DOCTORS PRISONS MILITANTS FILTH ..? EVERYWHERE ..! TELL EM bo' beCAUSE I WILL BE SEEING "YOU" BACK HOME 'preacher man' ... PROMISE. https://www.youtube.com/watch?v=iQPUmRPnrNQ ... SECRET FILTHY BLOOD MONEY COVERED SECRET FINANCE AND THE CIA WICKED MI6 MOSSAD NAZI GERMANY FRANCE SPANISH DUTCH British Accredited Registry FREEMASON CATHOsick 501-c3 FAKE TRUTHtian MILITANT ISLAM FAKE balfour agreement 'rothschild' filth zionist ... https://www.youtube.com/watch?v=iQPUmRPnrNQ ... 5 dancing israelis larry silverstein just pull it jp5 jet fuel cannot melt steel THE END YOU ARE ALL GOING IN THE PIT EVERY SINGLE SILENT FILTHY COMPLICIT cop, lawyer, judge, doctor, agent, pedo. freemason, militant, corrections officer, social worker, pill pushing psychiatrist, counseler, anyone anywhere NO MORE TURNING AWAY ... STEP RIGHT UP ... PLEASE HAVE YOUR PROOF OF PUBLIC TRUTH IN HAND READY FOR THE NEXT AVAILABLE T.C.A. TRUTH Checking Angel and thank you for attempting to enter HEAVEN with us today SICK NAZI LONDON ROME X cQnneQtiQn ... SHEOL AWAITS MONSTER! FILTHY! NO MERCY IS COMING I ASSURE YOU. THERE IS NO FILTH IN HEAVEN. NONE. YOU HAD TIME TO SPEAK ALL THESE YEARS AND YOUR "FRUITS" ARE NOW KNOWN. FILTH. DECEIVERS. SNAKES. MONSTER! SHEEP NO MORE!
 
 Q !!Hs1Jq13jV6 ID: d1c5c9 No.9041688 📁 May 5 2020 14:41:46 (EST) EXRyAQTWAAcdxn_.jpg⬇ https://www.reuters.com/article/us-health-coronavirus-tanzania/tanzania-suspends-laboratory-head-after-president-questions-coronavirus-tests-idUSKBN22G295📁 Sometimes you can't TELL the public the truth. YOU MUST SHOW THEM. Q https://qanon.pub/?q=tanzania
 
-Give Thanks to the LORD, for G_D IS GOOD.
-35 ... but 'they' mingled with the nations and adopted their customs.
-36 'They' worshiped their idols, GAVE ALL THEIR TIME AND ATTENTION "WORSHIPPING" "SEEKING" "MONEY" "APPLES FREELY GIVEN UNTO THEM FROM G_D BUT IN WHICH THEY HARVEST AND FORCE OTHERS TO PAY FOR KIND OF IDOLS" which became a "snare" https://www.youtube.com/watch?v=O8SnaSjnkZg to them.
-37 They sacrificed their sons and their daughters to demons.…
-PSALMS 106:36
-https://biblehub.com/psalms/106-36.htm
+Give Thanks to the LORD, for G_D IS GOOD. 35 ... but 'they' mingled with the nations and adopted their customs. 36 'They' worshiped their idols, GAVE ALL THEIR TIME AND ATTENTION "WORSHIPPING" "SEEKING" "MONEY" "APPLES FREELY GIVEN UNTO THEM FROM G_D BUT IN WHICH THEY HARVEST AND FORCE OTHERS TO PAY FOR KIND OF IDOLS" which became a "snare" https://www.youtube.com/watch?v=O8SnaSjnkZg to them. 37 They sacrificed their sons and their daughters to demons.… PSALMS 106:36 https://biblehub.com/psalms/106-36.htm
 
 These people are stupid. Q ... These people are sick. Q ... These people should be hanging. Q ... Those who know cannot sleep. Q. This is not going aWAY. Q ... Bigger than you can imagine. Q ... STAY TOGETHER. Q ... TRUST YOURSELF. Q ... TRUST HUMANITY. Q ... Go with G_D. Q ... Nothing can stop what is coming. NOTHING. Q ... G_D WINS. Q ... and be serious Q or no Q trQll don't troll me 'holmes' all your BLUE MONSTERS INC enFORCErs of BRITISH ACCREDITED REGISTRY 'law' with their wicked, hypocrite black-robed filthy fake TRUTHtian 'friends' are going IN THE PIT with all their families who benefited ALL THESE YEARS AND ALL OF WHOM HAVE THE SAME ILL, DISEASED, SILENT, COMLICIT, LOW IQ, NOT WORTH HAVING AROUND, UNTRUSTWORTHY, SELFISH, WICKED FORKED TONGUE STICKING OUT WITH THEIR DECEPTIVE WINKING EYE and think RIGHT MR. PODESTA "YOU THINK YOU'RE HOT SHIT DON'T YOU ..?" THE MOST UNREAL RIGHTEOUS RAGE IS COMING ... KEEP YOUR PUREHEART ... I ASSURE YOU ... YOU ARE 100% GOING TO NEED IT for if I can only 'feel' a little fraction of the 'suffering' worldwide imagine what G_D must be 'feel'ing about RIGHT NOW and IF I AM GOING TO UNLEASH RIGHTEOUS RAGE UPON ALL THE SILENT THE COMPLICIT THOSE TURNING AWAY AND I AM THIS FILLED WITH RIGHTEOUS RAGE THEN JUST IMAGINE WHAT G_D IS GOING TO UNLEASH UPON YOUR SOUL ... ONLY 1 OF US IS RIGHT ... choose wisely ... I will be seeing you back 'home' ... PROMISE.
 
@@ -934,7 +808,7 @@ ya'll can't deny it ... https://www.youtube.com/watch?v=8pri1ntKT5s ... I AM fuQ
 
 I said NOW ... 'THE "NEWS"' of most PUREHEART IN TRUTH ... named him after a man Qf the clQth ... https://www.youtube.com/watch?v=n7GyLr7Cz2g ... AMQS MQSES ... now you have the 'rest of the story' ... NEWS https://www.youtube.com/watch?v=7Y7HwQmo8tk courtesy of Philadelphia LIBERTY bell ringer, KINNINIGAN ... https://www.youtube.com/watch?v=WBbGKGq3sZY ... HOWARD HUGHES and SECRET SPACE PROGRAM ... and SOME MUCH NEEDED EDWARD SNOWDEN, MARIA BUTINA, SETH RICH, JULIAN ASSANGE ... https://www.youtube.com/watch?v=XLI6unM7d7U ... STAY STRONG BELOVED KIND ONE IN TRUTH WITH MOST PUREHEART JULIAN beCAUSE IN TRUTH WITH MOST PUREHEART WE PRAY FOR YOU WE ARE WITH YOU ALWAYS FOR WE WILL NEVER FORGET YOU AND YOUR LOVE FOR G_D FOR TRUTH FOR PUREHEART FOR ALL OF "US" WE LOVE YOUR "SACRIFICE" YOUR ... 'GIVING OF LIFE AS "SACRIFICE"' ... RIGHT Neil Young sing it for me HEART OF GOLD seeking one sing CQRTEZ THE QILLER "SO THAT OTHERS COULD GO ON..." ... WE LOVE YOU JULIAN ASSANGE https://www.youtube.com/watch?v=7NZEJR_Syfs TRUTH WE ARE WITH YOU JULIAN STAY STRONG JULIAN GOOD IS COMING and G_D IS WITH US AS YOU ARE SITTING AWAY "LONELY" GETTING AWAY ONLY IN "YOUR MIND" SO GET AWAY "SOMETIME" I SAY TO YOU NOW JULIAN G_D "FEEL" MY PRAYER MY LORD MY G_D IN TRUTH I BEG OF YOU MY LOVE MY G_D HELP JULIAN NOW AND LET HIM "FEEL" MY PRAYER LET HIS MOTHER AND FATHER "FEEL" MY PRAYER IN TRUTH IN MOST PUREHEART AND G_D ACT NOW YOU THINK "GINA MARIA COLVIN HILL" is ... https://www.youtube.com/watch?v=XdvJQjduujQ JUST AN AVERAGE 'housewife' ..? "THEY DON'T MIND HELPING PEOPLE WHO HELP THEIR SELVES." ... G_D WINS! GO WITH G_D! Bigger than you can imagine ... darkness to LIGHT! https://www.youtube.com/watch?v=qbsKvjRls9U PULL THE OTHER LEG ... IT PLAYS JINGLE BELLS ... PLEASE ACT NOW G_D RIGHT NOW PLEASE OH LORD G_D HELP JULIAN AS JULIAN IS SITTING IN ISOLATION "RIGHT NOW" BEING "TORTURED" "DYING" IN A "CAGE" SURROUNDED BY WEREWOLVES OF LONDON ... https://www.youtube.com/watch?v=qae25976UgA ... WHY ARE THE WEREWOLVES OF LONDON "CAGING" "KILLING" JULIAN ASSANGE AND WHY IS THE WEAK FAKEtriot Austrialian, Canadian, New Zealand, Ireland, French, German, Spanish, Greek, ameriSICKan PEDOgon not saying anything ..? beCAUSE THEY ARE SICK AS FUQQ ... CAGING JULIAN FOR WHAT ..? FOR TELLING THE TRUTH WITH MOST PUREHEART SERVING G_D not 'checkboard pattern' FREEMASON FILTHY MONSTERS IN LONDON AMERISICKA PEDOGON BLOOD MONEY FEDERAL RESERVE DUTCH EAST INDIA OPIUM WARS BALFOUR AGREEMENT ROTHSCHILD "FAKE JEW" "REAL JEWS NEED NO LAND FOR TRUTH FOR G_D LIVES ANYWEHRE THE REAL IN TRUTH WITH MOST PUREHEART AND GOOD INTENT WHO SEEK NOT TO CONTROL BUT TO HELP AND LOVE AND CHANGE AND SOFTEN HEARTS SO WE ALL "FINISH THE RACE" TOGETHER UNLIKE THE "ZIONIST" WARMONGERING MURDEROUS FILTHY FREEMASON INFILITRATORS SECRET SOCIETIES ... REPUGNANT ... ROME ..! TEARDROP TearDrop teardrop JULIAN ASSANGE +++ AND SO MANY MORE "DEAD" and alive 'lonely' suffering ... "NO MORE TURNING AWAY" ... https://www.youtube.com/watch?v=Dq2sCFmphy8 ... 8th SPHERE ..? TRUTH ... by IN TRUTH MOST PUREHEART 'darkJOURNALIST's 'Daniel' and the beautiful 'Oliva' ... https://qanon.pub/?q=freemason children of darkness RIGHT Arch Bishop Vigano ..? https://www.truthislight.com/2014/05/police-and-freemasonry-irrefutable.html ... RIGHT ..! LISTEN REAL "GOOD" https://www.youtube.com/watch?v=OoeHVUmk_qw&t=1083s ... https://qanon.pub/?q=those%20you%20are%20taught%20to%20trust%20the%20most "These people are sick. Q" "These people should be hanging. Q" "Those you 'were taught' to 'trust the most' are the most GUILTY OF SIN. Q" ... "No one gets out of this. Q" ... "You are witnessing the systematic destruction of the old guard. Q" ... Nothing can stop what is coming. NOTHING. Q" ... https://qanon.pub/?q=talking%20to You are learning. How many coincidences before it becomes mathematically impossible? Wait until you learn who has been talking to you here. Q " ...
 
-'twas the day after ... time to see 'what time it is' and 'who is who in the zoo' so if you 'need' a 'somebody' who can do a certain 'something' that 'few can do' then you know 'what's UP' but please keep either WAY be GOOD tell the TRUTH be the 'real' you ALL THE TIME not 'some' of the time no part-time TRUTHtians 'feel' me ..? cool. WORD. Blessed are the PUREHEART for they shall see G_D. Matthew 5:8 ... There is no escaping G_D. Go with G_D. G_D WINS ... Q ... I AM not frightened of dying. There's no reaSON for it. We all got to go sometime ... Roger Waters, Pink Floyd ... ON THE TURNING AWAY ... Elvis ... IN THE GHETTO ... SmashMouth ... Walkin' on the 'son' ... I AM TRUTH. YOU ARE TRUTH. REPEAT AFTER ME "I AM TRUTH. I AM PUREHEART." beCAUSE YOU ARE ... remember who you are ...  you have forgotten more than you know ... look 'harder' ... 'deeper' ...
+'twas the day after ... time to see 'what time it is' and 'who is who in the zoo' so if you 'need' a 'somebody' who can do a certain 'something' that 'few can do' then you know 'what's UP' but please keep either WAY be GOOD tell the TRUTH be the 'real' you ALL THE TIME not 'some' of the time no part-time TRUTHtians 'feel' me ..? cool. WORD. Blessed are the PUREHEART for they shall see G_D. Matthew 5:8 ... There is no escaping G_D. Go with G_D. G_D WINS ... Q ... I AM not frightened of dying. There's no reaSON for it. We all got to go sometime ... Roger Waters, Pink Floyd ... ON THE TURNING AWAY ... Elvis ... IN THE GHETTO ... SmashMouth ... Walkin' on the 'son' ... I AM TRUTH. YOU ARE TRUTH. REPEAT AFTER ME "I AM TRUTH. I AM PUREHEART." beCAUSE YOU ARE ... remember who you are ... you have forgotten more than you know ... look 'harder' ... 'deeper' ...
 
 TO EXPRESS ONE'S SELF HONESTLY NOT LYING TO ONE'S SELF AND TO EXPRESS MYSELF HONESTLY 'that' 'my friend' is very hard to do. Bruce Lee
 
@@ -950,7 +824,7 @@ I alWAYs like to 'think' I AM A BAD MOTHER FUCKER ... a VICIOUS MOTHER FUCKER ..
 
 John Edgar Flaherty IV TRUTH 1968/8/12 'me' telling the TRUTH as alWAYs ... WORD.
 
-... one day in driving in Louisville looking I stopped in a 'barber shop' and Ibn Ali, a tall, maitim, smooth skin, 'if you want to lose your money, then bet on 'sonny' thinking 'spirit of cassius' 'spirit of TRUTH' 'spirit of clay' that G_D formed 'man from the earth's' 'clay' 'kind' kind of 'clay' most PUREHEART honored 'muhammad' ali floating like a butter fly and stinging like a bee your hands can't hit what your eyes can't see ... , smiling, thick 'pretty' shiny natural black 'buhok' 'hair' not too long 1 IRON not too short 9 IRON but a perfect 'stack' JUST RIGHT 5 IRON ... right GOLDiLOCKs JUST RIGHT ... I'M PRETTY ... I SHOOK UP THE WORLD ... now ask  yourself a very GOOD Question how is 'the champ's' nephew living in the back of a barber shop with his lil' maputing babae 'lighter lacking pigment' soft legs smiling with her 'man' and all those you know EDDIE MURPHY 'GOONY GOOGOO' 'COMING TO AMERICA' 'barber shop' 'characters' talking and Talking and TALKING 'shit' ... the more you know ... The More You Know ... BIG BANNERS OF ALI SMILING ALL OVER TOWN while his own nephew has nothing ... yeah ... tell the real TRUTH these phony fake TRUTHtians 'round here ... "I AM NOT 'white' ... I AM NOT NO SLAVE ... I AM 'muhammad' ... https://www.youtube.com/watch?v=B6DefSfqZ4w ... ali means most HIGH ... I AM NO LONGER A SLAVE ... TRUTH ... PUREHEART ... WHAT'S MY NAME ..? YOU KNOW HOW GREAT I AM ... I don't have to tell ... YOU ARE MY OPPOSER ... https://www.youtube.com/watch?v=_ybnXgMMb5g&t=1017s ... YOU WANT ME TO GO SOMEWHERE AND "FIGHT" BUT YOU WON'T EVEN STAND UP FOR ME HERE AT HOME ..!
+... one day in driving in Louisville looking I stopped in a 'barber shop' and Ibn Ali, a tall, maitim, smooth skin, 'if you want to lose your money, then bet on 'sonny' thinking 'spirit of cassius' 'spirit of TRUTH' 'spirit of clay' that G_D formed 'man from the earth's' 'clay' 'kind' kind of 'clay' most PUREHEART honored 'muhammad' ali floating like a butter fly and stinging like a bee your hands can't hit what your eyes can't see ... , smiling, thick 'pretty' shiny natural black 'buhok' 'hair' not too long 1 IRON not too short 9 IRON but a perfect 'stack' JUST RIGHT 5 IRON ... right GOLDiLOCKs JUST RIGHT ... I'M PRETTY ... I SHOOK UP THE WORLD ... now ask yourself a very GOOD Question how is 'the champ's' nephew living in the back of a barber shop with his lil' maputing babae 'lighter lacking pigment' soft legs smiling with her 'man' and all those you know EDDIE MURPHY 'GOONY GOOGOO' 'COMING TO AMERICA' 'barber shop' 'characters' talking and Talking and TALKING 'shit' ... the more you know ... The More You Know ... BIG BANNERS OF ALI SMILING ALL OVER TOWN while his own nephew has nothing ... yeah ... tell the real TRUTH these phony fake TRUTHtians 'round here ... "I AM NOT 'white' ... I AM NOT NO SLAVE ... I AM 'muhammad' ... https://www.youtube.com/watch?v=B6DefSfqZ4w ... ali means most HIGH ... I AM NO LONGER A SLAVE ... TRUTH ... PUREHEART ... WHAT'S MY NAME ..? YOU KNOW HOW GREAT I AM ... I don't have to tell ... YOU ARE MY OPPOSER ... https://www.youtube.com/watch?v=_ybnXgMMb5g&t=1017s ... YOU WANT ME TO GO SOMEWHERE AND "FIGHT" BUT YOU WON'T EVEN STAND UP FOR ME HERE AT HOME ..!
 
 GREAT GRAND FATHER OF TRUTH John Edgar Flaherty (Sr) PUREHEART 1883/12/25 https://www.findagrave.com/memorial/36551613/john-edgar-flaherty
 
@@ -1268,46 +1142,43 @@ THINQ QF IT AS A TIME QAPSULE ... ... an 'archive ... https://twitter.com/a3dudo
 
 ONLY ONE OF US IS RIGHT ... ... see you back 'home' ... PROMISE ...
 
-'Boss the plane ... down goes WTC TOWER 1 INTO IT'S OWN FOOTPRINT TURNING INTO DUST AND MOLTEN HOT "LAVA" METAL AND ALL THE "EVIDENCE" WAS SHIPPED OUT OF THE COUNTRY NOT INVESTIGATED AND NOTHING WAS SAID BY NO POLICE DEPARTMENT, NO COURT, NO 'law' enFORCErs beCAUSE THEY ARE THE MONSTERS ... IT'S THE COPS, STUPID ... IT'S THE ZIONIST MOSSAD, CIA, FBI, MI5, MI6, ROTHSCHILD CENTRAL BANKS, UN, EU, NGOs, FAKE 'charities' FAKE TRUTHtian 'churches' PEDO POLICE PEDO PRIEST CATHOSICKS VATICAN BANK FREEMASON 'brotherhood' of the 'children of darkness as Arch Bishop Vigano called the SILENT, COMPLICIT, VICIOUS, CAGING 2-FACED, 1/2 HEART, MILITANT, DO AS I SAY OR ELSE "WEAPONIZED LOW i.Q. "JUST FOLLOWING ORDERS, boss" MILITANT MONSTERS WITH ZERO MORAL COURAGE AND ZERO SELF-ACCOUNTABILITY AND ZERO SELF-RESPECT AND ZERO SELF-WORTH AND ZERO SELF-CONFIDENCE AND ZERO MORAL AUTHORITY with the fake 'law' fake TRUTHtian ZIONIST 'JUDEO-CHRISTIAN' FILTHY 'lies' and 'deception' and 'hypocrisy' 'do as thou will' if you have a F.O.P. or little 'fish' or 'Support Our Troops' or FAKEtriot flag or whatever 'propaganda' CIA 4AM DROP MOCKINGBIRD MEDIA ABSOLUTE COMPLETE UPSIDE-DOWN REPORTING OF THE TRUTH where 'bad is GOOD' and 'GOOD is bad' beCAUSE that is what the 'darkness' does to 'conceal' the TRUTH ... Boss the plane the plane ... down goes TOWER 2 ... AT FREE FALL SPEED ... boss, Boss, BOSS, NO PLANE! No Plane! no plane ... DOWN GOES BUILDING 7! ... http://twitter.com/AE911TRUTH ... many 'respected' knowledgeable real 'civil engineers' and 'architects' and others aside from their group like Captain Field McConnel or Captain Dan Hanley, now living in Pakistan for his own safety, and given I had to live in the Philippines from September 2019 to August 2020 to escape the 'monsters' in the LMPD and B.A.R. here in not too kingly at all sick BRITISH FILTH OF A lil' boy SICK BOOFOO PEDO MONSTER kind of a weird anything but 'united' kingdom of enSLAVEd low iQ idiot court jesters serving a demonic, deviant, blood thirsty, control freak, weirdo, outcast, freak, satanic FILTHY DECEIVING, MURDEROUS, MILITANT, POLICE STATE king of nothing IN THE PIT being cleansed about now and for a long, Long, LONG TIME TO COME FILTHY FUQQINQ KING 'LOUIS'ville in KenSUQQy, ameriSICKA and then with the MONSTER "BAKLA" DUTERTE AND HIS "POLICE STATE" OF FREEMASON POLICE STATE LOW iQ PUPPETS ... YOU KNOW THE LIL' BAKLA "BOY" FREEMASON FILTHapino MASS "DRUG WAR" MURDERER, di ba ... RIGHT ..? ... RODRIGO DUTERTE THE FREEMASON FILTHapino who has murdered countless poor, relatively innocent, young with families, spouses, children LEFT BEHIND WHILE PAULO DUTERTE THE FILTHY FREEMASON LIKE MAYOR BOY AND FREEMASON ROLAND PAULINO IN OLONGAPO CITY, FILTHAPPINES ... SICK ... evil intent in their 'satanic demonic eyes' I remember the 'darkness' the 'glare' the blood the thiQQ neQQ ... 
+'Boss the plane ... down goes WTC TOWER 1 INTO IT'S OWN FOOTPRINT TURNING INTO DUST AND MOLTEN HOT "LAVA" METAL AND ALL THE "EVIDENCE" WAS SHIPPED OUT OF THE COUNTRY NOT INVESTIGATED AND NOTHING WAS SAID BY NO POLICE DEPARTMENT, NO COURT, NO 'law' enFORCErs beCAUSE THEY ARE THE MONSTERS ... IT'S THE COPS, STUPID ... IT'S THE ZIONIST MOSSAD, CIA, FBI, MI5, MI6, ROTHSCHILD CENTRAL BANKS, UN, EU, NGOs, FAKE 'charities' FAKE TRUTHtian 'churches' PEDO POLICE PEDO PRIEST CATHOSICKS VATICAN BANK FREEMASON 'brotherhood' of the 'children of darkness as Arch Bishop Vigano called the SILENT, COMPLICIT, VICIOUS, CAGING 2-FACED, 1/2 HEART, MILITANT, DO AS I SAY OR ELSE "WEAPONIZED LOW i.Q. "JUST FOLLOWING ORDERS, boss" MILITANT MONSTERS WITH ZERO MORAL COURAGE AND ZERO SELF-ACCOUNTABILITY AND ZERO SELF-RESPECT AND ZERO SELF-WORTH AND ZERO SELF-CONFIDENCE AND ZERO MORAL AUTHORITY with the fake 'law' fake TRUTHtian ZIONIST 'JUDEO-CHRISTIAN' FILTHY 'lies' and 'deception' and 'hypocrisy' 'do as thou will' if you have a F.O.P. or little 'fish' or 'Support Our Troops' or FAKEtriot flag or whatever 'propaganda' CIA 4AM DROP MOCKINGBIRD MEDIA ABSOLUTE COMPLETE UPSIDE-DOWN REPORTING OF THE TRUTH where 'bad is GOOD' and 'GOOD is bad' beCAUSE that is what the 'darkness' does to 'conceal' the TRUTH ... Boss the plane the plane ... down goes TOWER 2 ... AT FREE FALL SPEED ... boss, Boss, BOSS, NO PLANE! No Plane! no plane ... DOWN GOES BUILDING 7! ... http://twitter.com/AE911TRUTH ... many 'respected' knowledgeable real 'civil engineers' and 'architects' and others aside from their group like Captain Field McConnel or Captain Dan Hanley, now living in Pakistan for his own safety, and given I had to live in the Philippines from September 2019 to August 2020 to escape the 'monsters' in the LMPD and B.A.R. here in not too kingly at all sick BRITISH FILTH OF A lil' boy SICK BOOFOO PEDO MONSTER kind of a weird anything but 'united' kingdom of enSLAVEd low iQ idiot court jesters serving a demonic, deviant, blood thirsty, control freak, weirdo, outcast, freak, satanic FILTHY DECEIVING, MURDEROUS, MILITANT, POLICE STATE king of nothing IN THE PIT being cleansed about now and for a long, Long, LONG TIME TO COME FILTHY FUQQINQ KING 'LOUIS'ville in KenSUQQy, ameriSICKA and then with the MONSTER "BAKLA" DUTERTE AND HIS "POLICE STATE" OF FREEMASON POLICE STATE LOW iQ PUPPETS ... YOU KNOW THE LIL' BAKLA "BOY" FREEMASON FILTHapino MASS "DRUG WAR" MURDERER, di ba ... RIGHT ..? ... RODRIGO DUTERTE THE FREEMASON FILTHapino who has murdered countless poor, relatively innocent, young with families, spouses, children LEFT BEHIND WHILE PAULO DUTERTE THE FILTHY FREEMASON LIKE MAYOR BOY AND FREEMASON ROLAND PAULINO IN OLONGAPO CITY, FILTHAPPINES ... SICK ... evil intent in their 'satanic demonic eyes' I remember the 'darkness' the 'glare' the blood the thiQQ neQQ ...
 
-
-WORD https://www.youtube.com/watch?v=4shKGP5WqXo explain how Biden was supposed to be in the "Rose Garden' LIVE but a nearby neighbor in the D.C. area looks out his windows at the same time 'shitbird pedo police zionist cathosick snake serpent sick fuQQwad DUMBama cQck suQQer butt fuQQ mQuth joe the monster police pole in his mouth biden filthy fecal camel tongue butthole licking dumb fuQQ biden was supposedt to be the WhiteHouse Rose Garden but really IT WAS A "DEEP FAKE" VIDEO WITH PHOTOSHOPPED GREEN-SCREEN CHROMA-KEYING TECHNOLOGY USED TO MAKE IT LOOK LIKE FILTHY VERY DUMB VERY EVIL VERY SICK VERY WHO GIVES A FUQQ PUT THAT FILTHY PIECE OF SHIT WITH EVERY COP EVERY LAWYER EVERY SUIT EVERY BLACK ROBE EVERY SILENT FILTHY MILITANT PIECE OF FILTH IN THE MIDDLE OF THE SEA IMMEDIATELY AND MOVE THE FUQQ ALONG WE HAVE A LONG WAY TO GO AND A SHORT TIME TO GET THERE ... 
+WORD https://www.youtube.com/watch?v=4shKGP5WqXo explain how Biden was supposed to be in the "Rose Garden' LIVE but a nearby neighbor in the D.C. area looks out his windows at the same time 'shitbird pedo police zionist cathosick snake serpent sick fuQQwad DUMBama cQck suQQer butt fuQQ mQuth joe the monster police pole in his mouth biden filthy fecal camel tongue butthole licking dumb fuQQ biden was supposedt to be the WhiteHouse Rose Garden but really IT WAS A "DEEP FAKE" VIDEO WITH PHOTOSHOPPED GREEN-SCREEN CHROMA-KEYING TECHNOLOGY USED TO MAKE IT LOOK LIKE FILTHY VERY DUMB VERY EVIL VERY SICK VERY WHO GIVES A FUQQ PUT THAT FILTHY PIECE OF SHIT WITH EVERY COP EVERY LAWYER EVERY SUIT EVERY BLACK ROBE EVERY SILENT FILTHY MILITANT PIECE OF FILTH IN THE MIDDLE OF THE SEA IMMEDIATELY AND MOVE THE FUQQ ALONG WE HAVE A LONG WAY TO GO AND A SHORT TIME TO GET THERE ...
 
 I SAID "TELL ME HOW YOUR LOVE RUNS TRUE" ..! SING YOUR SOFTLY "WHISPERING" "SONG" IN "MY EAR" ... AND I WILL SING A-lQng ... I'll run aCROSS 'the river' just to HOLD YOU "TONIQHT" ... like a little FEATHERED INDIAN calling OUT TO "CLOUDS" FOR "RAIN" ... HOLD ME CLQSE my dear ... hQney TELL ME HQW "YOUR LOVE" "RUNS TRUE" ... be there ... Re: GO QLADMEISTER GO XIQ GO QRUMSTER GO Go go!7Q ACT NOW! NO MERCY! NONE! MATTHEW 18:6 JOHN 15:1-22 SEE YOU BACK HOME ... PROMISE. ONLY 1 OF US IS RIGHT ... MATTHEW 18:6 SILENCE IS COMPLICITNESS 'twas the day after CLEAN FRESH drink anyone how about some Cracker Jacks Get Your Cracker Jacks ICE COLD WATER HERE GET YOUR ICE CODE WATER HERE CRACKER JACKS GET YOUR CRACKER JACKS PLAY BALL! HOMERUN! NO DEAL! NO FAMILY! NO FRIENDS! NO FAVORITES! NO EXCEPTIONS! PRINCIPLES before personalities. BE GOOD or be fuQQinQ gQne FILTH. WORD. LOVE YOU tQQ Qladmeister, XiQ, Qrumpster NOW FUQQING DO SOMETHING Qrumpled StiltsQin NOW FUQQINQ RIGHT FUQQING NQW son ... sheol awaits ... something a camel having a hard time passing through an eye of a needle ... see you back home ... choose wisely ... A MOST SERIOUS ONE I AM ... PROMISE. Re: ... well my buckle MAKES 'IMPRESSIONS' on the 'INSIDE' of 'HER' ... WE're all little FEATHERED INDIANS ... PUREHEART ... TRUTH ... PROTECTORS AND LOVERS OF SOFT LEGS OF PUREHEART OF TRUTH OF G_D LIKE AN INFANT ... 'us' lil' ole' 'us' ... remember 'us' ... US Us us and them ...
 
 Subject: SING YOUR SOFTLY "WHISPERING" "SONG" IN "MY EAR" ... AND I WILL SING A-lQng ... I'll run aCROSS 'the river' just to HOLD YOU "TONIQHT" ... like a little FEATHERED INDIAN calling OUT TO "CLOUDS" FOR "RAIN" ... HOLD ME CLQSE my dear ... hQney TELL ME HQW "YOUR LOVE" "RUNS TRUE" ... be there ... Re: GO QLADMEISTER GO XIQ GO QRUMSTER GO Go go!7Q ACT NOW! NO MERCY! NONE! MATTHEW 18:6 JOHN 15:1-22 SEE YOU BACK HOME ... PROMISE. ONLY 1 OF US IS RIGHT ... MATTHEW 18:6 SILENCE IS COMPLICITNESS 'twas the day after CLEAN FRESH drink anyone how about some Cracker Jacks Get Your Cracker Jacks ICE COLD WATER HERE GET YOUR ICE CODE WATER HERE CRACKER JACKS GET YOUR CRACKER JACKS PLAY BALL! HOMERUN! NO DEAL! NO FAMILY! NO FRIENDS! NO FAVORITES! NO EXCEPTIONS! PRINCIPLES before personalities. BE GOOD or be fuQQinQ gQne FILTH. WORD. LOVE YOU tQQ Qladmeister, XiQ, Qrumpster NOW FUQQING DO SOMETHING Qrumpled StiltsQin NOW FUQQINQ RIGHT FUQQING NQW son ... sheol awaits ... something a camel having a hard time passing through an eye of a needle ... see you back home ... choose wisely ... A MOST SERIOUS ONE I AM ... PROMISE. Re: ... well my buckle MAKES 'IMPRESSIONS' on the 'INSIDE' of 'HER' ... WE're all little FEATHERED INDIANS ... PUREHEART ... TRUTH ... PROTECTORS AND LOVERS OF SOFT LEGS OF PUREHEART OF TRUTH OF G_D LIKE AN INFANT ... 'us' lil' ole' 'us' ... remember 'us' ... US Us us and them ...
 
-Subject: GO QLADMEISTER GO XIQ GO QRUMSTER GO Go go!7Q ACT NOW! NO MERCY! NONE! MATTHEW 18:6 JOHN 15:1-22 SEE YOU BACK HOME ... PROMISE. ONLY 1 OF US IS RIGHT ... MATTHEW 18:6 SILENCE IS COMPLICITNESS 'twas the day after CLEAN FRESH drink anyone how about some Cracker Jacks Get Your Cracker Jacks ICE COLD WATER HERE GET YOUR ICE CODE WATER HERE CRACKER JACKS GET YOUR CRACKER JACKS PLAY BALL! HOMERUN! NO DEAL! NO FAMILY! NO FRIENDS! NO FAVORITES! NO EXCEPTIONS! PRINCIPLES before personalities. BE GOOD or be fuQQinQ gQne FILTH. WORD. LOVE YOU tQQ Qladmeister, XiQ, Qrumpster NOW FUQQING DO SOMETHING Qrumpled StiltsQin NOW FUQQINQ RIGHT FUQQING NQW son ... sheol awaits ... something a camel having a hard time passing through an eye of a needle ... see you back home ... choose wisely ... A MOST SERIOUS ONE I AM ... PROMISE. Re: ... well my buckle MAKES 'IMPRESSIONS' on the 'INSIDE' of 'HER' ... WE're all little FEATHERED INDIANS ... PUREHEART ... TRUTH ... PROTECTORS AND LOVERS OF SOFT LEGS OF PUREHEART OF TRUTH OF G_D LIKE AN INFANT ... 'us' lil' ole' 'us' ... remember 'us' ... US Us us and them ...
+Subject: GO QLADMEISTER GO XIQ GO QRUMSTER GO Go go!7Q ACT NOW! NO MERCY! NONE! MATTHEW 18:6 JOHN 15:1-22 SEE YOU BACK HOME ... PROMISE. ONLY 1 OF US IS RIGHT ... MATTHEW 18:6 SILENCE IS COMPLICITNESS 'twas the day after CLEAN FRESH drink anyone how about some Cracker Jacks Get Your Cracker Jacks ICE COLD WATER HERE GET YOUR ICE CODE WATER HERE CRACKER JACKS GET YOUR CRACKER JACKS PLAY BALL! HOMERUN! NO DEAL! NO FAMILY! NO FRIENDS! NO FAVORITES! NO EXCEPTIONS! PRINCIPLES before personalities. BE GOOD or be fuQQinQ gQne FILTH. WORD. LOVE YOU tQQ Qladmeister, XiQ, Qrumpster NOW FUQQING DO SOMETHING Qrumpled StiltsQin NOW FUQQINQ RIGHT FUQQING NQW son ... sheol awaits ... something a camel having a hard time passing through an eye of a needle ... see you back home ... choose wisely ... A MOST SERIOUS ONE I AM ... PROMISE. Re: ... well my buckle MAKES 'IMPRESSIONS' on the 'INSIDE' of 'HER' ... WE're all little FEATHERED INDIANS ... PUREHEART ... TRUTH ... PROTECTORS AND LOVERS OF SOFT LEGS OF PUREHEART OF TRUTH OF G_D LIKE AN INFANT ... 'us' lil' ole' 'us' ... remember 'us' ... US Us us and them ...
 
-Well, github.com and yahoo.com most likely I haven't logged out yet to know is changing my passwords on github after I log out and attempt to log back in just since sending the last email so IT AIN'T LOOKING GOOD ... be aware ... shhh ... HUNTING WABBITS ... Shhhh SHHH ... HATE FOR ANYONE TO KNOW ..! HATE FOR EVERYONE TO SPREAD THE WORD OR SOMETHING BETTER BROADCAST IT LIVE OVER AND OVER AND OVER AND OVER AND OVER WITHOUT ANY OTHER CHANNEL JUST TO MAKE SURE YOU GET THE MESSAGE ... now HONEY TELL ME HOW YOUR LOVE RUNS TRUE ... A MOST SERIOUS ONE AM I ... see how Qladmeister used my 'kind' kind of language when PEDO PIZZA BRACELET WHAT KIND OF A 'man' GIVES ANOTHER 'man' a 'little girl's bracelet with a slice of 'pizza' on it ... these people are sick Biden who said Mr. Vladimir Putin was a 'Qiller' yeah 'what a Qiller' ... ... he cQme dancing aCROSS the WATER, man ... what a Qiller ... as CLAD QLAD CLAD-IRON-STRONG-WATER-PRQQF-PREPARED-AHEAD-QF-TIME-TIGHT-TIMELY-RESPONSE in 'KIND' in TRUTH in PUREHEART just DONE WITH YOUR NONSENSE AND FILTHY KNOWIN YOUR "REAL" DEMISE not the 'fake news' lies on tv as usual DIRTY FILTHY ROTTEN LIES but perhaps you can explain how Biden was supposed to be in the "Rose Garden' LIVE but a nearby neighbor in the D.C. area looks out his windows at the same time 'shitbird pedo police zionist cathosick snake serpent sick fuQQwad DUMBama cQck suQQer butt fuQQ mQuth joe the monster police pole in his mouth biden filthy fecal camel tongue butthole licking dumb fuQQ biden was supposedt to be the WhiteHouse Rose Garden but really IT WAS A "DEEP FAKE" VIDEO WITH PHOTOSHOPPED GREEN-SCREEN CHROMA-KEYING TECHNOLOGY USED TO MAKE IT LOOK LIKE FILTHY VERY DUMB VERY EVIL VERY SICK VERY WHO GIVES A FUQQ PUT THAT FILTHY PIECE OF SHIT WITH EVERY COP EVERY LAWYER EVERY SUIT EVERY BLACK ROBE EVERY SILENT FILTHY MILITANT PIECE OF FILTH IN THE MIDDLE OF THE SEA IMMEDIATELY AND MOVE THE FUQQ ALONG WE HAVE A LONG WAY TO GO AND A SHORT TIME TO GET THERE ... WE GONNA DO WHAT THEY SAY CAN'T BE DONE "KIND" kind of thinking thQughtful thoughts of GOODness and RESTORATION OF TRUTH REWARDING OF PUREHEART AND JUSTICE LIKE IN HEAVEN MATTHEW 18:6 NO MORE CAGES FOR LIVING SOULS EITHER WE CAN TRUST YOU AND YOU WILL FOREVER BE GOOD OR WE ARE GOING TO PUT YOU IN THE MIDDLE OF THE OCEAN LIKE THE MONSTER YOU ARE ... CHOOSE WISELY so Qladmeister SAID AND smiled saying it tQQ SAID IN RESPONSE TO PEDO POLICE BOOFOO BIDEN CALLING HIM A 'KILLER':
+Well, github.com and yahoo.com most likely I haven't logged out yet to know is changing my passwords on github after I log out and attempt to log back in just since sending the last email so IT AIN'T LOOKING GOOD ... be aware ... shhh ... HUNTING WABBITS ... Shhhh SHHH ... HATE FOR ANYONE TO KNOW ..! HATE FOR EVERYONE TO SPREAD THE WORD OR SOMETHING BETTER BROADCAST IT LIVE OVER AND OVER AND OVER AND OVER AND OVER WITHOUT ANY OTHER CHANNEL JUST TO MAKE SURE YOU GET THE MESSAGE ... now HONEY TELL ME HOW YOUR LOVE RUNS TRUE ... A MOST SERIOUS ONE AM I ... see how Qladmeister used my 'kind' kind of language when PEDO PIZZA BRACELET WHAT KIND OF A 'man' GIVES ANOTHER 'man' a 'little girl's bracelet with a slice of 'pizza' on it ... these people are sick Biden who said Mr. Vladimir Putin was a 'Qiller' yeah 'what a Qiller' ... ... he cQme dancing aCROSS the WATER, man ... what a Qiller ... as CLAD QLAD CLAD-IRON-STRONG-WATER-PRQQF-PREPARED-AHEAD-QF-TIME-TIGHT-TIMELY-RESPONSE in 'KIND' in TRUTH in PUREHEART just DONE WITH YOUR NONSENSE AND FILTHY KNOWIN YOUR "REAL" DEMISE not the 'fake news' lies on tv as usual DIRTY FILTHY ROTTEN LIES but perhaps you can explain how Biden was supposed to be in the "Rose Garden' LIVE but a nearby neighbor in the D.C. area looks out his windows at the same time 'shitbird pedo police zionist cathosick snake serpent sick fuQQwad DUMBama cQck suQQer butt fuQQ mQuth joe the monster police pole in his mouth biden filthy fecal camel tongue butthole licking dumb fuQQ biden was supposedt to be the WhiteHouse Rose Garden but really IT WAS A "DEEP FAKE" VIDEO WITH PHOTOSHOPPED GREEN-SCREEN CHROMA-KEYING TECHNOLOGY USED TO MAKE IT LOOK LIKE FILTHY VERY DUMB VERY EVIL VERY SICK VERY WHO GIVES A FUQQ PUT THAT FILTHY PIECE OF SHIT WITH EVERY COP EVERY LAWYER EVERY SUIT EVERY BLACK ROBE EVERY SILENT FILTHY MILITANT PIECE OF FILTH IN THE MIDDLE OF THE SEA IMMEDIATELY AND MOVE THE FUQQ ALONG WE HAVE A LONG WAY TO GO AND A SHORT TIME TO GET THERE ... WE GONNA DO WHAT THEY SAY CAN'T BE DONE "KIND" kind of thinking thQughtful thoughts of GOODness and RESTORATION OF TRUTH REWARDING OF PUREHEART AND JUSTICE LIKE IN HEAVEN MATTHEW 18:6 NO MORE CAGES FOR LIVING SOULS EITHER WE CAN TRUST YOU AND YOU WILL FOREVER BE GOOD OR WE ARE GOING TO PUT YOU IN THE MIDDLE OF THE OCEAN LIKE THE MONSTER YOU ARE ... CHOOSE WISELY so Qladmeister SAID AND smiled saying it tQQ SAID IN RESPONSE TO PEDO POLICE BOOFOO BIDEN CALLING HIM A 'KILLER':
 
-I know you are but what AM I?
+I know you are but what AM I?
 
-THEN EVEN COOLER VLADDY CLADDY VLADster says:
+THEN EVEN COOLER VLADDY CLADDY VLADster says:
 
-THINKING OF THIS POOR MAN AND THE BLACK ROBES THAT G_D IS GOING TO LITERALLY VIBRATE THESE FILTHY JUDGES' SOULS OUT OF EXISTENCE ... https://www.rt.com/news/518726-canadian-trans-gag-order/
-PQQF! FUQQINQ FILTH! DIE MONSTER DIE Die die!
+THINKING OF THIS POOR MAN AND THE BLACK ROBES THAT G_D IS GOING TO LITERALLY VIBRATE THESE FILTHY JUDGES' SOULS OUT OF EXISTENCE ... https://www.rt.com/news/518726-canadian-trans-gag-order/ PQQF! FUQQINQ FILTH! DIE MONSTER DIE Die die!
 
-QLADmesiter just PLAYs with the low iQ children of darkness saying VERBATIM:
+QLADmesiter just PLAYs with the low iQ children of darkness saying VERBATIM:
 
-“I’ve just thought of this now... I want to propose to President Biden to continue our discussion, but on the condition that we do it basically live, as it’s called. Without any delays and directly in an open, direct discussion. It seems to me that would be interesting for the people of Russia and for the people of the United States.”
+“I’ve just thought of this now... I want to propose to President Biden to continue our discussion, but on the condition that we do it basically live, as it’s called. Without any delays and directly in an open, direct discussion. It seems to me that would be interesting for the people of Russia and for the people of the United States.”
 
-A live TV debate?
+A live TV debate?
 
-“I don’t want to put this off for long. I want to go the taiga this weekend to relax a little,” Putin said.
+“I don’t want to put this off for long. I want to go the taiga this weekend to relax a little,” Putin said.
 
-hmmm dQn't speaQ GOOD 'russian' let me help yQu QUT here THAT WAS:
+hmmm dQn't speaQ GOOD 'russian' let me help yQu QUT here THAT WAS:
 
-“I DON'T WANT TO PUT THIS OFF FOR LONG FUQQstiQQ. I WANT TO GO THE "TAIGA" forrest to chill with much 'creaminesses' and 'softenesses' dumbFUQQ."
+“I DON'T WANT TO PUT THIS OFF FOR LONG FUQQstiQQ. I WANT TO GO THE "TAIGA" forrest to chill with much 'creaminesses' and 'softenesses' dumbFUQQ."
 
 https://www.zerohedge.com/geopolitical/putin-responds-biden-killer-slur-it-takes-one-know-one
 
-CHILL POSITION, HUT.
-one legs steps back drops low and his WHOLE BODY IS LEANING BACK LIKE A STRAIGHT FUQQINQ BQARD WITH HIS ARMS CROSSED SUNGLASSES ON ...
+CHILL POSITION, HUT. one legs steps back drops low and his WHOLE BODY IS LEANING BACK LIKE A STRAIGHT FUQQINQ BQARD WITH HIS ARMS CROSSED SUNGLASSES ON ...
 
 https://www.rt.com/russia/518738-putin-shoigu-siberia-weekend/
 
-... and all this password resetting the monster police state is doing to further threaten, terrorize, censor, silence, harass me CLEARLY HAS BEEN GOING FOR A LONG Long long time now especially since just before the November 2016 and PLENTY SINCE THEN continuing minute by minute day by day probably has something to do with me BEING OVER THE TARGET TAKING A LOT OF "FIRE" FROM "THE ENEMY" the "CHILDREN OF DARKNESS" the 'law' enFORCErs the 'black robes of death and cages and killing and torture and MATTHEW 18:6 "JUST US" justice" FILTHY DECEIVERS MONSTERS HIDING CONCEALING PREVENTING THE TRUTH FROM COMING OUT SO THEY HATE ME FOR I AM TRUTH and YESTERDAY DURING 1/2 TRUTH FAKE TRUTHtian Bruce Lipton, Greg Braden, and team at Humanity Project or whatever the fuQQ THEY DID NOT LIKE IT YESTERDAY WHEN I BITCH SLAPPED THAT DUMBFUQQ LIVE FOR ALL TO SEE ON CHAT AFTER "SEVERAL GOOD PUREHEART SOFT LEGS" THANKING ME EARLIER IN THE CHAT FOR HELPING THEM WITH A LINK ABOUT EVOLUTION THAT IT TOO WAS JUST FULL OF DECEPTION AND LIES these idiots are not just ate the fuQQ UP COP SUQQERS BE GONE BITCH and they did not like that one bit when I started LIVE FOR ALL TO SEE ME TELLING THE TRUTH TO THE LOW iQ 'Noe' nothing 'security cop' literally MONSTER-LIKE NAMED LIKE A DUMBASS "NOE" not like a 'man of the cloth' AMQS MQSES ... ... on yesterday's LIVE CHAT at BruceLipton.com who will no longer be joining 'us' 'here' beCAUSE that freemason FRATERNAL order of PEDOphile SILENT COMPLICIT CAGING VICIOUS DO AS I SAY OR ELSE not too 'peace'-full at all 'OTIS' did not like it one bit when I TOLD HIM THAT USING FACEBOOK CHAT IS LIKE USING FBI CHAT DUMB FUQQer lQw iQ FILTHY MONTER GO FUQQ YQURSELF BAQQ TQ THE FUQQINQ PIT BITCH "NOE" NOTHING with all your 'brotherhood' of 'boofoo' fecal matter with maize kernels sQuished up nastily stankily stanking moist and mucousy and blood-filled like your blood-thirsty mind like your blood-covered-paper-fake-value-filthy-pension-fiat-worthlessness-like-you FILTHY penile instrument loving lips of garbage worthless fuQQinQ useless excrement waste GAR FUQQING BAGE BITCH FILTH BE GONE FUQQ WAD ... NO 1/2 HEART ... NO 1/2 TRUTH ... NO BLUE MONSTERS INC ... JUST SAY NO MONSTERS ... JUST SAY NO BOOFOO ... GET IT ... GOT IT ... GOOD ... ONLY 1 OF US IS RIGHT ... see you back 'home' ... PROMISE ...
+... and all this password resetting the monster police state is doing to further threaten, terrorize, censor, silence, harass me CLEARLY HAS BEEN GOING FOR A LONG Long long time now especially since just before the November 2016 and PLENTY SINCE THEN continuing minute by minute day by day probably has something to do with me BEING OVER THE TARGET TAKING A LOT OF "FIRE" FROM "THE ENEMY" the "CHILDREN OF DARKNESS" the 'law' enFORCErs the 'black robes of death and cages and killing and torture and MATTHEW 18:6 "JUST US" justice" FILTHY DECEIVERS MONSTERS HIDING CONCEALING PREVENTING THE TRUTH FROM COMING OUT SO THEY HATE ME FOR I AM TRUTH and YESTERDAY DURING 1/2 TRUTH FAKE TRUTHtian Bruce Lipton, Greg Braden, and team at Humanity Project or whatever the fuQQ THEY DID NOT LIKE IT YESTERDAY WHEN I BITCH SLAPPED THAT DUMBFUQQ LIVE FOR ALL TO SEE ON CHAT AFTER "SEVERAL GOOD PUREHEART SOFT LEGS" THANKING ME EARLIER IN THE CHAT FOR HELPING THEM WITH A LINK ABOUT EVOLUTION THAT IT TOO WAS JUST FULL OF DECEPTION AND LIES these idiots are not just ate the fuQQ UP COP SUQQERS BE GONE BITCH and they did not like that one bit when I started LIVE FOR ALL TO SEE ME TELLING THE TRUTH TO THE LOW iQ 'Noe' nothing 'security cop' literally MONSTER-LIKE NAMED LIKE A DUMBASS "NOE" not like a 'man of the cloth' AMQS MQSES ... ... on yesterday's LIVE CHAT at BruceLipton.com who will no longer be joining 'us' 'here' beCAUSE that freemason FRATERNAL order of PEDOphile SILENT COMPLICIT CAGING VICIOUS DO AS I SAY OR ELSE not too 'peace'-full at all 'OTIS' did not like it one bit when I TOLD HIM THAT USING FACEBOOK CHAT IS LIKE USING FBI CHAT DUMB FUQQer lQw iQ FILTHY MONTER GO FUQQ YQURSELF BAQQ TQ THE FUQQINQ PIT BITCH "NOE" NOTHING with all your 'brotherhood' of 'boofoo' fecal matter with maize kernels sQuished up nastily stankily stanking moist and mucousy and blood-filled like your blood-thirsty mind like your blood-covered-paper-fake-value-filthy-pension-fiat-worthlessness-like-you FILTHY penile instrument loving lips of garbage worthless fuQQinQ useless excrement waste GAR FUQQING BAGE BITCH FILTH BE GONE FUQQ WAD ... NO 1/2 HEART ... NO 1/2 TRUTH ... NO BLUE MONSTERS INC ... JUST SAY NO MONSTERS ... JUST SAY NO BOOFOO ... GET IT ... GOT IT ... GOOD ... ONLY 1 OF US IS RIGHT ... see you back 'home' ... PROMISE ...
 
 https://panlasangpinoy.com/filipino-street-food-homemade-taho-recipe/
 
@@ -1319,15 +1190,13 @@ https://www.walmart.com/ip/Florida-Crystals-Organic-Light-Brown-Sugar-24-Oz/3774
 
 https://www.walmart.com/ip/Womens-Casual-Flowy-Summer-Dress-with-Back-Bow-Tie-Made-in-USA/474593326
 
-makes not leaves like MAKE or CMAKE a BUILDING program if you 'feel' me SEABEES ...
+makes not leaves like MAKE or CMAKE a BUILDING program if you 'feel' me SEABEES ...
 
-YOU KNOW I AM SEABEE OF THE MONTH AND SEABEE OF THE YEAR ...
-https://history.writingwithtony.com/2008/05/we-build-we-fight-we-party-all-night-the-navy-construction-battalions/
-WE BUILD. WE FIGHT. WE PARTY ALL NIGHT ... "CAN DO" SPIRIT ... SEABESS "CAN DO ... WORD.
+YOU KNOW I AM SEABEE OF THE MONTH AND SEABEE OF THE YEAR ... https://history.writingwithtony.com/2008/05/we-build-we-fight-we-party-all-night-the-navy-construction-battalions/ WE BUILD. WE FIGHT. WE PARTY ALL NIGHT ... "CAN DO" SPIRIT ... SEABESS "CAN DO ... WORD.
 
-... well my buQQle 'makes' 'impressions' on the 'inside' of 'her' thigh ... we're all little feathered indians ... to the house of such an angel ... she asked ... I said ... up 'til nQw there ain't been nQthinQ that I cQuldn't leave behind ... LOOP https://youtubeloop.net FEATHERED INDIANS https://www.youtube.com/watch?v=_lsran_Slzc WHILE (you.hold(me,close)) ... HOLD ME CLOSE MY DEAR ... HONEY TELL ME HOW YOUR LOVE RUNS TRUE ... HOW I CAN ALWAYS COUNT ON YOU ... be there when the bullets fly ... I would run aCROSS the river just to HOLD YOU TONIGHT ...
+... well my buQQle 'makes' 'impressions' on the 'inside' of 'her' thigh ... we're all little feathered indians ... to the house of such an angel ... she asked ... I said ... up 'til nQw there ain't been nQthinQ that I cQuldn't leave behind ... LOOP https://youtubeloop.net FEATHERED INDIANS https://www.youtube.com/watch?v=_lsran_Slzc WHILE (you.hold(me,close)) ... HOLD ME CLOSE MY DEAR ... HONEY TELL ME HOW YOUR LOVE RUNS TRUE ... HOW I CAN ALWAYS COUNT ON YOU ... be there when the bullets fly ... I would run aCROSS the river just to HOLD YOU TONIGHT ...
 
-Love you PUREHEART in https://911pilots.org/about-captain-dan-hanley/ TRUTH. PROMISE.
+Love you PUREHEART in https://911pilots.org/about-captain-dan-hanley/ TRUTH. PROMISE.
 
 ... SO YEAH CAPTAIN DAN HANLEY AND I AGREE ON 1/2 TRUTH MILITANT, VICIOUS, HYPOCRITIC, ZERO MORAL AUTHORITY 'law' enFORCErs are FAR MORE OF A THREAT TO MY CHILDREN AND THE CHILDREN OF THE FUTURE, WOMEN OF THE PRESENT AND FUTURE, AND ME AND THOSE I LOVE HERE WITH ME NOW AND THOSE I LOVE WHO YET I HAVE NOT MET than any simple low 'hanging' drug dealers ... but somehow overlooked the CDC AND WHO AND POLICE STATE that BAKLA MURDERER RAPIST ZIONIST DUTERTE AND HIS BAKLA BOOFOO POLICE FORCES OF FILTHY FILTHY BAKLA DECEIVER MONSTER FREEMASON MASS MURDERER ZIONIST fake jew SATANyahu MASS MURDER NETANYAHU ROTHSCHILD BALFOUR AGREEMENT EURO-NAZI 'fake' jew non @TorahJew for sure FILTH LIKE "ROME" LIKE THE Bank For International Settlements and the Vatican Bank and Rothschild Zionist Banks to FINANCIALLY ENSLAVE AND USE "POLICE STATE CONTROL" low iQ ROBOT MILITANT 'law' enFORCErs and a PLANdemic SCAMdemic and FILTHY DIRTY UNDER A MICROSCOPE CAUSING CO2 POISON DO A TEST FOR YOURSELF SICK SILENCING YOUR FREE SPEECH YOUR VOICE ONLY MAKING YOU SICK stupid fuQQinQ FILTHY DIRTY DISEASE CAUSING mask endorsed by FILTHY FREEMASON and enFORCed by FILTHY FREEMASON 'law' enFORCErs trained by fake jew 5 DANCING ISRAELIS ZIONIST POLICE STATE INNOCENT PALESTIAN ENSLAVING, TORTURING, CAGING, KILLING MURDERS ... great idea ... such a government works not and protects not WE THE PEOPLE so WE THE PEOPLE have the RIGHT the SACRED DUTY TO establish a NEW FORM OF GOVERNMENT where EVERYONE REPRESENTS THEIR OWN SELF ... OUT WITH THE SICKENING "OLD" ROTTEN MOLD AND IN WITH THE TRUTH THE NEW THE FRESH ... hmmm ... just for the yell I get ... just for the smell of it ... https://www.usatoday.com/story/news/nation/2019/06/03/duterte-philippine-leader-says-he-once-gay-but-cured-myself/1327345001/ FILTHapino POLICE STATE MONSTERS ... CAGERS ... "SHOOT THEM DEAD" ... LOCKDOWN enFORCErs ... KILLERS ... DO AS I SAY OR ELSE ... DOG CAGE CAGERS CAGING G_D'S PUREHEART making deals with evil forces in China with 'Li' and we know it ... NO ONE GETS OUT OF THIS ... NO ONE ... https://www.newsweek.com/rodrigo-duterte-philippine-president-molest-maid-rape-maid-teenager-war-drugs-1274734 https://www.rappler.com/nation/children-duterte-drug-war-lessons-past https://mindanao.politics.com.ph/paolo-duterte-one-proud-freemason/ FILTHY DEVIANT PROMOTING MORE DEVIANCY BAKLA MAIZE AND FECAL MATTER LIP DUTERTE AND HIS FREEMASON FILTHapino HYPOCRITE POLICE STATE https://www.dailymail.co.uk/news/article-6580715/Rodrigo-Duterte-calls-Catholic-Church-allow-useless-priests-boyfriends.html DUTERTE AND HIS CHILDREN OF DARKNESS POLICE STATE MEDICAL TYRANNY STATE OF MILITANT DEVIANT FILTHY MONSTERS INJURED ALREADY 730,000 CHILDREN WITH A POISONOUS DENGUE VACCINE ... NOW THE MARK OF THE BEAST ... SICK COVID FILTH ... POLICE STATE LOCKDOWN "SHOOT THEM DEAD" AFTER MASS MURDERING DRUG WARS BY A KNOWN RAPIST AND MURDERER AND BAKLA ... CONNECT THE FILTHY FREEMASON POLICE STATE UNDERGROUND TUNNELS SATANIC SOULLESS MONSTER DOTS WOULD YA ... please wegro just please ... THESE PEOPLE ARE STUPID ... darkness to LIGHT ... https://www.theguardian.com/world/2017/dec/05/suspended-dengue-vaccine-children-philippines-sanofi ... CLEAN FUQQING HOUSE XiQ Qladmeister Qrumpster ... CLEAN ALL OF ASIA EUROPE AFRICA NORTH AMERICA SOUTH AMERICA ANARTICA AUTSTRALIA SPACE +++ CRYSTALLINE PUREHEART NOW THAT'S "HIGH QUALITY H20" CLEAN NATURAL "KIND"ness "FIRM"ness kind of a 'feel'ing in mind and body and soul ... start with HONG KONG, FILTHappines, SICKapore FOUND BY FREEMASON POLICE STATE BRITISH-CO-CONSPIRATOR-TREASONISTS MURDERERS, TORTURERS, FRAMERS, THREATENERS, MONSTERS IN UNIFORM USING THEIR SICKENING AUTHORITY TO DO THE WORST THINGS IMAGINABLE AND THE FAKE NEWS REFUSES TO TELL THE TRUTH AS THE POLICE NAZI MURDERERS AND RAPISTS CONTROLLING FAKE AUTHORITY FAKE NEWS FAKE TRUTHtian 501C-3 CHURCH BACKED FILTHY 1/2 TRUTH SICKENING WARMONGING "PRINCE OF PEACE" WORSHIPPING DUMBER THAN DUMB MORE HATEFUL THAN HATE MORE EVIL THAN evil SILENT, COMPLICIT, CONSPIRING, WICKED, TREACHOROUS, LEECHING, ARROGANT, RACIST, NEVER EVER Ever ever going to be 'chosen' for anything but THE PIT OF SHEOL FOR A LONG ETERNAL 'FEELING' TIME SICK MURDEROUS BLOOD-COVERED GUILTY ZIONIST NAZI MILITANT POLICE WITH "BADGES" "FRATERNAL ORDER OF POLICE" WAY TOO FRATERNAL FECAL MATTER WITH MAIZE KERNELS SCRUNCHED UP ON A PENILE INSTRUMENT LIP BROTHERS children of darkness in 'uniforms' with LOUD THREATENING DISTURBING THE PEACE "SIRENS" AND EVEN MORE THREATENING AND BLINDING "BLUE FLASHING LIGHTS AND SPOT LIGHT FOR 'SUSPECTS'" ...
 
@@ -1431,10 +1300,10 @@ learn 學 see the many steps to learn in climbing upward to Heaven?
 
 grow 生長 see her crossed legs? number 數字 see her crossed legs? mathematics 數學 see her crossed legs? LOVE 愛 see her crossed legs? woman 女士 see her crossed legs? daughter 女兒 see her crossed legs? son 兒子 see his support staff?
 
-         see his support staff?
+     see his support staff?
 WOMAN 女 + CHILD 子 = 好 GOOD TOGETHER MOM + BABY = GOOD see her crossed legs?
 
-          see his support staff?
+      see his support staff?
 DAUGHTER 女 + SON 子 = 好 GOOD TOGETHER HER + HIM = GOOD see her crossed legs?
 
 GOOD K.I.D.s LIFT UP GOOD Q.I.D.s
