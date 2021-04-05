@@ -12,6 +12,12 @@ TRUTH.
 I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! SAY MY NAME ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH ..! WHO I AM IS ..? TRUTH ..!
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
+No Greater Love
+12 This is my commandment that you love one another as I have loved you.
+13 Greater LOVE has no one than this, that he lay down his life for his friends.
+14 You are my friends ... if you are in TRUTH with most PUREHEART a PROTECTOR AND LOVER OF G_D LIKE AN INFANT MOST ATTENTIVE TO G_D CALLING YOU ... THEN YOU WILL WHOOP HIM.
+
+https://biblehub.com/john/15-13.htm
 
 ONE DAY One Day ... https://www.youtube.com/watch?v=WRmBChQjZPs&list=RDMM ... 1 day ..! PROMISE.
 
