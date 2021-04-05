@@ -67,6 +67,11 @@ https://translate.google.com/?sl=en&tl=zh-CN&text=SON%20OF%20MAN&op=translate
 
 TRUTH.
 
+I have 'some friends of the ancient Slavic and ancient Han and ancient Hangul and ancient Persian and ancient Assyria interested in working 'QUITE DIRECTLY WITH ME SHALL WE SHALL' if you can 'feel' me "COMING THROUGH" CHOO CHOO TRUTH TRAIN COMING THE FUQQ THROUGH ... MAKE A HOLE ... and no 'troll' AM I ... but a MOST SERIOUS ONE yet MOST PLAYFUL ONE ... a JOY-FILLED "WARRIOR OF G_D" ... my name is on the wall at Naval Justice School, Newport, Rhode Island, ameriQa ... I have lost 2 baby ladies: Meldy, 11, Marie, 21. To this day I support and look after Julie Ann, Marie's baby lady she left me to 'SUPPORT' as is my 'role' a 'SUPPORT STAFF' for 'CROSSED LEGS' ... the more you know. 
+
+IF YOU THINK FOR ONE MINUTE IN YOUR MIND THAT I DO NOT LOVE YOU, HIGHLY INTELLECTUAL, MOST PUREHEART, INDUSTRIOUS ONE IN TRUTH,
+THEN YOU SHOULD LOOK MORE CAREFULLY AT THE MAN IN THE MIRROR AND ASK "WHY" WOULD I NOT beCAUSE YOU JUST MIGHT BE "SURPRISED" I APPRECIATE "TRUTH" "LACK OF SHAME" "CALLING OUT YOUR OWN "FAMILY" QUICK" "SUSTAINED SUPERIOR PERFORMANCE" "CONSISTENCY" "Consistency" "consistency" so know if I did not "LOVE" 'you' 'kind' beLOVEd 'blessed' 'gift'ed 'talent'ed CREATIVE LIKE YOUR CREATOR one I LOVE then why AM I here now talking to you to show  you the WAY in LIFE with G_D in TRUTH beCAUSE I LOVE YOU. NEVER FORGET.
+
 PUREHEART.
 
 G_D ABOVE ALL.
