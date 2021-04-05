@@ -7,6 +7,8 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
+I OWE YOU ZERO RESPECT YOU 1/2 TRUTH SILENT COMPLICT enFORCEr AND YOU 'cop' WILL GET LESS THAN THAT ..! PROMISE ..! FILTH ..!
+
 PUT YOUR FAITH IN NO MAN. RIGHT, MIKEY ..? RIGHT. 
 
 THE CHET ATKINS "Certified Guitar Player" LIST ... 
