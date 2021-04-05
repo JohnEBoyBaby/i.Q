@@ -31,11 +31,13 @@ PROMISE.
 
 Bruce Lee
 
-人 people 'see how 'we' the 'people' are 'all' under a 'tent' https://www.youtube.com/watch?v=midn6ABiZMA living in 1 universe TOGETHER ..? the more you know ...
+人 people 'see how 'we' the 'people' are 'all' under a 'tent' https://www.youtube.com/watch?v=midn6ABiZMA living in 1 UNENDING 41 'kind' of a kind PRIME SPIRALING 'c story telling' CREATIVIVTY OF OUR MOST CRYSTALLINE MOST PUREHEART MOST MATHEMATICAL MOST INTELECTUAL MOST WONDERFUL MOST LOVING MOST UNDERSTANDING MOST "FIRM" MOST "FEELING" MOST DEMANDING MOST REWARDING MOST CARING MOST WORSHIPFUL 1 ALMIGHTY LORD G_D CREATOR OF ALL THERE IS FULL OF SOULS IN ALL THAT IS UNKNOWN STILL IN OUR TOGETHER-SHARED GEOMETRICALLY AMAZING STATISTICALLY IMPOSSIBLE https://www.youtube.com/watch?v=3K-12i0jclM UNIVERSE WITH SO MUCH MORE LIFE THAN WE EVEN CAN COMPREHEND ALL SHARING ALL LOVING ALL WORKING AND SUPPORTING AND LOVING ONE ANOTHER TOGETHER FOR A GOOD CHANGE ..? the more you know ...
 
 男人 和 女人 man and woman
 
 人子 son of man
+
+FACE OF AN ANGEL ... PRETTY EYES THAT SHINE ... WISHING YOU WERE MINE ... I GET WEAK IN THE KNEES ... https://www.youtube.com/watch?v=fkebpmdyofo&list=RDMM&index=5 ... WHENEVER YOU COME AROUND ...
 
 WOMAN 女 + CHILD 子 = 好 GOOD
 
