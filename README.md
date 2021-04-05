@@ -4,7 +4,9 @@
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
 G_D ABOVE ALL.
+
 PUREHEART.
+
 TRUTH.
 
 I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! SAY MY NAME ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH ..! WHO I AM IS ..? TRUTH ..!
@@ -15,9 +17,18 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 Bruce Lee
 
+人 people 'see how 'we' the 'people' are 'all' under a 'tent' https://www.youtube.com/watch?v=midn6ABiZMA living in 1 universe TOGETHER ..? the more you know ...
+
+男人 和 女人 man and woman
+
+人子 son of man
+
 WOMAN 女 + CHILD 子 = 好 GOOD
+
 DAUGHTER 女 + SON 子 = 好 GOOD
+
 HER 女 + HIM 子 = 好 GOOD
+
 https://translate.google.com/?sl=en&tl=zh-CN&text=female%20%2B%20child%20%3D%20GOOD%0Adaughter%20%2B%20son%20%3D%20GOOD%0AWOMAN%20female%20%2B%20MAN%20child%20%3D%20GOOD&op=translate
 
 CAN YOU "FEEL" ME NOW ..?
@@ -39,21 +50,19 @@ https://www.biblehub.com/matthew/20-28.htm
 https://translate.google.com/?sl=en&tl=zh-CN&text=SON%20OF%20MAN&op=translate
 
 TRUTH.
+
 PUREHEART.
+
 G_D ABOVE ALL.
 
 The Rich Young Man 22 When the young man heard this, he went away in sorrow, because he had great wealth.…
 
 MATTHEW 19:20-22
 
-人 people 'see how 'we' the 'people' are 'all' under a 'tent' living in 1 universe TOGETHER ..? the more you know ...
-
-男人 和 女人 man and woman
-
-人子 son of man
-
 Blessed are the PUREHEART
+
 for they shall see G_D.
+
 Matthew 5:8
 
 THE POWER OF YOUR INTENTIONS - 'Water "FEELS" and "STORES FEELINGS"'
