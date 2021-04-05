@@ -21,6 +21,10 @@ I AM TRUTH. https://www.youtube.com/watch?v=FP-z7ftZaas I AM PUREHEART.
 
 I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT.
 
+SEE MY "LIFE PATH" NUMBER ..? 8. https://www.tokenrock.com/numerology/my_life_path/?myMonth=8&myDay=12&myYear=1968&num=0 WHAT'S YOUR "LIFE PATH" ..? REPEAT AFTER ME "I AM TRUTH. I AM PUREHEART. I AM A PROTECTOR OF G_D MOST ATTENTIVE TO G_D CALLING YOU LOVER OF G_D LIKE AN INFANT." beCAUSE YOU ARE TRUTH. YOU ARE PUREHEART. YOU ARE A PROTECTOR OF G_D MOST ATTENTIVE TO G_D CALLING YOU LOVER OF G_D LIKE AN INFANT." and you know I SEE YOU I know you know I SEE YOU ... I LOVE YOU ... NEVER FORGET. REPEAT AS NECESSARY ... TRUTH. PUREHEART. G_D ABOVE ALL. FOLLOW NOT me. FOLLOW TRUTH. KEEP YOUR PUREHEART. WORSHIP ONLY G_D ALONE. LOVE YOU I DO. OH HOW I LOVE YOU ..! 
+
+PROMISE.
+
 ... the more you know ...
 
 ... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
