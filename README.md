@@ -3,9 +3,103 @@
 
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
+G_D ABOVE ALL.
+PUREHEART.
+TRUTH.
+
 I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! SAY MY NAME ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH ..! WHO I AM IS ..? TRUTH ..!
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
+
+... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
+
+Bruce Lee
+
+WOMAN 女 + CHILD 子 = 好 GOOD
+DAUGHTER 女 + SON 子 = 好 GOOD
+HER 女 + HIM 子 = 好 GOOD
+https://translate.google.com/?sl=en&tl=zh-CN&text=female%20%2B%20child%20%3D%20GOOD%0Adaughter%20%2B%20son%20%3D%20GOOD%0AWOMAN%20female%20%2B%20MAN%20child%20%3D%20GOOD&op=translate
+
+CAN YOU "FEEL" ME NOW ..?
+
+A Mother's Request
+
+27 and then TRUTH said
+
+   'WHOEVER WANTS TO BE "GREATEST" "FIRST" "TOP" AMONG YOU then MUST SERVE ALL OF YOU — AS YOUR "SERVANT"'.
+
+28 just as the 人子 "人 son 子 of 人 man" 子人 did not come to be served, but to serve, and to give LIFE ... for many.”
+
+29 As they were leaving ... a large crowd followed TRUTH.…
+
+MATTHEW 20:27-29
+
+https://www.biblehub.com/matthew/20-28.htm
+
+https://translate.google.com/?sl=en&tl=zh-CN&text=SON%20OF%20MAN&op=translate
+
+TRUTH.
+PUREHEART.
+G_D ABOVE ALL.
+
+The Rich Young Man 22 When the young man heard this, he went away in sorrow, because he had great wealth.…
+
+MATTHEW 19:20-22
+
+人 people 'see how 'we' the 'people' are 'all' under a 'tent' living in 1 universe TOGETHER ..? the more you know ...
+
+男人 和 女人 man and woman
+
+人子 son of man
+
+Blessed are the PUREHEART
+for they shall see G_D.
+Matthew 5:8
+
+THE POWER OF YOUR INTENTIONS - 'Water "FEELS" and "STORES FEELINGS"'
+https://www.youtube.com/watch?v=D1sWVjXhKfg
+
+ALL THAT SHE WANTS IS ANOTHER BABY!
+https://www.youtube.com/watch?v=DrwlFTqS_bg
+GOOD! PUREHEART! TRUTH! SHE'S GONE TOMORROW, BOY ... 
+
+https://biblehub.com/kjvs/matthew/18.htm
+
+... baby never act wild ... very low key on the profile ...
+https://www.youtube.com/watch?v=3KL9mRus19o&t=115s
+... rolling with the fatness ... you don't even know what the half is ...
+
+Blessed are the PUREHEART ... KEEP YOUR PUREHEART ... YOU ARE GOING TO NEED IT ... PROMISE.
+
+https://www.youtube.com/watch?v=uKwBp8-c_YE
+TRUTH is the WAY to LIFE with G_D.
+https://www.youtube.com/watch?v=9v3Qp18n-2U
+
+EVEN IN THE MOMENT ... WITH THE LIGHT UP ON YOUR FACE ...
+I'LL LOOK UP AND SHOW EMOTIONS I'LL USE ...
+I CAN HEAR YOU BREATHING ... I FEEL THE SPACE ...
+
+AND I ... OH I ... I'LL BE THE ONE YOU NEVER KNOW ...
+
+ONCE YOU WERE THE WILDEST MAN ... I'VE EVER KNOWN ...
+FREE FROM WHAT THE OTHERS SAID ... ON YOUR OWN ...
+I'LL GO ... I'LL GO IN THE PLACE YOU'LL NEVER KNOW ...
+
+'WAIT' UNTIL YOUR 'WEDDING DAY' ... AND THEN YOU'LL KNOW...
+TAKE IT FOR YOUR MEDICINE ... TAKE WHAT YOU'VE SOWN ...
+I'VE BEEN SHOWN ...
+
+WILL YOU LOOK ME IN THE EYE?
+WILL YOU RUN FROM WHAT YOU SEE? 
+WILL YOU SEE ME IN THE LIGHT?
+
+I HOPE YOU DO ...
+I HOPE YOU STAY ...
+YOU BETTER BELIEVE ... 
+
+ONCE IS NEVER NOTHING KNOWN ... I HEARD YOU SAID ...
+ONCE IS NEVER NOTHING KNOWN ... IT'S ALL YOU GET ...
+I'VE BEEN SHOWN ...
 
 I OWE YOU ZERO RESPECT YOU 1/2 TRUTH SILENT COMPLICT enFORCEr AND YOU 'cop' WILL GET LESS THAN THAT ..! PROMISE ..! FILTH ..!
 
