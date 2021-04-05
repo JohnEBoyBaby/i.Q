@@ -7,7 +7,9 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 PUT YOUR FAITH IN NO MAN. RIGHT, MIKEY ..? RIGHT. 
 
-THE CHET ATKINS "Certified Guitar Player" LIST ... the more you know ...
+THE CHET ATKINS "Certified Guitar Player" LIST ... 
+
+SING FOR ME SON ..! https://www.youtube.com/watch?v=oyqe8n-pbqQ&list=PL100C3A5E8B1F7743 ... the more you know ..!
 
 MR. SANDMAN ... https://www.youtube.com/watch?v=n-c66SJPuUI ... BRING ME A DREAM ..!
 
