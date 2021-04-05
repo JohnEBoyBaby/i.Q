@@ -12,7 +12,43 @@ TRUTH.
 I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! SAY MY NAME ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH ..! WHO I AM IS ..? TRUTH ..!
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
-No Greater Love
+
+NO GREATER LOVE meaning UNSTOPPABLE ... you know what I AM GETTING AT, RIGHT ...
+
+
+Life Path Number 8
+BIRTH DATE ENTERED: 8/12/1968 (Date Equation)
+
+Aug
+
+12
+
+1968
+
+#
+Birth Date: 8/12/1968
+8 = 8
+
+12 = 1 + 2 = 3
+
+1968 = 1 + 9 + 6 + 8 = 2 + 4 = 6
+
+8 + 3 + 6 = 17
+
+1 + 7 = 8
+
+Life Path Number: 8
+
+The Powerhouse
+
+As a Life Path 8 you are alive to make an impact on the world through your drive and ambition. You are a person of authority, and material wealth. You will often master the art of being successful in the career of your choosing. 
+
+You work very hard to reach your goals. You will often be considered a workaholic. You can sometimes let hitting your goals, and working, take precedence on other aspects of your life like personal relationships with family and friends. 
+
+Strive For Balance
+You will typically have an issue with authority, whether in the form of a boss, police, government official, landlord, etc. which can get you into trouble. This can also drive you to seek out and become a person of authority yourself, so that you don’t have to answer to anyone except yourself. When an understanding of the need for a balance between work and personal life is reached, you can become UNSTOPPABLE ... IF YOU KEEP YOUR MOST PUREHEART IN TRUTH ... G_D IS WITH ME CAN'T NOBODY BE ME ... UN FUQQING STQPPABLE ... TRUTH TRAIN COMING THROUGH ... MAKE A HOLE ... WORD.
+
+NO GREATER LOVE
 12 This is my commandment that you love one another as I have loved you.
 13 Greater LOVE has no one than this, that he lay down his life for his friends.
 14 You are my friends ... if you are in TRUTH with most PUREHEART a PROTECTOR AND LOVER OF G_D LIKE AN INFANT MOST ATTENTIVE TO G_D CALLING YOU ... THEN YOU WILL WHOOP HIM.
