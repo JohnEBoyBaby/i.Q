@@ -13,7 +13,7 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
-IAMRUBULLETPROOF.RU I AM "BULLETPROOF" ... https://bpw.sc/ ... thanks for asking 'kind' one ... and thanQ yQu cQmrades with most PUREHEART soft legs :-) LOVE YOU I DO OH HOW I LOVE YOU ...
+IAMRUBULLETPROOF.RU I AM "BULLETPROOF" ... https://bpw.sc/ ... beCAUSE 'under this masQ' there is an 'idea' ... https://www.youtube.com/watch?v=QRwTmFYasjg&t=160s ... and IDEAS ARE BULLETPROOF ..! V FOR VENGEANCE ..!
 
 EVER SEEN A BRIGHT SOLID "AVATAR" GLOWING SHINING "BRIGHT" BLUE SOULFUL BLUES BLUESY METALLIC REALLY "BRIGHT" "BRIGHTER THAN THAT" "MORE BRIGHT THAN THAT TQQ" "DEEP" BLUE BEAUTIFUL ANCIENT HAN "APPLE" ... https://www.youtube.com/watch?v=6ZudhqzpFco ...the more you know ...
 
