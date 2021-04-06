@@ -9,7 +9,7 @@ QH ... https://www.youtube.com/watch?v=N0_LnvJrLo4&t=54s ... I INTERCEPT YQUR "E
 
 ... never ... https://www.youtube.com/watch?v=ddEUBWwzRA8 ... take your 'eyes' off ...
 
-ONLY "REAL" TRUTHtians wel.com ... FUQQ JZ FAKE ASS TRUTHtian ... https://www.youtube.com/watch?v=Cgoqrgc_0cM&list=RDMM&index=46 ... FILTH in 'my list' ... HOMEY DON'T "PLAY" 'that' ... WORD ... understandeth my 'vibe' bo' ... soft legs ... WORD ... you know we do ... 'WE' the 'thinking' 'non-spirit-cooking' 'kind' kind ... WORD. thank you 'kind' one ... you know how we do We Do WE DO ... WORK HARD ... PLAY HARD ... a most playful yet most serious one AM I ... love you tQQ ... but ... BE GOOD ... or be gone ..! WORD?
+ONLY "REAL" TRUTHtians wel.com ... FUQQ JZ FAKE ASS TRUTHtian ... https://www.youtube.com/watch?v=Cgoqrgc_0cM&list=RDMM&index=46 ... FILTH in 'my list' ... HOMEY DON'T "PLAY" 'that' ... WORD ... understandeth my 'vibe' bo' ... soft legs ... WORD ... you know 'we' 'who' 'need to be brought to heel' 'me' 'the MAYTAG WASHING MACHINE I AM SCRUB ALL DAY AND I SCRUB ALL NIGHT' 'FILTH FILTER' 'kind' kind fuQQ a FILTHY fuQQ ... PRINCIPLES over 'personalities' so onto real TRUTHtian TUPAC bo' fuQQ "Otis' come on soft legs 'we' out I SEE NO CHANGES ... https://www.youtube.com/watch?v=eXvBjCO19QY&list=RDMM&index=25 do ... 'WE' the 'thinking' 'non-spirit-cooking' 'kind' kind ... WORD. thank you 'kind' one ... you know how we do We Do WE DO ... WORK HARD ... PLAY HARD ... a most playful yet most serious one AM I ... love you tQQ ... but ... BE GOOD ... or be gone ..! WORD?
 
 ... ESWORD ..! https://www.esv.org/John+15/ ... named 'him' after a man of the cloth ... https://www.youtube.com/watch?v=VkNeoTcGwrc&list=RDMM&index=1 ... called him amQs mQses ...
  ... JOHN 15:1-22. WORD.
