@@ -37,6 +37,20 @@ IAMRUBULLETPROOF.RU I AM "BULLETPROOF" ... https://bpw.sc/ ... beCAUSE 'under th
 
 人子 son of man
 
+GOOD K.I.D.s LIFT UP GOOD Q.I.D.s
+
+GOOD Knights In Development LIFT UP GOOD Queens In Development
+
+... RIGHT on time ... https://www.youtube.com/watch?v=segxTedNBrQ ... everybody be RIGHT on time ..!
+
+CHECK OUT my LIFEPATH number 8 ... https://www.tokenrock.com/numerology/my_life_path/?myMonth=8&myDay=12&myYear=1968&num=0 ... cool ... what is your LIFEPATH ..?
+
+Blessed are the PUREHEART for they shall see G_D. Matthew 5:8 https://biblehub.com/matthew/5-8.htm
+
+"Your 'gift' little drummer boy given out of the simple desperation of a PURE LOVE is the one favored above all." https://www.youtube.com/watch?v=HRbTrensuiY hmmm ... LITTLE DRUMMER BQY - THE GIFT QF LOVE 1968 ... RIGHT ON TIME ..!
+
+TIMING IS EVERYTHING.
+
 ... I AM trying to help you learn to 'see' as I 'see' somehow ... by telling you the TRUTH of what is happening in as fast and real-time as I discover so shall you discover ... Do you believe in coincidences ..? HOW IS IT THAT MY "ADVISOR" MY "GUARDIAN ANGEL" way back in 1990 who told me after I only knew Lani for 8 days back then that 'he' 'knew' 'she' LOVEd 'me' beCAUSE 'he' 'could tell from the LOOK in her eyes' "HORACE" "JOHN HORACE CALLAHAN" "JohnnyBoy" told 'me' "JohnEBoy" baby WAY BACK IN THE DAY ... https://www.doximity.com/pub/john-callahan-pa "GUARDIAN ANGEL" "HORACE" "HORUS" POW! BANG! BOOM! "HOLY" SQFT HAIRY PUSSY QATBALLS QATWQMAN THAT'S IT "THESE ARE THE 2 DOTS TO BE CONNECTED" "CONNECT THE DOTS" "HORACE" "HORUS" son of "OSIRUS" "HORACE mentioned his 'father' telling me 'my father' told 'me' if you have enough money for a car payment then 'my father' said it was okay for 'you' to get married 'son' ... AND TAKING "HORACE"'s "HORUS"'s advice 31 YEARS LATER Lani's softer than soft legs with still trying hard taking care of lil' baby ladies and lil' gentle baby men all these years making so very little money CARING FOR THE MOST PRIZED POSSESSION OF ALL OF THESE FAMILIES FOR SO LITTLE SO GOOD SO FAITHFULLY is still with me on that 'GOOD ADVICE' from 'HORACE' 'HORUS' and his 'father' and surely most PUREHEART LOVING 'mother' ... https://en.wikipedia.org/wiki/Horus https://en.wikipedia.org/wiki/Osiris https://en.wikipedia.org/wiki/Isis ... CONNECT THE DOTS to why the 'children of darkness' called the 'fake enemy' 'ISIS' beCAUSE:
 
 WOE to the CITY OF "DAVID".
