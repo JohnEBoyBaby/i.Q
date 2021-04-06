@@ -13,7 +13,7 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
-NO GREATER LOVE meaning UNSTOPPABLE ... you know what I AM GETTING AT, RIGHT ...
+NO GREATER LOVE meaning UNSTOPPABLE ... you know what I AM GETTING AT, RIGHT ... https://www.youtube.com/watch?v=iSWHZBrbzLo ... EYWA HAS HEARD YOU ..!
 
 THE SKY PEOPLE HAVE SENT US A MESSAGE ... THAT THEY CAN TAKE WHATEVER THEY WANT ... THAT NO ONE CAN STOP THEM ... WE WILL SEND THEM A MESSAGE ... TELL THE OTHER KLANS TO COME ... FLY NOW ... WITH ME ... MY BROTHERS ... SISTERS ... AND WE WILL SHOW THE SKY PEOPLE ... THAT THEY CANNOT TAKE WHATEVER THEY WANT ... AND THAT THIS ... THIS IS OUR LAND ..! I SHOOK UP THE WORLD! I Shook Up The World! The World Is Watching! I shook up the world! The World Is About To CHANGE. PROMISE. KEEP YOUR PUREHEART. PRAY. LOVE. LAUGH. TRUST G_D. TRUST YOURSELF. DO NOT JUST "BELIEVE" KNOW "KIND" DEEP IN YOUR HEART IN YOUR MIND IN YOUR SOUL JUST KNOW 100% KNOW WITH ZERO DOUBT KNOW ENTERTAIN NO DOUBT G_D IS WITH US GOOD IS COMING! LOVE YOU TOO! NEVER FORGET! RIDE WE WILL SEND "THEM" A MESSAGE ..! https://www.youtube.com/watch?v=zamIxgfwtaI THE RETURN OF "TORUK MAKTO" https://www.youtube.com/watch?v=fUoG7ilSSlA https://www.youtube.com/results?search_query=avatar+jake+speech+return+of+naVi+makto https://www.youtube.com/watch?v=gWaSDcER_oQ
 
