@@ -15,7 +15,7 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 IAMRUBULLETPROOF.RU I AM "BULLETPROOF" ... https://bpw.sc/ ... beCAUSE 'under this masQ' there is an 'idea' ... https://www.youtube.com/watch?v=QRwTmFYasjg&t=160s ... and IDEAS ARE BULLETPROOF ..! 
 
-"I SHALL BECOME MORE POWERFUL THAN YOU CAN POSSIBLY IMAGINE." https://www.youtube.com/watch?v=mzZOiLoz2E8 V FOR VENGEANCE ..! https://www.youtube.com/watch?v=fknJq-i7Zug ANTS MARCHING ..! https://www.youtube.com/watch?v=MNgJBIx-hK8 ... LIGHTS DOWN YOU UP AND DIE ..!
+"I SHALL BECOME MORE POWERFUL THAN YOU CAN POSSIBLY IMAGINE." https://www.youtube.com/watch?v=mzZOiLoz2E8 TRUTH is the WAY to LIFE to G_D. https://www.youtube.com/watch?v=8Vcbkmc6538 "MR. KLECK OUGHT REMEMBER MATTHEW 15:8-10" AND TO NOT WORSHIP "TRUTH" WORSHIP G_D ALONE BUT LOVE JONATHAN I DO I ASSURE YOU ... AS I LOVE RAP THE NEWS AND SO MANY MORE FOR TRYING TO EXPRESS THEIR BELIEFS THEIR OWN SHAME THEIR OWN PRINCIPLES ... TRUTH VIA HARD TO THE POINT HIT ME WITH WHAT YOU GOT STRAIGHT TALK ... https://www.youtube.com/watch?v=6Js5RodjX8k ... "HAVE YOU BEEN REAL WITH YOURSELF ..?" ...V FOR VENGEANCE ..! TRUTH is the WAY to LIFE with G_D ... https://www.youtube.com/watch?v=fknJq-i7Zug ANTS MARCHING ..! https://www.youtube.com/watch?v=MNgJBIx-hK8 ... LIGHTS DOWN YOU UP AND DIE ..!
 
 EVER SEEN A BRIGHT SOLID "AVATAR" GLOWING SHINING "BRIGHT" BLUE SOULFUL BLUES BLUESY METALLIC REALLY "BRIGHT" "BRIGHTER THAN THAT" "MORE BRIGHT THAN THAT TQQ" "DEEP" BLUE BEAUTIFUL ANCIENT HAN "APPLE" ... https://www.youtube.com/watch?v=6ZudhqzpFco ...the more you know ...
 
