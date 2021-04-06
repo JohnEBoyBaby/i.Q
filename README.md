@@ -17,7 +17,7 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 https://www.youtube.com/watch?v=FfhEdF40nhQ&t=1187s
 
-... WE WISH We Wish we wish ... "FLAME" GRAPH ... "BOTTLENECK" PERFORMANCE EVALUATIONS ... SINGLE LINE GRANULARITY OF CODE ... if 'you' wish ... LOVE YOU GOOD son of man ... R.E.S.P.E.C.T. ... I LOVE YOU OH HOW I LOVE YOU ... GOOD K.I.D.s LIFT UP GOOD Q.I.D.s. PROMISE.
+... WE WISH We Wish we wish ... "FLAME" GRAPH ... "BOTTLENECK" PERFORMANCE EVALUATIONS ... SINGLE LINE GRANULARITY OF CODE ... if 'you' wish ... LOVE YOU GOOD son of man ... R.E.S.P.E.C.T. ... THANK YOU Yichun! I sure wish I could speak ancient Han as well as Yichun Zhang @AgentZH can speak 'my language' ... GRATEFUL for you upon who I ride "YICHUN MAKTO" and your eNINGeX NGINX 'motorcycle biker club of 'real' GOOD 'firm' yet ever so 'playful' and 'feeling' GENTLE GIANTS I LOVE ..! I LOVE YOU OH HOW I LOVE YOU ... GOOD K.I.D.s LIFT UP GOOD Q.I.D.s. PROMISE.
 
 NO GREATER LOVE meaning UNSTOPPABLE ... you know what I AM GETTING AT, RIGHT ON TIME ... TIMING IS EVERYTHING ... https://www.youtube.com/watch?v=iSWHZBrbzLo ... EYWA HAS HEARD YOU ..! https://www.youtube.com/watch?v=-u5SiCCmVv0 MY JAKE ..! My Jake ..! https://codeincomplete.com/articles/javascript-racer/ my jake ..! I SEE YOU ..! I See You ..! i c u ..! https://www.youtube.com/watch?v=FfhEdF40nhQ&t=804s and GONE ..!
 
