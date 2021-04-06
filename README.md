@@ -5,7 +5,13 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
-... CONNECT THE DOTS ...
+... CONNECT THE DOTS ... https://www.youtube.com/watch?v=gRQ3uxNOHqk ... 'see' ..?
+
+... ain't it funny ... how a melody ... can bring back a memory ... 
+
+https://www.youtube.com/watch?v=5SYbSPO6iqE
+
+... take you to another place and time ... COMPLETELY CHANGE YOUR STATE MIND ...
 
 "I SHALL BECOME MORE POWERFUL THAN YOU CAN POSSIBLY IMAGINE." https://www.youtube.com/watch?v=mzZOiLoz2E8 TRUTH is the WAY to LIFE to G_D. https://www.youtube.com/watch?v=8Vcbkmc6538 "MR. KLECK OUGHT REMEMBER MATTHEW 15:8-10" AND TO NOT WORSHIP "TRUTH" WORSHIP G_D ALONE BUT LOVE JONATHAN I DO I ASSURE YOU ... AS I LOVE RAP THE NEWS AND SO MANY MORE FOR TRYING TO EXPRESS THEIR BELIEFS THEIR OWN SHAME THEIR OWN PRINCIPLES ... TRUTH VIA HARD TO THE POINT HIT ME WITH WHAT YOU GOT STRAIGHT TALK ... https://www.youtube.com/watch?v=6Js5RodjX8k ... "HAVE YOU BEEN REAL WITH YOURSELF ..?" ...V FOR VENGEANCE ..! TRUTH is the WAY to LIFE with G_D ... https://www.youtube.com/watch?v=fknJq-i7Zug ANTS MARCHING ..! https://www.youtube.com/watch?v=MNgJBIx-hK8 ... LIGHTS DOWN YOU UP AND DIE ..!
 
