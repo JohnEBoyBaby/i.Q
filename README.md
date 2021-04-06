@@ -7,6 +7,8 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 QH ... https://www.youtube.com/watch?v=N0_LnvJrLo4&t=54s ... I INTERCEPT YQUR "EMOTIONAL TENSENESS" ..!
 
+... never ... https://www.youtube.com/watch?v=ddEUBWwzRA8 take your 'eyes' off ...
+
 ONLY "REAL" TRUTHtians wel.com ... thank you 'kind' one ... you know how we do We Do WE DO ... WORK HARD ... PLAY HARD ... a most playful yet most serious one AM I ... love you tQQ ... but ... BE GOOD ... or be gone ..! WORD?
 
 ... ESWORD ..! https://www.esv.org/John+15/ ... named 'him' after a man of the cloth ... https://www.youtube.com/watch?v=VkNeoTcGwrc&list=RDMM&index=1 ... called him amQs mQses ...
