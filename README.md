@@ -15,6 +15,12 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 Bruce Lee
 
+... I said brother if you only knew ... you'd wish that you were in my shoes ... 
+
+https://www.youtube.com/watch?v=g3hBYTkI-sE
+
+... you just keep on using me ... 'til you use me UP ..!
+
 RIGHT ON TIME ... "SUNHINE MOMENT" ..!
 
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
