@@ -5,7 +5,7 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
-... I AM falling for you now ... https://www.youtube.com/watch?v=9gcds0xLgXA ... guess I've known long ago ... I just belong here with you ... just like the rain ... I AM falling for you.
+... I AM falling for you now ... https://www.youtube.com/watch?v=9gcds0xLgXA&t=115s ... guess I've known all along ... I JUST BELONG HERE WITH YOU ... like the rain ... I HAVE FALLEN FOR YOU ... I AM FALLING FOR YOU NOW ... JUST LIKE THE RAIN ..!
 
 ... CONNECT THE DOTS ... https://www.youtube.com/watch?v=gRQ3uxNOHqk ... 'see' ..? I AM TRUTH. I AM PUREHEART. I AM UPSTOPPABLE.
 
