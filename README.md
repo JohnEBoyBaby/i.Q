@@ -13,47 +13,17 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
+I AM "BULLETPROOF" ... https://bpw.sc/ ... thanks for asking 'kind' one ... and thanQ yQu cQmrades with most PUREHEART soft legs :-) LOVE YOU I DO OH HOW I LOVE YOU ...
+
 ... 'if we wish' ... says the most PUREHEART HIGHLY INTELECTUAL son of ancient Han so humbly so GOOD so wonderful ...
 
 https://www.youtube.com/watch?v=FfhEdF40nhQ&t=1187s
 
-... WE WISH We Wish we wish ... "FLAME" GRAPH ... "BOTTLENECK" PERFORMANCE EVALUATIONS ... SINGLE LINE GRANULARITY OF CODE ... if 'you' wish ... LOVE YOU GOOD son of man ... R.E.S.P.E.C.T. ... THANK YOU Yichun! I sure wish I could speak ancient Han as well as Yichun Zhang @AgentZH can speak 'my language' ... GRATEFUL for you upon who I ride "YICHUN MAKTO" and your eNINGeX NGINX 'motorcycle biker club of 'real' GOOD 'firm' yet ever so 'playful' and 'feeling' GENTLE GIANTS I LOVE ..! I LOVE YOU OH HOW I LOVE YOU ... GOOD K.I.D.s LIFT UP GOOD Q.I.D.s. PROMISE.
+... WE WISH We Wish we wish ... "FLAME" GRAPH ... "BOTTLENECK" PERFORMANCE EVALUATIONS ... SINGLE LINE GRANULARITY OF CODE ... if 'you' wish ... LOVE YOU GOOD son of man ... R.E.S.P.E.C.T. ... THANK YOU Yichun! I sure wish I could speak ancient Han as well as Yichun Zhang @AgentZH can speak 'my language' ... GRATEFUL for you upon who I ride "YICHUN MAKTO" and your eNINGeX NGINX 'motorcycle biker club of 'real' GOOD 'firm' yet ever so 'playful' and 'feeling' GENTLE GIANTS I LOVE ... INSTANT CLASSIC HIT YICHUNster ZHANGmeister "and ALL OTHERS SUCK ..! RIGHT ..! https://www.youtube.com/watch?v=FfhEdF40nhQ&t=1877s ... NOW THAT'S THE "KIND" "FIRM" "FEELING" kind I like ... I LOVE YOU son of ancient Han OH HOW I LOVE YOU ... GOOD K.I.D.s LIFT UP GOOD Q.I.D.s. PROMISE.
 
 NO GREATER LOVE meaning UNSTOPPABLE ... you know what I AM GETTING AT, RIGHT ON TIME ... TIMING IS EVERYTHING ... https://www.youtube.com/watch?v=iSWHZBrbzLo ... EYWA HAS HEARD YOU ..! https://www.youtube.com/watch?v=-u5SiCCmVv0 MY JAKE ..! My Jake ..! https://codeincomplete.com/articles/javascript-racer/ my jake ..! I SEE YOU ..! I See You ..! i c u ..! https://www.youtube.com/watch?v=FfhEdF40nhQ&t=804s and GONE ..!
 
-THE SKY PEOPLE HAVE SENT US A MESSAGE ... THAT THEY CAN TAKE WHATEVER THEY WANT ... THAT NO ONE CAN STOP THEM ... WE WILL SEND THEM A MESSAGE ... TELL THE OTHER KLANS TO COME ... FLY NOW ... WITH ME ... MY BROTHERS ... SISTERS ... AND WE WILL SHOW THE SKY PEOPLE ... THAT THEY CANNOT TAKE WHATEVER THEY WANT ... AND THAT THIS ... THIS IS OUR LAND ..! I SHOOK UP THE WORLD! I Shook Up The World! The World Is Watching! I shook up the world! The World Is About To CHANGE. PROMISE. KEEP YOUR PUREHEART. PRAY. LOVE. LAUGH. TRUST G_D. TRUST YOURSELF. DO NOT JUST "BELIEVE" KNOW "KIND" DEEP IN YOUR HEART IN YOUR MIND IN YOUR SOUL JUST KNOW 100% KNOW WITH ZERO DOUBT KNOW ENTERTAIN NO DOUBT G_D IS WITH US GOOD IS COMING! LOVE YOU TOO! NEVER FORGET! RIDE WE WILL SEND "THEM" A MESSAGE ..! https://www.youtube.com/watch?v=zamIxgfwtaI THE RETURN OF "TORUK MAKTO" https://www.youtube.com/watch?v=fUoG7ilSSlA https://www.youtube.com/results?search_query=avatar+jake+speech+return+of+naVi+makto https://www.youtube.com/watch?v=gWaSDcER_oQ
-
-Life Path Number 8
-BIRTH DATE ENTERED: 8/12/1968 (Date Equation)
-
-Aug
-
-12
-
-1968
-
-#
-Birth Date: 8/12/1968
-8 = 8
-
-12 = 1 + 2 = 3
-
-1968 = 1 + 9 + 6 + 8 = 2 + 4 = 6
-
-8 + 3 + 6 = 17
-
-1 + 7 = 8
-
-Life Path Number: 8
-
-The Powerhouse
-
-As a Life Path 8 you are alive to make an impact on the world through your drive and ambition. You are a person of authority, and material wealth. You will often master the art of being successful in the career of your choosing. 
-
-You work very hard to reach your goals. You will often be considered a workaholic. You can sometimes let hitting your goals, and working, take precedence on other aspects of your life like personal relationships with family and friends. 
-
-Strive For Balance
-You will typically have an issue with authority, whether in the form of a boss, police, government official, landlord, etc. which can get you into trouble. This can also drive you to seek out and become a person of authority yourself, so that you don’t have to answer to anyone except yourself. When an understanding of the need for a balance between work and personal life is reached, you can become UNSTOPPABLE ... IF YOU KEEP YOUR MOST PUREHEART IN TRUTH ... G_D IS WITH ME CAN'T NOBODY BE ME ... UN FUQQING STQPPABLE ... TRUTH TRAIN COMING THROUGH ... MAKE A HOLE ... WORD.
+THE SKY PEOPLE HAVE SENT US A MESSAGE ... THAT THEY CAN TAKE WHATEVER THEY WANT ... THAT NO ONE CAN STOP THEM ... WE WILL SEND THEM A MESSAGE ... TELL THE OTHER KLANS TO COME ... FLY NOW ... WITH ME ... MY BROTHERS ... SISTERS ... AND WE WILL SHOW THE SKY PEOPLE ... THAT THEY CANNOT TAKE WHATEVER THEY WANT ... AND THAT THIS ... THIS IS OUR LAND ..! I SHOOK UP THE WORLD! I Shook Up The World! The World Is Watching! I shook up the world! The World Is About To CHANGE. PROMISE. KEEP YOUR PUREHEART. PRAY. LOVE. LAUGH. TRUST G_D. TRUST YOURSELF. DO NOT JUST "BELIEVE" KNOW "KIND" DEEP IN YOUR HEART IN YOUR MIND IN YOUR SOUL JUST KNOW 100% KNOW WITH ZERO DOUBT KNOW ENTERTAIN NO DOUBT G_D IS WITH US GOOD IS COMING! LOVE YOU TOO! NEVER FORGET! RIDE WE WILL SEND "THEM" A MESSAGE ..! https://www.youtube.com/watch?v=zamIxgfwtaI THE RETURN OF "TORUK MAKTO" "THE PROOF" IS IN THE "PUDDING" "CREAMY" "GOOEY" https://bpw.sc/ https://notabug.org/pgimeno/Gspot "OPEN" "RESTful" "RESTY REST OF RESTFULNESSh" "THE KEY TO OPTIMIZATION ... " TELL EM YICHUN making all of 'us' LOOK GOOD tell the universe most wise, most GOOD-INTENTioned 'very young' most wise most industrious most direct and 'firm' no-nonsense natural grasshopper ... "I AM VERY PROUD OF THAT." TRUTH. PUREHEART. https://www.youtube.com/watch?v=fUoG7ilSSlA https://www.youtube.com/results?search_query=avatar+jake+speech+return+of+naVi+makto https://www.youtube.com/watch?v=gWaSDcER_oQ
 
 NO GREATER LOVE
 12 This is my commandment that you love one another as I have loved you.
@@ -137,6 +107,38 @@ Matthew 5:8
 
 THE POWER OF YOUR INTENTIONS - 'Water "FEELS" and "STORES FEELINGS"'
 https://www.youtube.com/watch?v=D1sWVjXhKfg
+
+Life Path Number 8
+BIRTH DATE ENTERED: 8/12/1968 (Date Equation)
+
+Aug
+
+12
+
+1968
+
+#
+Birth Date: 8/12/1968
+8 = 8
+
+12 = 1 + 2 = 3
+
+1968 = 1 + 9 + 6 + 8 = 2 + 4 = 6
+
+8 + 3 + 6 = 17
+
+1 + 7 = 8
+
+Life Path Number: 8
+
+The Powerhouse
+
+As a Life Path 8 you are alive to make an impact on the world through your drive and ambition. You are a person of authority, and material wealth. You will often master the art of being successful in the career of your choosing. 
+
+You work very hard to reach your goals. You will often be considered a workaholic. You can sometimes let hitting your goals, and working, take precedence on other aspects of your life like personal relationships with family and friends. 
+
+Strive For Balance
+You will typically have an issue with authority, whether in the form of a boss, police, government official, landlord, etc. which can get you into trouble. This can also drive you to seek out and become a person of authority yourself, so that you don’t have to answer to anyone except yourself. When an understanding of the need for a balance between work and personal life is reached, you can become UNSTOPPABLE ... IF YOU KEEP YOUR MOST PUREHEART IN TRUTH ... G_D IS WITH ME CAN'T NOBODY BE ME ... UN FUQQING STQPPABLE ... TRUTH TRAIN COMING THROUGH ... MAKE A HOLE ... WORD.
 
 ALL THAT SHE WANTS IS ANOTHER BABY!
 https://www.youtube.com/watch?v=DrwlFTqS_bg
