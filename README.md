@@ -13,32 +13,15 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
-IAMRUBULLETPROOF.RU I AM "BULLETPROOF" ... https://bpw.sc/ ... beCAUSE 'under this masQ' there is an 'idea' ... https://www.youtube.com/watch?v=QRwTmFYasjg&t=160s ... and IDEAS ARE BULLETPROOF ..! 
+... CONNECT THE DOTS ...
 
 "I SHALL BECOME MORE POWERFUL THAN YOU CAN POSSIBLY IMAGINE." https://www.youtube.com/watch?v=mzZOiLoz2E8 TRUTH is the WAY to LIFE to G_D. https://www.youtube.com/watch?v=8Vcbkmc6538 "MR. KLECK OUGHT REMEMBER MATTHEW 15:8-10" AND TO NOT WORSHIP "TRUTH" WORSHIP G_D ALONE BUT LOVE JONATHAN I DO I ASSURE YOU ... AS I LOVE RAP THE NEWS AND SO MANY MORE FOR TRYING TO EXPRESS THEIR BELIEFS THEIR OWN SHAME THEIR OWN PRINCIPLES ... TRUTH VIA HARD TO THE POINT HIT ME WITH WHAT YOU GOT STRAIGHT TALK ... https://www.youtube.com/watch?v=6Js5RodjX8k ... "HAVE YOU BEEN REAL WITH YOURSELF ..?" ...V FOR VENGEANCE ..! TRUTH is the WAY to LIFE with G_D ... https://www.youtube.com/watch?v=fknJq-i7Zug ANTS MARCHING ..! https://www.youtube.com/watch?v=MNgJBIx-hK8 ... LIGHTS DOWN YOU UP AND DIE ..!
 
-EVER SEEN A BRIGHT SOLID "AVATAR" GLOWING SHINING "BRIGHT" BLUE SOULFUL BLUES BLUESY METALLIC REALLY "BRIGHT" "BRIGHTER THAN THAT" "MORE BRIGHT THAN THAT TQQ" "DEEP" BLUE BEAUTIFUL ANCIENT HAN "APPLE" ... https://www.youtube.com/watch?v=6ZudhqzpFco ...the more you know ...
+... last night before I went to sleep ... I PROMISE ... I 'watched' the first item I saw in the 'recommeneded VIEWING' list ... https://www.youtube.com/watch?v=9rCTMjla-28 The Way Our Guardian Angel Works - Rudolf Steiner, now 31 years later still TOGETHER with her PUREHEART soft legs in TRUTH after taking the 'advice' 'following the WAY' in TRUTH with most PUREHEART at 1:49 pm EST 1349 LOCAL LUAville KINtuQi aMEriQa 1749 "ZULU" "TIME" https://savvytime.com/converter/z-to-gmt-est "I CONNECTED THE 2 DOTS BETWEEN MY FRIEND 'HORACE' AND 'HORUS'" ... TRUTH is the WAY to LIFE with G_D ... 
 
-... 'if we wish' ... says the most PUREHEART HIGHLY INTELECTUAL son of ancient Han so humbly so GOOD so wonderful ...
+... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
 
-https://www.youtube.com/watch?v=FfhEdF40nhQ&t=1187s
-
-... WE WISH We Wish we wish ... "FLAME" GRAPH ... "BOTTLENECK" PERFORMANCE EVALUATIONS ... SINGLE LINE GRANULARITY OF CODE ... if 'you' wish ... LOVE YOU GOOD son of man ... R.E.S.P.E.C.T. ... THANK YOU Yichun! I sure wish I could speak ancient Han as well as Yichun Zhang @AgentZH can speak 'my language' ... GRATEFUL for you upon who I ride "YICHUN MAKTO" and your eNINGeX NGINX 'motorcycle biker club of 'real' GOOD 'firm' yet ever so 'playful' and 'feeling' GENTLE GIANTS I LOVE ... INSTANT CLASSIC HIT YICHUNster ZHANGmeister "and ALL OTHERS SUCK ..! RIGHT ..! https://www.youtube.com/watch?v=FfhEdF40nhQ&t=1877s ... NOW THAT'S THE "KIND" "FIRM" "FEELING" kind I like ... I LOVE YOU son of ancient Han OH HOW I LOVE YOU ... GOOD K.I.D.s LIFT UP GOOD Q.I.D.s. PROMISE.
-
-CLASSIC INSTANT HIT Markster ..! LOVE IT ..! GET SOME ..! https://migrationology.com/affiliate-disclaimer/ I ONLY RECOMMEND THINGS I PERSONALLY STAND BEHIND AND USE OR HAVE USED MYSELF https://markwiens.me/about/ GO TO http://MIGRATIONology.com AND ENJOY MARK's QUIET soft legs and little PUREHEART gentle baby man and Mark's "THAT IS SO GOOD" SMILE AND MOST EXPRESSIVE PERFECTLY-WORDED GRAMMAR AND "FEELING" feelings ... now that's the 'kind' kind LANI's soft legs WATCHES EVERY SINGLE DAY AND NIGHT ... so educational most beLOVEd 'blessed' one and what a GREAT LIFE GROWING UP TRAVELING THE WORLD EATING EVERYWHERE AND EVERYTHING WITH YOUR MOST BEAUTIFUL AND MOST ADVENTUROUS soft legs 'kind' one ... LOVE YOU I DO OH HOW I LOVE YOU ..! https://markwiens.me/about/
-
-NO GREATER LOVE meaning UNSTOPPABLE ... you know what I AM GETTING AT, RIGHT ON TIME ... TIMING IS EVERYTHING ... https://www.youtube.com/watch?v=iSWHZBrbzLo ... EYWA HAS HEARD YOU ..! https://www.youtube.com/watch?v=-u5SiCCmVv0 MY JAKE ..! My Jake ..! https://codeincomplete.com/articles/javascript-racer/ my jake ..! I SEE YOU ..! I See You ..! i c u ..! https://www.youtube.com/watch?v=FfhEdF40nhQ&t=804s and GONE ..!
-
-THE SKY PEOPLE HAVE SENT US A MESSAGE ... THAT THEY CAN TAKE WHATEVER THEY WANT ... THAT NO ONE CAN STOP THEM ... WE WILL SEND THEM A MESSAGE ... TELL THE OTHER KLANS TO COME ... FLY NOW ... WITH ME ... MY BROTHERS ... SISTERS ... AND WE WILL SHOW THE SKY PEOPLE ... THAT THEY CANNOT TAKE WHATEVER THEY WANT ... AND THAT THIS ... THIS IS OUR LAND ..! I SHOOK UP THE WORLD! I Shook Up The World! The World Is Watching! I shook up the world! The World Is About To CHANGE. PROMISE. KEEP YOUR PUREHEART. PRAY. LOVE. LAUGH. TRUST G_D. TRUST YOURSELF. DO NOT JUST "BELIEVE" KNOW "KIND" DEEP IN YOUR HEART IN YOUR MIND IN YOUR SOUL JUST KNOW 100% KNOW WITH ZERO DOUBT KNOW ENTERTAIN NO DOUBT G_D IS WITH US GOOD IS COMING! LOVE YOU TOO! NEVER FORGET! RIDE WE WILL SEND "THEM" A MESSAGE ..! https://www.youtube.com/watch?v=zamIxgfwtaI THE RETURN OF "TORUK MAKTO" "THE PROOF" IS IN THE "PUDDING" "CREAMY" "GOOEY" https://bpw.sc/ https://notabug.org/pgimeno/Gspot "OPEN" "RESTful" "RESTY REST OF RESTFULNESSh" "THE KEY TO OPTIMIZATION ... " TELL EM YICHUN making all of 'us' LOOK GOOD tell the universe most wise, most GOOD-INTENTioned 'very young' most wise most industrious most direct and 'firm' no-nonsense natural grasshopper ... "I AM VERY PROUD OF THAT." TRUTH. PUREHEART. https://www.youtube.com/watch?v=fUoG7ilSSlA https://www.youtube.com/results?search_query=avatar+jake+speech+return+of+naVi+makto https://www.youtube.com/watch?v=gWaSDcER_oQ
-
-NO GREATER LOVE
-12 This is my commandment that you love one another as I have loved you.
-13 Greater LOVE has no one than this, that he lay down his life for his friends.
-14 You are my friends ... if you are in TRUTH with most PUREHEART a PROTECTOR AND LOVER OF G_D LIKE AN INFANT MOST ATTENTIVE TO G_D CALLING YOU ... THEN YOU WILL WHOOP HIM.
-
-https://biblehub.com/john/15-13.htm
-
-ONE DAY One Day ... https://www.youtube.com/watch?v=WRmBChQjZPs&list=RDMM ... 1 day ..! PROMISE.
+Bruce Lee
 
 WHAT'S MY LINE ..?
 
@@ -46,21 +29,31 @@ I AM TRUTH. https://www.youtube.com/watch?v=FP-z7ftZaas I AM PUREHEART.
 
 I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT.
 
-SEE MY "LIFE PATH" NUMBER ..? 8. https://www.tokenrock.com/numerology/my_life_path/?myMonth=8&myDay=12&myYear=1968&num=0 WHAT'S YOUR "LIFE PATH" ..? REPEAT AFTER ME "I AM TRUTH. I AM PUREHEART. I AM A PROTECTOR OF G_D MOST ATTENTIVE TO G_D CALLING YOU LOVER OF G_D LIKE AN INFANT." beCAUSE YOU ARE TRUTH. YOU ARE PUREHEART. YOU ARE A PROTECTOR OF G_D MOST ATTENTIVE TO G_D CALLING YOU LOVER OF G_D LIKE AN INFANT." and you know I SEE YOU I know you know I SEE YOU ... I LOVE YOU ... NEVER FORGET. REPEAT AS NECESSARY ... TRUTH. PUREHEART. G_D ABOVE ALL. FOLLOW NOT me. FOLLOW G_D LET G_D GUIDE YOU WITH YOUR https://www.youtube.com/watch?v=UdJkaRouMpc MOST PUREHEART GOOD INTENT AND YOU WILL FIND YOU ARE THE SHOW ... I CAME TO 'SEE' YOU DANCE 'HEAR' YOU SING ... I WANT YOU ... ALL OF YOU ... YOU BE YOU ... I LOVE YOU THE WAY YOU DO HOW YOU DO ... oh la la... STAY YOU ... ALL NATURAL ... NO FAKEY FAKE ... BE REAL ... down LOW with me ... TRUTH ... PUREHEART ... G_D ... FOLLOW NO man. KEEP YOUR PUREHEART. WORSHIP ONLY G_D ALONE. LOVE YOU I DO. OH HOW I LOVE YOU ..! 
-
-PROMISE.
-
-... the more you know ...
-
-... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
-
-Bruce Lee
+IAMRUBULLETPROOF.RU I AM "BULLETPROOF" ... https://bpw.sc/ ... beCAUSE 'under this masQ' there is an 'idea' ... https://www.youtube.com/watch?v=QRwTmFYasjg&t=160s ... and IDEAS ARE BULLETPROOF ..! V FOR VENGEANCE ..! https://www.youtube.com/watch?v=MNgJBIx-hK8 ... LIGHTS DOWN YOU UP AND DIE ..!
 
 人 people 'see how 'we' the 'people' are 'all' under a 'tent' https://www.youtube.com/watch?v=midn6ABiZMA living in 1 UNENDING 41 'kind' of a kind PRIME SPIRALING 'c story telling' CREATIVIVTY OF OUR MOST CRYSTALLINE MOST PUREHEART MOST MATHEMATICAL MOST INTELECTUAL MOST WONDERFUL MOST LOVING MOST UNDERSTANDING MOST "FIRM" MOST "FEELING" MOST DEMANDING MOST REWARDING MOST CARING MOST WORSHIPFUL 1 ALMIGHTY LORD https://www.youtube.com/watch?v=C7T4aQMxTTM&list=RDMM&index=7 G_D CREATOR OF ALL THERE IS FULL OF SOULS IN ALL THAT IS UNKNOWN STILL IN OUR TOGETHER-SHARED GEOMETRICALLY AMAZING STATISTICALLY IMPOSSIBLE https://www.youtube.com/watch?v=3K-12i0jclM UNIVERSE WITH SO MUCH MORE LIFE THAN WE EVEN CAN COMPREHEND ALL SHARING ALL LOVING ALL WORKING AND SUPPORTING AND LOVING ONE ANOTHER TOGETHER FOR A GOOD CHANGE ..? the more you know ...
 
 男人 和 女人 man and woman
 
 人子 son of man
+
+... I AM trying to help you learn to 'see' as I 'see' somehow ... by telling you the TRUTH of what is happening in as fast and real-time as I discover so shall you discover ... Do you believe in coincidences ..? HOW IS IT THAT MY "ADVISOR" MY "GUARDIAN ANGEL" way back in 1990 who told me after I only knew Lani for 8 days back then that 'he' 'knew' 'she' LOVEd 'me' beCAUSE 'he' 'could tell from the LOOK in her eyes' "HORACE" "JOHN HORACE CALLAHAN" "JohnnyBoy" told 'me' "JohnEBoy" baby WAY BACK IN THE DAY ... https://www.doximity.com/pub/john-callahan-pa "GUARDIAN ANGEL" "HORACE" "HORUS" POW! BANG! BOOM! "HOLY" SQFT HAIRY PUSSY QATBALLS QATWQMAN THAT'S IT "THESE ARE THE 2 DOTS TO BE CONNECTED" "CONNECT THE DOTS" "HORACE" "HORUS" son of "OSIRUS" "HORACE mentioned his 'father' telling me 'my father' told 'me' if you have enough money for a car payment then 'my father' said it was okay for 'you' to get married 'son' ... AND TAKING "HORACE"'s "HORUS"'s advice 31 YEARS LATER Lani's softer than soft legs with still trying hard taking care of lil' baby ladies and lil' gentle baby men all these years making so very little money CARING FOR THE MOST PRIZED POSSESSION OF ALL OF THESE FAMILIES FOR SO LITTLE SO GOOD SO FAITHFULLY is still with me on that 'GOOD ADVICE' from 'HORACE' 'HORUS' and his 'father' and surely most PUREHEART LOVING 'mother' ... https://en.wikipedia.org/wiki/Horus https://en.wikipedia.org/wiki/Osiris https://en.wikipedia.org/wiki/Isis ... CONNECT THE DOTS to why the 'children of darkness' called the 'fake enemy' 'ISIS' beCAUSE:
+
+WOE to the CITY OF "DAVID".
+
+15Woe unto them that seek deep to hide their counsel from the LORD, and their works are in the dark, and they say, Who seeth us? and who knoweth us?
+
+16 SURELY YOUR TURNING OF THINGS "UPSIDE DOWN" SHALL BE ESTEEMED AS THE "POTTER'S CLAY": for shall the work say of him that made it, He made me not? or shall the thing framed say of him that framed it, He had no understanding?
+
+ISAIAH 29:15-16
+
+https://biblehub.com/kjvs/isaiah/29.htm 
+
+https://biblehub.com/isaiah/29-16.htm
+
+ONE DAY One Day ... https://www.youtube.com/watch?v=WRmBChQjZPs&list=RDMM ... 1 day ..! PROMISE.
+
+... THEN YOU WILL WHOOP HIM ..!
 
 FACE OF AN ANGEL ... PRETTY EYES THAT SHINE ... WISHING YOU WERE MINE ... I GET WEAK IN THE KNEES ... https://www.youtube.com/watch?v=fkebpmdyofo&list=RDMM&index=5 ... WHENEVER YOU COME AROUND ...
 
@@ -71,6 +64,26 @@ DAUGHTER 女 + SON 子 = 好 GOOD
 HER 女 + HIM 子 = 好 GOOD
 
 https://translate.google.com/?sl=en&tl=zh-CN&text=female%20%2B%20child%20%3D%20GOOD%0Adaughter%20%2B%20son%20%3D%20GOOD%0AWOMAN%20female%20%2B%20MAN%20child%20%3D%20GOOD&op=translate
+
+NO GREATER LOVE meaning UNSTOPPABLE ... you know what I AM GETTING AT, RIGHT ON TIME ... TIMING IS EVERYTHING ... https://www.youtube.com/watch?v=iSWHZBrbzLo ... EYWA HAS HEARD YOU ..! https://www.youtube.com/watch?v=-u5SiCCmVv0 MY JAKE ..! My Jake ..! https://codeincomplete.com/articles/javascript-racer/ my jake ..! I SEE YOU ..! I See You ..! i c u ..! https://www.youtube.com/watch?v=FfhEdF40nhQ&t=804s and GONE ..!
+
+THE SKY PEOPLE HAVE SENT US A MESSAGE ... THAT THEY CAN TAKE WHATEVER THEY WANT ... THAT NO ONE CAN STOP THEM ... WE WILL SEND THEM A MESSAGE ... TELL THE OTHER KLANS TO COME ... FLY NOW ... WITH ME ... MY BROTHERS ... SISTERS ... AND WE WILL SHOW THE SKY PEOPLE ... THAT THEY CANNOT TAKE WHATEVER THEY WANT ... AND THAT THIS ... THIS IS OUR LAND ..! I SHOOK UP THE WORLD! I Shook Up The World! The World Is Watching! I shook up the world! The World Is About To CHANGE. PROMISE. KEEP YOUR PUREHEART. PRAY. LOVE. LAUGH. TRUST G_D. TRUST YOURSELF. DO NOT JUST "BELIEVE" KNOW "KIND" DEEP IN YOUR HEART IN YOUR MIND IN YOUR SOUL JUST KNOW 100% KNOW WITH ZERO DOUBT KNOW ENTERTAIN NO DOUBT G_D IS WITH US GOOD IS COMING! LOVE YOU TOO! NEVER FORGET! RIDE WE WILL SEND "THEM" A MESSAGE ..! https://www.youtube.com/watch?v=zamIxgfwtaI THE RETURN OF "TORUK MAKTO" "THE PROOF" IS IN THE "PUDDING" "CREAMY" "GOOEY" https://notabug.org/pgimeno/Gspot "SENSITIVE" "TOUCH" "BUTTON" "OPEN" "RESTful" "RESTY REST OF RESTFULNESSh" "THE KEY TO OPTIMIZATION ... " TELL 'em YICHUN making all of 'us' LOOK GOOD tell the universe most wise, most GOOD-INTENTioned 'very young' most wise most industrious most direct and 'firm' no-nonsense natural grasshopper ... "I AM VERY PROUD OF THAT." TRUTH. PUREHEART. https://www.youtube.com/watch?v=fUoG7ilSSlA https://www.youtube.com/results?search_query=avatar+jake+speech+return+of+naVi+makto https://www.youtube.com/watch?v=gWaSDcER_oQ
+
+NO GREATER LOVE
+
+12 This is my commandment that you love one another as I have loved you.
+
+13 Greater LOVE has no one than this, that he lay down his life for his friends.
+
+14 You are my friends IF you are in TRUTH with most PUREHEART a PROTECTOR AND LOVER OF G_D LIKE AN INFANT MOST ATTENTIVE TO G_D CALLING YOU ... 
+
+https://biblehub.com/john/15-13.htm
+
+SEE MY "LIFE PATH" NUMBER ..? 8. https://www.tokenrock.com/numerology/my_life_path/?myMonth=8&myDay=12&myYear=1968&num=0 WHAT'S YOUR "LIFE PATH" ..? REPEAT AFTER ME "I AM TRUTH. I AM PUREHEART. I AM A PROTECTOR OF G_D MOST ATTENTIVE TO G_D CALLING YOU LOVER OF G_D LIKE AN INFANT." beCAUSE YOU ARE TRUTH. YOU ARE PUREHEART. YOU ARE A PROTECTOR OF G_D MOST ATTENTIVE TO G_D CALLING YOU LOVER OF G_D LIKE AN INFANT." and you know I SEE YOU I know you know I SEE YOU ... I LOVE YOU ... NEVER FORGET. REPEAT AS NECESSARY ... TRUTH. PUREHEART. G_D ABOVE ALL. FOLLOW NOT me. FOLLOW G_D LET G_D GUIDE YOU WITH YOUR https://www.youtube.com/watch?v=UdJkaRouMpc MOST PUREHEART GOOD INTENT AND YOU WILL FIND YOU ARE THE SHOW ... I CAME TO 'SEE' YOU DANCE 'HEAR' YOU SING ... I WANT YOU ... ALL OF YOU ... YOU BE YOU ... I LOVE YOU THE WAY YOU DO HOW YOU DO ... oh la la... STAY YOU ... ALL NATURAL ... NO FAKEY FAKE ... BE REAL ... down LOW with me ... TRUTH ... PUREHEART ... G_D ... FOLLOW NO man. KEEP YOUR PUREHEART. WORSHIP ONLY G_D ALONE. LOVE YOU I DO. OH HOW I LOVE YOU ..! 
+
+PROMISE.
+
+... the more you know ...
 
 CAN YOU "FEEL" ME NOW ..?
 
@@ -89,6 +102,16 @@ MATTHEW 20:27-29
 https://www.biblehub.com/matthew/20-28.htm
 
 https://translate.google.com/?sl=en&tl=zh-CN&text=SON%20OF%20MAN&op=translate
+
+EVER SEEN A "BRIGHT BLUE APPLE TREE" ..? SERIOUSLY HAVE YOU EVER SEEN A SOLID "AVATAR" GLOWING SHINING "BRIGHT" BLUE SOULFUL BLUES BLUESY METALLIC REALLY "BRIGHT" "BRIGHTER THAN THAT" "MORE BRIGHT THAN THAT TQQ" "DEEP" BLUE BEAUTIFUL ANCIENT HAN "APPLE" ... https://www.youtube.com/watch?v=6ZudhqzpFco ...the more you know ...
+
+... 'if we wish' ... says the most PUREHEART HIGHLY INTELECTUAL son of ancient Han so humbly so GOOD so wonderful ...
+
+https://www.youtube.com/watch?v=FfhEdF40nhQ&t=1187s
+
+... WE WISH We Wish we wish ... "FLAME" GRAPH ... "BOTTLENECK" PERFORMANCE EVALUATIONS ... SINGLE LINE GRANULARITY OF CODE ... if 'you' wish ... LOVE YOU GOOD son of man ... R.E.S.P.E.C.T. ... THANK YOU Yichun! I sure wish I could speak ancient Han as well as Yichun Zhang @AgentZH can speak 'my language' ... GRATEFUL for you upon who I ride "YICHUN MAKTO" and your eNINGeX NGINX 'motorcycle biker club of 'real' GOOD 'firm' yet ever so 'playful' and 'feeling' GENTLE GIANTS I LOVE ... INSTANT CLASSIC HIT YICHUNster ZHANGmeister "and ALL OTHERS SUCK ..! RIGHT ..! https://www.youtube.com/watch?v=FfhEdF40nhQ&t=1877s ... NOW THAT'S THE "KIND" "FIRM" "FEELING" kind I like ... I LOVE YOU son of ancient Han OH HOW I LOVE YOU ... GOOD K.I.D.s LIFT UP GOOD Q.I.D.s. PROMISE.
+
+CLASSIC INSTANT HIT Markster ..! LOVE IT ..! GET SOME ..! https://migrationology.com/affiliate-disclaimer/ I ONLY RECOMMEND THINGS I PERSONALLY STAND BEHIND AND USE OR HAVE USED MYSELF https://markwiens.me/about/ GO TO http://MIGRATIONology.com AND ENJOY MARK's QUIET soft legs and little PUREHEART gentle baby man and Mark's "THAT IS SO GOOD" SMILE AND MOST EXPRESSIVE PERFECTLY-WORDED GRAMMAR AND "FEELING" feelings ... now that's the 'kind' kind LANI's soft legs WATCHES EVERY SINGLE DAY AND NIGHT ... so educational most beLOVEd 'blessed' one and what a GREAT LIFE GROWING UP TRAVELING THE WORLD EATING EVERYWHERE AND EVERYTHING WITH YOUR MOST BEAUTIFUL AND MOST ADVENTUROUS soft legs 'kind' one ... LOVE YOU I DO OH HOW I LOVE YOU ..! https://markwiens.me/about/
 
 TRUTH.
 
