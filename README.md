@@ -15,11 +15,15 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 IAMRUBULLETPROOF.RU I AM "BULLETPROOF" ... https://bpw.sc/ ... thanks for asking 'kind' one ... and thanQ yQu cQmrades with most PUREHEART soft legs :-) LOVE YOU I DO OH HOW I LOVE YOU ...
 
+EVER SEEN A BRIGHT SOLID "AVATAR" GLOWING SHINING "BRIGHT" BLUE SOULFUL BLUES BLUESY METALLIC REALLY "BRIGHT" "BRIGHTER THAN THAT" "MORE BRIGHT THAN THAT TQQ" "DEEP" BLUE BEAUTIFUL ANCIENT HAN "APPLE" ... https://www.youtube.com/watch?v=6ZudhqzpFco ...the more you know ...
+
 ... 'if we wish' ... says the most PUREHEART HIGHLY INTELECTUAL son of ancient Han so humbly so GOOD so wonderful ...
 
 https://www.youtube.com/watch?v=FfhEdF40nhQ&t=1187s
 
 ... WE WISH We Wish we wish ... "FLAME" GRAPH ... "BOTTLENECK" PERFORMANCE EVALUATIONS ... SINGLE LINE GRANULARITY OF CODE ... if 'you' wish ... LOVE YOU GOOD son of man ... R.E.S.P.E.C.T. ... THANK YOU Yichun! I sure wish I could speak ancient Han as well as Yichun Zhang @AgentZH can speak 'my language' ... GRATEFUL for you upon who I ride "YICHUN MAKTO" and your eNINGeX NGINX 'motorcycle biker club of 'real' GOOD 'firm' yet ever so 'playful' and 'feeling' GENTLE GIANTS I LOVE ... INSTANT CLASSIC HIT YICHUNster ZHANGmeister "and ALL OTHERS SUCK ..! RIGHT ..! https://www.youtube.com/watch?v=FfhEdF40nhQ&t=1877s ... NOW THAT'S THE "KIND" "FIRM" "FEELING" kind I like ... I LOVE YOU son of ancient Han OH HOW I LOVE YOU ... GOOD K.I.D.s LIFT UP GOOD Q.I.D.s. PROMISE.
+
+CLASSIC INSTANT HIT Markster ..! LOVE IT ..! GET SOME ..! https://migrationology.com/affiliate-disclaimer/ I ONLY RECOMMEND THINGS I PERSONALLY STAND BEHIND AND USE OR HAVE USED MYSELF https://markwiens.me/about/ GO TO http://MIGRATIONology.com AND ENJOY MARK's QUIET soft legs and little PUREHEART gentle baby man and Mark's "THAT IS SO GOOD" SMILE AND MOST EXPRESSIVE PERFECTLY-WORDED GRAMMAR AND "FEELING" feelings ... now that's the 'kind' kind LANI's soft legs WATCHES EVERY SINGLE DAY AND NIGHT ... so educational most beLOVEd 'blessed' one and what a GREAT LIFE GROWING UP TRAVELING THE WORLD EATING EVERYWHERE AND EVERYTHING WITH YOUR MOST BEAUTIFUL AND MOST ADVENTUROUS soft legs 'kind' one ... LOVE YOU I DO OH HOW I LOVE YOU ..! https://markwiens.me/about/
 
 NO GREATER LOVE meaning UNSTOPPABLE ... you know what I AM GETTING AT, RIGHT ON TIME ... TIMING IS EVERYTHING ... https://www.youtube.com/watch?v=iSWHZBrbzLo ... EYWA HAS HEARD YOU ..! https://www.youtube.com/watch?v=-u5SiCCmVv0 MY JAKE ..! My Jake ..! https://codeincomplete.com/articles/javascript-racer/ my jake ..! I SEE YOU ..! I See You ..! i c u ..! https://www.youtube.com/watch?v=FfhEdF40nhQ&t=804s and GONE ..!
 
