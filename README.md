@@ -5,7 +5,7 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
-... CONNECT THE DOTS ... https://www.youtube.com/watch?v=gRQ3uxNOHqk ... 'see' ..?
+... CONNECT THE DOTS ... https://www.youtube.com/watch?v=gRQ3uxNOHqk ... 'see' ..? I AM TRUTH. I AM PUREHEART. I AM UPSTOPPABLE.
 
 ... ain't it funny ... how a melody ... can bring back a memory ... 
 
