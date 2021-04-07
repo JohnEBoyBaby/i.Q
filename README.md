@@ -5,7 +5,9 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
-... "MAKE IT COUNT 'SON'!" ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=2&t=128s ... MA'AM. YES, MA'AM.
+... SERMON ON THE MOUNT ... https://www.youtube.com/watch?v=AMQdG3WFyQQ ... narrow is the GATE ... https://www.biblegateway.com/passage/?search=Matthew+5-7&version=GNV ... greatest are 'servants' TRUTH ... "but there was 1 RIGHTEOUS 'man' in the 'world' ... CHICO'S SERMON ... "WAIT 'TIL YOU SEE IT 'tomorrow' ... 'twas the day after ... https://www.youtube.com/watch?v=6mhOG-UqX4g ... "BROTHER BROWN, SIT THEE DOWN" ... "NEVER RELEASE A PIGEON INTO THE WIND AND LOOK UP" ... "JULIO, MY FRIEND, ARE YOU ENJOYING THE CRUISE ..?" ... "THIS IS LOUSY MAN" ... "IT 'IS' 'my job', 'man' ... "BUT REMEMBER A "BIRD" IN THE HAND CAN BE A "HEQQ QF A MESS" ... "LOOKING GOOD" ..! PUREHEART 'children' ... now that was TRUTH ... now that was funny ... but some 'other' 'folks' 'issues' ARE NOT 1 BIT FUNNY ... you know what I AM getting at, RIGHT ..? QrQwinQ very wise are yQu yQunQ Qrasshopper ...
+
+"MAKE IT COUNT 'SON'!" ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=2&t=128s ... MA'AM. YES, MA'AM.
 
 ... aaah ... https://www.youtube.com/watch?v=N0_LnvJrLo4&t=54s ... I INTERCEPT YQUR "EMOTIONAL TENSENESS" ..!
 
