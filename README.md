@@ -9,7 +9,7 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 ... ancient Han and KYLIN to take on global giants with new OS ... the more you know ... GO KYLIN GO Go go ..!
 
-https://UbuntuKylin.com
+https://UbuntuKylin.com <== ADD "NATIVE" "LUA" "NGINX" "OPENRESTY" "KYLIN SUPPORT" thank you 'kind' intellectual ones ..!
 
 ... like a WHITE HORSE horse passing ... https://www.ubuntukylin.com/news/562-cn.html ... 
 
