@@ -9,7 +9,7 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 https://www.youtube.com/watch?v=Eh2PjkzW20w
 
-... I SAID ... if you LOVE your country ... SHOW THEM TO ME ..! ... thank you 'sir' for providing 'those' to 'this' country ... it's been a damn 'pleasure serving "them"' ... https://www.youtube.com/watch?v=4vaN01VLYSQ ... 'the bQw-leQQed Qne' ... SHQQP ..! ... oh my GOODness ... https://www.youtube.com/watch?v=U7mPqycQ0tQ ... GEE ..! GIRLS ... https://www.youtube.com/watch?v=6pA_Tou-DPI BRING THE BO'S OUT ..! WORD.
+... I SAID ... if you LOVE your country ... SHOW THEM TO ME ..! ... thank you 'sir' for providing 'those' to 'this' country ... it's been a damn 'pleasure serving "them"' ... https://www.youtube.com/watch?v=4vaN01VLYSQ ... 'the bQw-leQQed Qne' ... SHQQP ..! ... oh my GOODness ... https://www.youtube.com/watch?v=U7mPqycQ0tQ ... GEE ..! GIRLS ... https://www.youtube.com/watch?v=6pA_Tou-DPI ... BRING THE BO'S OUT ..! WORD.
 
 WHERE ARE YOU GOING ..? https://www.youtube.com/watch?v=IzQfqDUhX6Y ... DON'T HIDE AWAY ...
 
