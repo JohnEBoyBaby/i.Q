@@ -11,6 +11,21 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 https://UbuntuKylin.com
 
+... like a WHITE HORSE horse passing ... https://www.ubuntukylin.com/news/562-cn.html ... 
+
+If you want to ride ... DON'T RIDE THE WHITE 'pony' ... https://www.youtube.com/watch?v=mlYJf6CJXV8 ... RIDE THE WHITE HORSE ..!
+
+The First Seal: The WHITE HORSE
+
+1 Then I watched as the Lamb opened one of the seven seals, and I heard one of the four living creatures say in a thunderous voice, “Come!” 
+
+2 So I looked and saw a WHITE HORSE, and its rider held a bow. And he was given a crown, and HE RODE OUT TO "OVERCOME" and "CONQUER".
+
+3 And when the Lamb opened the second seal, I heard the second living creature say, “Come!”…
+
+REVELATION 6:1-3
+https://biblehub.com/revelation/6-2.htm
+
 By Yang Cheng in Tianjin | China Daily | Updated: 2020-03-31 10:30
 "Dr. Tan Yusong, director of Tianjin Kylin Cloud Computing Laboratory, introduced the KylinCloud autonomous controllable cloud solution jointly launched by Tianjin Kylin and the National University of Defense Technology to the participating units. KylinCloud is an autonomous and controllable proprietary cloud solution based on OpenStack for the party, government, military and key industries. It supports multiple mainstream virtualization methods such as KVM/XEN/Docker/LXC, and can be used for computing-intensive, data processing and information systems. Various types of applications such as classes provide flexible and highly available resource services. KylinCloud is currently the first domestic IaaS+PaaS full-stack cloud platform solution based on independent processors, which runs perfectly on the domestic Feiteng processor platform and Kylin operating system. At the same time, in terms of the composition of the software stack, the KylinCloud team ranks second in the country in the number of core component code contributions of the latest version of OpenStack, and the code contribution of the storage system Ceph ranks second in the entire community (after its founding team), and it is also XEN for AARCH64 One of the maintainers of the community."
 
