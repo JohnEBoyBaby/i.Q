@@ -7,6 +7,74 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 ... SERMON ON THE MOUNT ... https://www.youtube.com/watch?v=AMQdG3WFyQQ ... narrow is the GATE ... https://www.biblegateway.com/passage/?search=Matthew+5-7&version=GNV ... greatest are 'servants' TRUTH ... "but there was 1 RIGHTEOUS 'man' in the 'world' ... CHICO'S SERMON ... "WAIT 'TIL YOU SEE IT 'tomorrow'" ... 'twas the day after ... https://www.youtube.com/watch?v=6mhOG-UqX4g ... "BROTHER BROWN, SIT THEE DOWN" ... "NEVER RELEASE A PIGEON INTO THE WIND AND LOOK UP" ... "JULIO, MY FRIEND, ARE YOU ENJOYING THE CRUISE ..?" ... "THIS IS LOUSY 'man'" ... "IT 'IS' 'my job', 'man' ... "BUT REMEMBER A "BIRD" IN THE HAND CAN BE A "HECK QF A MESS" ... lookinQ LQQkinQ "LOOKING GOOD" ..! PUREHEART 'children' ... now that was TRUTH ... now that was funny ... but some 'other' 'folks' 'issues' ARE NOT 1 BIT FUNNY ... you know what I AM getting at, RIGHT ..? QrQwinQ very wise are yQu nQw, yQunQ QrasshQpper ...
 
+HONESTLY, can you 'see' the progression of our languages from pictographic ideas in ancient Han to sound tonal emphasis in ancient Hangul to the syllabic tonal form of ancient Mongul that SURE LOOKS EXACTLY LIKE THE ancient Slavic and just look at the form of the letters of the languages and see how distinct and yet how similar some are showing a clear progression of thought from one to another ..? HMMM Hmmm hmmm ... the more you know ...
+
+As it is written so it shall be done.
+
+ancient Han CHINA
+
+如其所寫，則應完成。
+
+ancient Hangul KOREA
+
+쓰여진대로 그렇게 될 것입니다.
+
+ancient Mongul MONGOLIA
+
+Бичсэний дагуу үүнийг хийх болно.
+
+ancient Slavic RUSSIA
+
+Это будет так, как написано.
+
+ancient Ottoman TURKEY
+
+Yazıldığı gibi yapılacaktır. 
+
+ancient Hiragana JAPAN
+
+書かれた通りになります。
+
+ancient Assyrian 'Arabic' SYRIA
+
+سيكون كما هو مكتوب.
+
+ancient Persian IRAN
+
+همانطور که نوشته شده است ، باید انجام شود.
+
+ancient Tamil 'coastal' INDIA
+
+लिखा गया है वैसा ही किया.
+
+ancient Hebrew ISRAEL
+
+כמו שכתוב כך זה ייעשה.
+
+ancinet Hindi INDIA
+
+जैसा लिखा गया है वैसा ही किया जाएगा।.
+
+ancient Lao LAOS
+
+ດັ່ງທີ່ໄດ້ຂຽນໄວ້ແລ້ວດັ່ງນັ້ນມັນຈະຕ້ອງ ສຳ ເລັດ.
+
+https://translate.google.com/?sl=sv&tl=en&text=So%20wie%20es%20geschrieben%20steht%2C%20soll%20es%20geschehen.%20%0AZoals%20het%20is%20geschreven%2C%20zal%20het%20gebeuren.%0ASå%20vem%20som%20skriver%2C%20så%20vem%20som%20skriver.%0A&op=translate
+
+ancient Germanic GERMANY, NEDERLANDS, SWEDEN - translated to 'english' they all say the say exact thing 'miraculoulsly' ..!
+
+So wie es geschrieben steht, soll es geschehen. 
+
+Zoals het is geschreven, zal het gebeuren.
+
+Så vem som skriver, så vem som skriver.
+
+ancient Viking ICELAND
+
+Eins og skrifað er, skal það gert. 
+
+... CAN YOU "FEEL ME NOW ..?
+
 "MAKE IT COUNT 'SON'!" ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=2&t=128s ... MA'AM. YES, MA'AM.
 
 ... aaah ... https://www.youtube.com/watch?v=N0_LnvJrLo4&t=54s ... I INTERCEPT YQUR "EMOTIONAL TENSENESS" ..!
