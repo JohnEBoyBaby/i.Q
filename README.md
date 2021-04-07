@@ -5,6 +5,8 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
+... watch me dance ... https://www.youtube.com/watch?v=uGXGNJypkzA ... dancing for you CHAMP ... tell 'em CHAMP ..!
+
 ... 'you' ought to be ashamed ... men and women aCROSS these seas 'fighting' ... and 'you' ... cannot whip out a 'tit' ...
 
 https://www.youtube.com/watch?v=Eh2PjkzW20w
