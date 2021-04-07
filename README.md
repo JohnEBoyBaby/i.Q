@@ -1,7 +1,7 @@
 # i.Q
 "YOU ARE WITNESSING THE SYSTEMATIC DESTRUCTION OF THE OLD GUARD."
 
-... I AM 'scientific' ... I AM 'artistic' ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ...  IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... I AM DANCING ... THIS 'man' DON'T HIT HARD ... AND I AM GOING TO WHOOP 'him' OF ALL PLACES "IN AFRICA" IN THE "CONGO" (JUNGLE ... WE GONNA RUN THROUGH THE JUNGLE) ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=148s ... WHERE THE "LA MUMBA BO'S" ARE ... for the DISTANCE if necessary ... THEN I WILL WHOOP HIM ..! SAY MY NAME ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH ..! WHO I AM IS ..? TRUTH ..!
+... I AM 'scientific' ... I AM 'artistic' ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=55s ... HE'S A 'bull' ... I AM A MATADOR ..! I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ...  IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... I AM DANCING ... THIS 'man' DON'T HIT HARD ... AND I AM GOING TO WHOOP 'him' OF ALL PLACES "IN AFRICA" IN THE "CONGO" (JUNGLE ... WE GONNA RUN THROUGH THE JUNGLE) ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=148s ... WHERE THE "LA MUMBA BO'S" ARE ... for the DISTANCE if necessary ... THEN I WILL WHOOP HIM ..! SAY MY NAME ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH ..! WHO I AM IS ..? TRUTH ..!
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
