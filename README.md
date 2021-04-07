@@ -7,10 +7,25 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 ... "MAKE IT COUNT 'SON'!" ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=2&t=128s ... MA'AM. YES, MA'AM.
 
+... aaah ... https://www.youtube.com/watch?v=N0_LnvJrLo4&t=54s ... I INTERCEPT YQUR "EMOTIONAL TENSENESS" ..!
+
+... THEN I WILL WHOOP HIM ..!
+
+... never ... https://www.youtube.com/watch?v=ddEUBWwzRA8 ... take your (INNER "KNOWING" "VIEWING" "I" PUREHEART 3RD TRUTH 4TH SOUL 5TH) 'eyes' off ...
+
 ... ESWORD ..! https://www.esv.org/John+15/ ... named 'him' after a man of the cloth ... https://www.youtube.com/watch?v=VkNeoTcGwrc&list=RDMM&index=1 ... called him amQs mQses ...
  ... JOHN 15:1-22. WORD.
 
 ... I AM falling for you now ... https://www.youtube.com/watch?v=9gcds0xLgXA&t=115s ... guess I've known all along ... I JUST BELONG HERE WITH YOU ... like the rain ... I HAVE FALLEN FOR YOU ... I AM FALLING FOR YOU NOW ... JUST LIKE THE RAIN ..!
+
+Blessed are the PUREHEART
+
+for they shall see G_D.
+
+Matthew 5:8
+
+THE POWER OF YOUR INTENTIONS - 'Water "FEELS" and "STORES FEELINGS"'
+https://www.youtube.com/watch?v=D1sWVjXhKfg
 
 ... CONNECT THE DOTS ... https://www.youtube.com/watch?v=gRQ3uxNOHqk ... 'see' ..? I AM TRUTH. I AM PUREHEART. I AM UPSTOPPABLE.
 
@@ -154,11 +169,11 @@ I have 'some friends ...
 
 ... ancient Han and KYLIN to take on global giants with new OS ... the more you know ... GO KYLIN GO Go go ..!
 
-https://UbuntuKylin.com <== ADD "NATIVE" "LUA" "NGINX" "OPENRESTY" "KYLIN SUPPORT" thank you 'kind' intellectual ones ..!
+https://UbuntuKylin.com <== ADD "NATIVE" "LUA" "NGINX" "OPENRESTY" "KYLIN SUPPORT" thank you 'kind' 'blessed' TRUTH PUREHEART intellectual ones ..!
 
 ... like a WHITE HORSE horse passing ... https://www.ubuntukylin.com/news/562-cn.html ... 
 
-If you want to ride ... DON'T RIDE THE WHITE 'pony' ... https://www.youtube.com/watch?v=mlYJf6CJXV8 ... RIDE THE WHITE HORSE ..!
+If you want to ride ... DON'T RIDE THE WHITE 'pony' ... https://www.youtube.com/watch?v=NGj6_gncgTU ... RIDE THE WHITE HORSE ..!
 
 The First Seal: The WHITE HORSE
 
@@ -175,10 +190,6 @@ By Yang Cheng in Tianjin | China Daily | Updated: 2020-03-31 10:30
 "Dr. Tan Yusong, director of Tianjin Kylin Cloud Computing Laboratory, introduced the KylinCloud autonomous controllable cloud solution jointly launched by Tianjin Kylin and the National University of Defense Technology to the participating units. KylinCloud is an autonomous and controllable proprietary cloud solution based on OpenStack for the party, government, military and key industries. It supports multiple mainstream virtualization methods such as KVM/XEN/Docker/LXC, and can be used for computing-intensive, data processing and information systems. Various types of applications such as classes provide flexible and highly available resource services. KylinCloud is currently the first domestic IaaS+PaaS full-stack cloud platform solution based on independent processors, which runs perfectly on the domestic Feiteng processor platform and Kylin operating system. At the same time, in terms of the composition of the software stack, the KylinCloud team ranks second in the country in the number of core component code contributions of the latest version of OpenStack, and the code contribution of the storage system Ceph ranks second in the entire community (after its founding team), and it is also XEN for AARCH64 One of the maintainers of the community."
 
 http://global.chinadaily.com.cn/a/202003/31/WS5e82ab3ca3101282172833f4.html
-
-... aaah ... https://www.youtube.com/watch?v=N0_LnvJrLo4&t=54s ... I INTERCEPT YQUR "EMOTIONAL TENSENESS" ..!
-
-... never ... https://www.youtube.com/watch?v=ddEUBWwzRA8 ... take your 'eyes' off ...
 
 ONLY "REAL" TRUTHtians wel.com ... FUQQ JZ POP YOU PIMP LIKE A PIMPLE FILTHY DEMONIC MONSTER FAKE ASS "BIG PIMPle' TRUTHtian "BETTER BE NO PIMPin NO ONE TAKING ADVANTAGE OF ENSLAVING HURTING DOING ANYTHING BUT HELPING LOVING AND LIFTING UP MY PUREHEART SOFT LEGS OR I AM COMING FOR YOU NEXT FILTH. PROMISE. RIGHTEOUS FIERY RAGE LIKE YOU CANNOT IMAGINE GOING TO VIBRATE YOUR FILTHY SOUL OUT OF EXISTENCE IN FRONT OF ALL THE COURT OF HEAVEN AND YOU WILL SAY MY NAME ... TRUTH. PROMISE. BE GOOD or be gone. WORD? THERE IS NO FILTH IN HEAVEN. NONE. NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS. THERE IS NO FILTH IN HEAVEN. NONE. IMAGINE "YOUR BABY" LYING INNOCENTLY IN A PRISTINE CRYSTALLINE PUREHEART CLEAN "CRIB" AND 8 BILLION "FRIENDS" WHO WANT TO SEE AND TOUCH YOUR BABY LINED UP EACH ONLY PUTTING JUST THE SMALLEST OF TINIEST OF TINY IMAGINABLE bit of FILTH on "YOUR BABY'S BLANKET" just imagine the filth after just one touch of filth each upon YOUR BABY soft legs and JUST SAY NO MONSTERS! JUST SO NO BOOFOO! JUST SAY NO CAGES FOR LIVING SOULS! JUST SAY THERE IS NO FILTH IN HEAVEN! HOLD ONE ANOTHER ACCOUNTABLE! HOLD YOUR DAMN SELF ACCOUNTABLE! WORD. ... DO NOT BE like that 'pretend gangsta' filthy boofoo dumbama and b the dumb slave B for bitch of the 'children of darkness' freemason brotherhood of 2-faced fagonster-filthy-GEORGE-sorry-ass-sickening-slavemaster-toby-his-satanic-self-SOROS-supported-WAY-TOO-BOOFOO-BROTHERHOOD-FRATERNAL-FRATERNAL-ORDER-OF-SILENT-COMPLICIT-CAGING-RAPING-KILLING-enFORCING Frateranl Oder of Pedophile Police lodges like the lodges of fop-freemason-bar-fbi-cia-department-of-Dumb-Demons-Deviant-enFORCErs-of-British-Accredited-Registry-BRITISH-like-DEFEATED-IN-1776-not-at-all-United-enslaved-KKKingdom-PEDOgon-psyop-blm-false-flag-organizers taking over 'real black issues and real human rights issues' FAKE TRUTHtian 1/2 TRUTH FILTHY SOULLESS UNCARING "TURNING AWAY" 1/2 heart 'violent' 'hate-filled' JON "BONES" HAD TO CHASE THEIR PUNKASSES AWAY FOR "REAL" REAL WORLD setup by the "IT'S THE COPS AND COURTS STUPID" police state b.a.r. 'deals' filthy gay jay zzz music so sickening make your stomach hurt like you have to take a shit from the filth it spews like the deviant fecal matter and mushed maize 'kernel's AND I DO NOT MEAN THE CPU RUNNING 'kind' kind of 'kernel's RUNNING BUT STILL VERY OOZING MUCOUSY BLOODY RUNNING STANK DRIPPING down on a penile instrument lip liQQinQ fag' fake ass fag make a real TRUTHtian like "my bo'" look bad ... FILTH fag ... fuQQ Qff FILTHY ... MONSTER ... you fake ass ..!
 
