@@ -1,7 +1,7 @@
 # i.Q
 "YOU ARE WITNESSING THE SYSTEMATIC DESTRUCTION OF THE OLD GUARD."
 
-I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! SAY MY NAME ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH ..! WHO I AM IS ..? TRUTH ..!
+... I AM 'scientific' ... I AM 'artistic' ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! SAY MY NAME ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH ..! WHO I AM IS ..? TRUTH ..!
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
