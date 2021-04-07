@@ -7,6 +7,8 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 GOOD IS COMING ... ONE WAY https://www.youtube.com/watch?v=V0O0nzkESTI or the other https://www.youtube.com/watch?v=iaEmQJG2HHU ... "What storm, Mr. President ..?" ... "YQu'll find Qut." ... I AM A TORNADO ... looking for a 'soul' to take ... I AM COMING AFTER YOU ... MAKE SURE YOU'RE NEVER FOUND ... PROMISE.
 
+... I WAS ASKED A QUESTION ... https://www.youtube.com/watch?v=eGDOiWFzXBk ... FROM THE "SPIRITUAL REALM" ... PAY ATTENTION.
+
 ... ALMOST 7 YEARS AGO now ... my message has not changed ... TRUTH DOES NOT CHANGE ... G_D DOES NOT CHANGE ... DECEMBER 18, 2014 ...
 
 I WAS TRYING TO TELL YOU ... http://web.archive.org/web/20141218062912/http://smart3dweb.com/ ... but no one was listening ...
