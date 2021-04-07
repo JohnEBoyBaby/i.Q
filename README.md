@@ -55,7 +55,7 @@ ancient Hebrew ISRAEL
 
 כמו שכתוב כך זה ייעשה.
 
-ancinet Hindi INDIA
+ancient Hindi INDIA
 
 जैसा लिखा गया है वैसा ही किया जाएगा।.
 
