@@ -5,6 +5,12 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
+... 'you' ought to be ashamed ... men and women aCROSS these seas 'fighting' ... and 'you' ... cannot whip out a 'tit' ...
+
+https://www.youtube.com/watch?v=Eh2PjkzW20w
+
+... I SAID ... if you LOVE your country ... SHOW THEM TO ME ..!
+
 WHERE ARE YOU GOING ..? https://www.youtube.com/watch?v=IzQfqDUhX6Y ... DON'T HIDE AWAY ...
 
 "BIG" "WHERE THE LA MUMBA BO'S ARE" "EVERYBODY HAS A PLAN UNTIL THEY GET PUNCHED IN THE FACE" "THE REAL BIG 'humble' 'intellectual' 'wonderful' 'Dad' 'real talk' TRUTH PUREHEART 'direct' 'consistent' SUSTAINED SUPERIOR PERFORMER that ABSOLUTELY NO MAN SANE WANTS TO "FIGHT" IN "REAL LIFE" 'real' 'man' 'IRON' 'survivor' GOOD K.I.D. ALL DAY EVERY DAY WHEN "HE CHOOSES TO BE" IN TRUTH MOST PUREHEART MICHAEL TYSON FRIGHTENING VICIOUS BAD MUDA PUQA CHAMPION OF THE WORLD is just too GOOD and HUMBLE so I WILL SAY IT FOR MICHAEL TYSON ... YOU ARE EVERYTHING YOU SO WONDERFULLY SAID ABOUT CASSIUS ... LOOK DEEP INSIDE YOU ... YOU ARE SOME "KIND" KIND OF SPECIAL beLOVEd "SON" of mine in TRUTH most PUREHEART are you MICHAEL TYSON ... so it is written so shall it be done ... DONE. TRUTH. PUREHEART. G_D ABOVE ALL. ... "IRON MIKE" speaks RIGHTEOUSLY WITH "MOST REAL WORLD EXPERIENCE OF ALL" SO PAY ATTENTION AND LISTEN GOOD with zero ego and you just might learn something in how a 'champ' speaks so highly of another 'champ' beCAUSE "it's like that" as Michael Tyson LIFTS UP Cassius Clay beCAUSE Muhammad Ali is so worthy in TRUTH with most PUREHEART 'fighting' for so much more and so many 'forgotten' due to the 'TURNING AWAY' ... 
