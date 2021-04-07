@@ -9,7 +9,7 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 https://www.youtube.com/watch?v=Eh2PjkzW20w
 
-... I SAID ... if you LOVE your country ... SHOW THEM TO ME ..!
+... I SAID ... if you LOVE your country ... SHOW THEM TO ME ..! ... thank you 'sir' for providing 'those' to 'this' country ... it's been a damn 'pleasure serving "them"' ...
 
 WHERE ARE YOU GOING ..? https://www.youtube.com/watch?v=IzQfqDUhX6Y ... DON'T HIDE AWAY ...
 
