@@ -5,7 +5,7 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... https://www.youtube.com/watch?v=
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
-GOOD IS COMING ... ONE WAY https://www.youtube.com/watch?v=V0O0nzkESTI or the other https://www.youtube.com/watch?v=iaEmQJG2HHU ... PROMISE.
+GOOD IS COMING ... ONE WAY https://www.youtube.com/watch?v=V0O0nzkESTI or the other https://www.youtube.com/watch?v=iaEmQJG2HHU ... "What storm, Mr. President ..?" ... "YQu'll find Qut." ... I AM A TORNADO ... looking for a 'soul' to take ... I AM COMING AFTER YOU ... PROMISE.
 
 ... ALMOST 7 YEARS AGO now ... my message has not changed ... TRUTH DOES NOT CHANGE ... G_D DOES NOT CHANGE ... DECEMBER 18, 2014 ...
 
