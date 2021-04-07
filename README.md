@@ -11,6 +11,26 @@ I WAS TRYING TO TELL YOU ... http://web.archive.org/web/20141218062912/http://sm
 
 ... SERMON ON THE MOUNT ... https://www.youtube.com/watch?v=AMQdG3WFyQQ ... narrow is the GATE ... https://www.biblegateway.com/passage/?search=Matthew+5-7&version=GNV ... greatest are 'servants' TRUTH ... "but there was 1 RIGHTEOUS 'man' in the 'world' ... CHICO'S SERMON ... "WAIT 'TIL YOU SEE IT 'tomorrow'" ... 'twas the day after ... https://www.youtube.com/watch?v=6mhOG-UqX4g ... "BROTHER BROWN, SIT THEE DOWN" ... "NEVER RELEASE A PIGEON INTO THE WIND AND LOOK UP" ... "JULIO, MY FRIEND, ARE YOU ENJOYING THE CRUISE ..?" ... "THIS IS LOUSY 'man'" ... "IT 'IS' 'my job', 'man' ... "BUT REMEMBER A "BIRD" IN THE HAND CAN BE A "HECK QF A MESS" ... lookinQ LQQkinQ "LOOKING GOOD" ..! PUREHEART 'children' ... now that was TRUTH ... now that was funny ... but some 'other' 'folks' 'issues' ARE NOT 1 BIT FUNNY ... you know what I AM getting at, RIGHT ..? QrQwinQ very wise are yQu nQw, yQunQ QrasshQpper ...
 
+IF YOU "BELIEVE WITH ALL OF YOUR MOST PUREHEART", THEN YOU WILL "SEE" "KIND ONE". PROMISE.
+
+男人和女人 man and woman
+
+人子 son of man
+
+Can you 'see' 女 her 'crossed legs'?
+
+Can you 'see' 子 his 'support staff'?
+
+'See' her 女 crossed legs 女 in GOOD 好 ?
+
+'See' his 子 support staff 子 in GOOD 好 ?
+
+I HAVE PUT TOGETHER A "MOBILE/DESKTOP APP DEVELOPMENT AND DATABASE DEVELOPMENT STARTER KIT" JUST FOR YOU SO PLEASE TAKE THE TIME TO DOWNLOAD THIS VERY IMPORTANT "STARTER KIT I PERSONALLY DEVELOPED TO HELP YOU ALL GET STARTED" 264.95 MEGABYTE ZIP FILE. IT UNZIPS TO A "LUA" DIRECTORY. RENAME IT ".LUA" INSTEAD OF "LUA" SO IT WILL BE EASY TO FIND LATER AS WITH THE . PREFIX IT WILL APPEAR AS THE FIRST DIRECTORY (FOLDER) ON YOUR C:\ DRIVE. COPY IT TO YOUR C:\ DRIVE SO IT LOOKS LIKE C:.LUA AFTER YOU DOWNLOAD THE .ZIP FILE USING THE LINK:
+
+https://www.udrop.com/5bzh/lua.zip
+
+TO DOWNLOAD EVERYTHING YOU NEED (LOVE2D, SOLAR2D, SQLITE3) TO "GET STARTED" WITH A "STARTER KIT" IN 1 .ZIP FILE ... UNZIP THE FILE AND YOU WILL HAVE A "LUA" DIRECTORY (AKA: FOLDER) THAT CONTAINS 3 SHORTCUTS AND 3 OTHER DIRECTORIES (FOLDERS). BY THE TIME YOU FINISH READING THIS EMAIL, YOU WILL BE WAY AHEAD OF WHERE YOU THINK YOU ARE RIGHT NOW YOU JUST NEED SOMEONE TO MAKE "APP DEVELOPMENT" EASY AND FUN AND UNDERSTANDABLE AND HOLD YOU HAND A LITTLE BIT. THAT'S ALL. YOU ARE MORE THAN SMART ENOUGH. PROMISE. SO MAKE SURE TO GIVE THAT LINK OUT TO ANYONE YOU KNOW WHO IS INTERESTED IN LEARNING TO MAKE THEIR OWN APPS. I AM ALWAYS HERE TO HELP YOU ANYTIME FOR FREE SO DO NOT BE SHY AND DIG IN AND "GET YOU SOME"! ONCE I HAVE A BETTER GRASP ON OPENRESTY AND NGINX, YOU CAN EXPECT OPENRESTY AND NGINX TO BE INCLUDED IN HOPEFULLY JUST AS SIMPLE AND USEFUL TO GET UP AND RUNNING FAST OF A FASHIONABLE FASHION 'kind' one ...
+
 HONESTLY, can you 'see' the progression of our languages from pictographic ideas in ancient Han to sound tonal emphasis in ancient Hangul to the syllabic tonal form of ancient Mongul that SURE LOOKS EXACTLY LIKE THE ancient Slavic and just look at the form of the letters of the languages and see how distinct and yet how similar some are showing a clear progression of thought from one to another ..? HMMM Hmmm hmmm ... the more you know ...
 
 As it is written so it shall be done.
@@ -604,11 +624,29 @@ HOW SHONG NEE ... https://www.youtube.com/watch?v=fdQgPu3iUYk ... I MiSS U 好�
 
 PIQA PiQa piQa peeka PEAKa PICK A" joyce chu https://www.youtube.com/watch?v=qkKF-5nWmTU and from pick a chu daughter of ancient Han most PUREHEART one I LOVE 'blessed' 'gift'ed 'play'ful 'child'ish yet most 'firm' yet so soft gentle caring nurturing LOVING caring giving PUREHEART nearing perfect cool like so many GOOD WOMEN IN THE WORLD I LOVE SO VERY MUCH LIKE YOU 'soft legs' reading this now I LOVE YOU OH HOW I LOVE YOU most 'feeling' 'crossed legs' ancient Han came the GOOD WOMEN of HIRAGANA ... https://www.youtube.com/watch?v=9WUNFVlgQXc DID I MENTION I LOVE SOFT LEGS ..? I LOVE SOFT LEGS choo Choo CHOO TRUTH TRAIN COMING THROUGH https://38jiejie.com/2021/03/21/sam-lins-girlfriend-joyce-chu-sparks-backlash-after-posting-song-cover-from-we-best-love-fighting-mr-2nd-ost/ CHQQ ChQQ chQQ https://www.youtube.com/watch?v=AZ-OVXr6zGI&t=93s ... 1:33 marQ 'fQQl' ..? 'try'inQ ..? 'tQ stQp Qur battle' ..? PUREHEART WINS! LOVE WINS! GOOD WINS! G_D WINS! ... 'twas the day after ... https://steemit.com/financialfreedomforall/@smart3dweb/twas-the-day-after ... hQ! HQ! HQ! MERRY TRUTHmas ... https://www.youtube.com/watch?v=oyLct2NlbpA ... 15 does this look like a 'cloud' near the 'sun' in the lQwer left cQrner at the 2:49 marQ to 'you' young grasshopper ... https://www.youtube.com/watch?v=tR-qQcNT_fY&t=229s ... and tQ 'all' who chQQse wisely to follow in the WAY of TRUTH in LIFE with G_D a GOOD NIGHT ..! a piQQachQQ QannQt defeat ... in battle ... https://www.youtube.com/watch?v=ZfLFOKGIG-M&t=33s ... I did not need to defeat you ... https://www.youtube.com/watch?v=K0XN2NGqDcM BABANGON TAYO ..! ... https://www.youtube.com/watch?v=WEOyI6QtjkE ... RISE UP ..! SUSULONG TAYO ..! LET'S GO ..! ... you may find yourself ... you may ask yourself ... how did I get here ..? https://www.youtube.com/watch?v=5IsSpAOD6K8 ... once in a LIFEtime NOT THE SAME as it ever was ... WATER 'FLOWING' underground ... after the money's gone ... "WATER" "FLOWING" UNDERGRQUND ... THERE IS WATER UNDERGRQUND ... LET THE WATER HQLD ME DQWN ... WATER FLOWING UNDERGROUND ...
 
+WORTH REPEATING ...
+
+IF YOU "BELIEVE WITH ALL OF YOUR MOST PUREHEART", THEN YOU WILL "SEE" "KIND ONE". PROMISE.
+
+男人和女人 man and woman
+
+人子 son of man
+
+Can you 'see' 女 her 'crossed legs'?
+
+Can you 'see' 子 his 'support staff'?
+
+'See' her 女 crossed legs 女 in GOOD 好 ?
+
+'See' his 子 support staff 子 in GOOD 好 ?
+
 I HAVE PUT TOGETHER A "MOBILE/DESKTOP APP DEVELOPMENT AND DATABASE DEVELOPMENT STARTER KIT" JUST FOR YOU SO PLEASE TAKE THE TIME TO DOWNLOAD THIS VERY IMPORTANT "STARTER KIT I PERSONALLY DEVELOPED TO HELP YOU ALL GET STARTED" 264.95 MEGABYTE ZIP FILE. IT UNZIPS TO A "LUA" DIRECTORY. RENAME IT ".LUA" INSTEAD OF "LUA" SO IT WILL BE EASY TO FIND LATER AS WITH THE . PREFIX IT WILL APPEAR AS THE FIRST DIRECTORY (FOLDER) ON YOUR C:\ DRIVE. COPY IT TO YOUR C:\ DRIVE SO IT LOOKS LIKE C:.LUA AFTER YOU DOWNLOAD THE .ZIP FILE USING THE LINK:
 
 https://www.udrop.com/5bzh/lua.zip
 
 TO DOWNLOAD EVERYTHING YOU NEED (LOVE2D, SOLAR2D, SQLITE3) TO "GET STARTED" WITH A "STARTER KIT" IN 1 .ZIP FILE ... UNZIP THE FILE AND YOU WILL HAVE A "LUA" DIRECTORY (AKA: FOLDER) THAT CONTAINS 3 SHORTCUTS AND 3 OTHER DIRECTORIES (FOLDERS). BY THE TIME YOU FINISH READING THIS EMAIL, YOU WILL BE WAY AHEAD OF WHERE YOU THINK YOU ARE RIGHT NOW YOU JUST NEED SOMEONE TO MAKE "APP DEVELOPMENT" EASY AND FUN AND UNDERSTANDABLE AND HOLD YOU HAND A LITTLE BIT. THAT'S ALL. YOU ARE MORE THAN SMART ENOUGH. PROMISE. SO MAKE SURE TO GIVE THAT LINK OUT TO ANYONE YOU KNOW WHO IS INTERESTED IN LEARNING TO MAKE THEIR OWN APPS. I AM ALWAYS HERE TO HELP YOU ANYTIME FOR FREE SO DO NOT BE SHY AND DIG IN AND "GET YOU SOME"! ONCE I HAVE A BETTER GRASP ON OPENRESTY AND NGINX, YOU CAN EXPECT OPENRESTY AND NGINX TO BE INCLUDED IN HOPEFULLY JUST AS SIMPLE AND USEFUL TO GET UP AND RUNNING FAST OF A FASHIONABLE FASHION 'kind' one.
+
+... WET, RUB, SQRUB A 'scrub', LATHER, RINSE, REPEAT AS NECESSARY ...
 
 JOY TO THE WORLD ... https://www.youtube.com/watch?v=Ke5jCvlbXX0 ... LET EVERY PUREHEART PREPARE ... ROOM ... rules the world with TRUTH and GRACE ... and WONDERS of ... LOVE ... https://www.youtube.com/watch?v=HXdw4ZTQLVo ... and Wonders ... https://www.youtube.com/watch?v=ffvULj021P0 ... and wonders of ... https://www.youtube.com/watch?v=niOb-ft9N64 ... LOVE ... EMMANUEL https://www.youtube.com/watch?v=-k8EQ1aPzcw and please dQ Qive sQme GOOD LOVE tQ Derek Banas ... https://www.youtube.com/watch?v=iMacxZQMPXs ... A GOOD K.I.D. and very GOOD at Keeping It Simple Silly K.I.S.S.ing ..! THANK YOU 'kind' one ... you cover so very many languages most multi-lingual https://www.youtube.com/watch?v=tID-saAFK28 'blessed' 'intelleQtual' beLOVEd 'giving' 'hardworking' 'efficient' 'playful' yet to the point CAN DO most learned and time well spent with succinct, knowledgeable, experienced, back to basics, confident, well-spoken gentle baby man ... GOOD BANANAS BANAS ..!
 
