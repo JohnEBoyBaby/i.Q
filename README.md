@@ -7,6 +7,15 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 ... "MAKE IT COUNT 'SON'!" ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=2&t=128s ... MA'AM. YES, MA'AM.
 
+... ancient Han and KYLIN to take on global giants with new OS ... the more you know ... GO KYLIN GO Go go ..!
+
+https://UbuntuKylin.com
+
+By Yang Cheng in Tianjin | China Daily | Updated: 2020-03-31 10:30
+"Dr. Tan Yusong, director of Tianjin Kylin Cloud Computing Laboratory, introduced the KylinCloud autonomous controllable cloud solution jointly launched by Tianjin Kylin and the National University of Defense Technology to the participating units. KylinCloud is an autonomous and controllable proprietary cloud solution based on OpenStack for the party, government, military and key industries. It supports multiple mainstream virtualization methods such as KVM/XEN/Docker/LXC, and can be used for computing-intensive, data processing and information systems. Various types of applications such as classes provide flexible and highly available resource services. KylinCloud is currently the first domestic IaaS+PaaS full-stack cloud platform solution based on independent processors, which runs perfectly on the domestic Feiteng processor platform and Kylin operating system. At the same time, in terms of the composition of the software stack, the KylinCloud team ranks second in the country in the number of core component code contributions of the latest version of OpenStack, and the code contribution of the storage system Ceph ranks second in the entire community (after its founding team), and it is also XEN for AARCH64 One of the maintainers of the community."
+
+http://global.chinadaily.com.cn/a/202003/31/WS5e82ab3ca3101282172833f4.html
+
 ... aaah ... https://www.youtube.com/watch?v=N0_LnvJrLo4&t=54s ... I INTERCEPT YQUR "EMOTIONAL TENSENESS" ..!
 
 ... never ... https://www.youtube.com/watch?v=ddEUBWwzRA8 ... take your 'eyes' off ...
