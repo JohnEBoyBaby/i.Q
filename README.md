@@ -54,7 +54,7 @@ To the "church" in Laodicea
 
 17 You say, ‘I am rich; I have grown wealthy and need nothing.’ But you do not realize that you are wretched, pitiful, poor, blind, and naked.…
 
-REVELATION 3:15-17
+REVELATION 3:15-17 ... REV 3:16 ... 3,6,9 ... you were saying Nikola ... Mr. Tesla ... 'kind' one ... please do continue ... 1+1+1=3, 6, 3+6=9 ... BUCK BUCK ... making moves on the wrong wegro ... do the 'evil' that men do ... grab your phone and let's get geeked ... I GOT $5 ON IT ..! "What's UP baby, it's 'me' "your bo'" ..?" ... WORD.
 
 https://biblehub.com/revelation/3-16.htm
 
