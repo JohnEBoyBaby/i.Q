@@ -13,7 +13,7 @@ https://www.youtube.com/watch?v=Ckom3gf57Yw
 
 https://www.sott.net/article/389923-Systemic-coverup-Network-of-police-pedophiles-in-Louisville-KY-allowed-to-sexually-abuse-children-for-years
 
-THE UNFORGIVEN ... and Qrumpled StiltsQin "EVERYTIME YOU OR YOUR 'children' screamed 'BACK THE BLUE MONSTERS INC' or '... and don't be too nice ...' I AM GOING TO PUT YOUR MOM AND DAD TRUMP IN THE BOTTOM OF THE PIT FOR YOUR FILTH AND YOUR THAT OF YOUR KIND ... YOU RICH 2-FACED FILTH ... Q on that a while ... SEE YOU BACK 'HOME' ... PROMISE.
+THE UNFORGIVEN ... and GUMP! Qrumpled StiltsQin "EVERYTIME" YOU OR YOUR 'children' screamed 'BACK THE BLUE MONSTERS INC' or '... and don't be too nice ...' I AM GOING TO PUT YOUR MOM AND DAD TRUMP IN THE BOTTOM OF THE PIT FOR YOUR FILTH AND YOUR THAT OF YOUR KIND ... YOU RICH 2-FACED FILTH ... Q on that a while ... SEE YOU BACK 'HOME' ... PROMISE.
 
 I AM A TORNADO ... looking for a 'soul' to take ...
 
