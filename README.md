@@ -7,6 +7,20 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 ... wel.com ... https://www.youtube.com/watch?v=Y0Yg9wjctRw ... to the future ...
 
+LABEL ME ... I LABEL YOU ... I DUB THEE "UNFORGIVIN" ...
+
+https://www.youtube.com/watch?v=Ckom3gf57Yw
+
+https://www.sott.net/article/389923-Systemic-coverup-Network-of-police-pedophiles-in-Louisville-KY-allowed-to-sexually-abuse-children-for-years
+
+THE UNFORGIVEN ... and Qrumpled StiltsQin "EVERYTIME YOU OR YOUR 'children' screamed 'BACK THE BLUE MONSTERS INC' or '... and don't be too nice ...' I AM GOING TO PUT YOUR MOM AND DAD TRUMP IN THE BOTTOM OF THE PIT FOR YOUR FILTH AND YOUR THAT OF YOUR KIND ... YOU RICH 2-FACED FILTH ... Q on that a while ... SEE YOU BACK 'HOME' ... PROMISE.
+
+I AM A TORNADO ... looking for a 'soul' to take ...
+
+https://www.youtube.com/watch?v=iaEmQJG2HHU ... "What storm, Mr. President ..?" ... "YQu'll find Qut." ...  I AM COMING AFTER YOU ... MAKE SURE YOU'RE NEVER FOUND ... PROMISE.
+
+
+
 To the "church" in Laodicea
 
 ... THEN G_D SAID ...
