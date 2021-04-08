@@ -27,9 +27,11 @@ Dear FAGS AT STACKOVERFLOW, I OWE YOU NOTHING. I OWE YOU ZERO RESPECT. YOU ARE 1
 
 8 Riches may ransom a man’s life, but a poor man hears no threat. 
 
-9 The LIGHT OF THE RIGHTEOUS SHINES BRIGHTLY, but the lamp of the wicked is extinguished. 10Arrogance leads only to strife, but wisdom is with the well-advised.…
+9 The LIGHT OF THE RIGHTEOUS SHINES BRIGHTLY, but the lamp of the wicked is extinguished. 
 
-PROVERBS 13:8-9
+10 Arrogance leads only to strife, but wisdom is with the well-advised.
+
+PROVERBS 13:8-10
 
 https://biblehub.com/proverbs/13-9.htm
 
