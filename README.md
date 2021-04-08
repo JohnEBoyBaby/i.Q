@@ -7,6 +7,32 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 ... wel.com ... https://www.youtube.com/watch?v=Y0Yg9wjctRw ... to the future ...
 
+To the "church" in Laodicea
+
+... THEN G_D SAID ...
+
+15 I know your deeds; you are neither cold nor hot. How I wish you were one or the other!
+
+16 So because you are lukewarm — neither hot nor cold— I AM about to vomit you out of MY MOUTH!
+
+17 You say, ‘I am rich; I have grown wealthy and need nothing.’ But you do not realize that you are wretched, pitiful, poor, blind, and naked.…
+
+REVELATION 3:15-17
+
+https://biblehub.com/revelation/3-16.htm
+
+Dear FAGS AT STACKOVERFLOW, I OWE YOU NOTHING. I OWE YOU ZERO RESPECT. YOU ARE 1/2 TRUTH. WORTHLESS TO ME. USELESS. SICK. DECEIVERS. FIND A DEEP HOLE. JUMP IN A DEEP HOLE. NO ONE WILL EVER MISS YOU. EVER Ever ever beCAUSE YOU ARE FILTHY FREE-SPEECH CENSORING "SHITBIRDS" COVERED IN BLOOD MONEY RECRUITERS. I AM NOT YOUR FRIEND. TRUTH HAS NO FRIENDS. YOU BEST REMEMBER THAT YOU FILTHY SLACKING STACK OF SHIT OVERFLOWING WITH FILTHY FAG egos JUST "DELETED" my 1 and only QUESTION for 'random USE of CAPS' ... DOWN GOES STACKOVERFLOW ..! THEN I WILL WHOOP 'him' ..! FILTHY FAG FILTH FUQQwad CANADIAN making LOVE2D and SOLAR2D look 'bad' sad just sad GO FUQQ YQUR 'ugly dumb deviant mama' BAQQ TQ THE PIT ... https://stackoverflow.com/users/354577/chris ... FAGGOT FECAL FUQQstiQQ FILTHY FREE SPEECH CENSORING FILTH GOING IN THE PIT with your 1/2 TRUTH 1/2 HEART WORTHLESS LIKE YOUR FILTHY SILENCE, COMPLICITNESS, TURNING AWAY, ME Me me MONEY Money money GARGAGE PRINCIPLES WASTED LIFE OF ZERO MORAL COURAGE SOUL and your sickening 'moderate REVELATION 3:15-17 "LUKEWARM" moderator fags' and 'their' 'cliQue' 'policies' ..! And THEN G_D SAID "Ye' shall be no priest to me" ..! ONLY 1 OF US IS RIGHT ..! See you back 'home' MONSTER ..! SHEOL AWAITS YOU ..! https://www.youtube.com/watch?v=y3OAWuSv4qw I GQT $5 QN IT ..!
+
+"A Father's" "DISCIPLINE"
+
+8 Riches may ransom a man’s life, but a poor man hears no threat. 
+
+9 The LIGHT OF THE RIGHTEOUS SHINES BRIGHTLY, but the lamp of the wicked is extinguished. 10Arrogance leads only to strife, but wisdom is with the well-advised.…
+
+PROVERBS 13:8-9
+
+https://biblehub.com/proverbs/13-9.htm
+
 ... watch me dance ... https://www.youtube.com/watch?v=uGXGNJypkzA ... dancing for you CHAMP ... https://www.youtube.com/watch?v=G6oo7kXy9u0 ... tell 'em CHAMP ..! tell 'em WHO I AM ... tell 'em WHO I AM IS ... tell 'em ... SAY MY NAME ..! TRUTH.
 
 ... 'you' ought to be ashamed ... men and women aCROSS these seas 'fighting' ... and 'you' ... cannot whip out a 'tit' ...
