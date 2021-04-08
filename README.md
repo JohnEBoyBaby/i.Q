@@ -13,6 +13,10 @@ Ask not what your CREATOR can do for 'you'.
 
 Ask what 'you' "CAN DO" for your CREATOR.
 
+... just take a minute and catch the vibe ... https://www.youtube.com/watch?v=YWqbZG6nsFc ...
+
+... https://www.youtube.com/watch?v=oIQuQqhnLHw ... 41 spiraling staircase ... the more you know ... connect the dots ...
+
 https://github.com/JohnEBoyBaby/i.Q/blob/main/png/Remember.now.thyCreator.in.the.days.of.thy.youth.Ecclesiastes.12.1.png
 
 REMEMBER NOW THY CREATOR in the days of 'thy' youth.
