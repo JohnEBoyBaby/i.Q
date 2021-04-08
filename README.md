@@ -11,7 +11,7 @@ If not 'now' WHEN?
 
 Ask not what your G_D can do for 'you'.
 
-Ask what can 'you' do for your G_D.
+Ask what 'you' "CAN DO" for your G_D.
 
 WORD.
 
