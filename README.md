@@ -13,6 +13,12 @@ Ask not what your CREATOR can do for 'you'.
 
 Ask what 'you' "CAN DO" for your CREATOR.
 
+https://github.com/JohnEBoyBaby/i.Q/blob/main/png/Remember.now.thyCreator.in.the.days.of.thy.youth.Ecclesiastes.12.1.png
+
+REMEMBER NOW THY CREATOR in the days of 'thy' youth.
+
+Ecclesiastes 12:1
+
 WORD.
 
 ... wel.com ... https://www.youtube.com/watch?v=Y0Yg9wjctRw ... to the future ...
