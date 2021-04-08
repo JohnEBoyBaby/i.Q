@@ -5,6 +5,16 @@
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
+If not 'me' WHO ..?
+
+If not 'now' WHEN?
+
+Ask not what your G_D can do for 'you'.
+
+Ask what can 'you' do for your G_D.
+
+WORD.
+
 ... wel.com ... https://www.youtube.com/watch?v=Y0Yg9wjctRw ... to the future ...
 
 LABEL ME ... I LABEL YOU ... I DUB THEE "UNFORGIVEN" ...
