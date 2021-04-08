@@ -15,7 +15,7 @@ https://www.sott.net/article/389923-Systemic-coverup-Network-of-police-pedophile
 
 THE UNFORGIVEN ... and GUMP! Qrumpled StiltsQin "EVERYTIME" YOU OR YOUR 'children' screamed 'BACK THE BLUE MONSTERS INC' or '... and don't be too nice ...' I AM GOING TO PUT YOUR MOM AND DAD TRUMP IN THE BOTTOM OF THE PIT FOR YOUR FILTH AND ALL THE 1/2 TRUTH HYPOCRITIC 1/2 HEART CIA HANNITY FILTH SPEWED FROM THE STANK MOUTHS OF YOUR 'law' enFORCEr ill ilk ... YOU RICH 2-FACED FILTH ... Q on that a while Qtard ... SEE YOU BACK 'HOME' ... PROMISE. "FEELING FROGGY" "OLD MAN" ..? PEDO POLICE PENCE 2-FACED "KAREN" "MS. ENVELOPE" http://TimothyCharlesHolmseth.com SENDS 'his LOVE' and says tell 'em TRUTH ... FEELING FROGGY "OLD WOMAN" ..? JUMP BITCH ..! I WILL HAPPILY "DANCE" ALL AROUND YOUR DO-NOTHING WORTHLESS FUQQINQ ASS AND BEAT YOUR FILTHY LYING INEXCUSABLE FAILURE "BIG MOUTH" BACK TO THE PIT "BLUE MONSTER LOVER" ..! FILTH ..! 
 
-... get 'me' among your HIGH CLASS 'friends ... then you act real 'rude' to me ...
+... get 'me' among your HIGH CLASS 'friends ... then you act real 'rude' to 'me' ...
 
 https://www.youtube.com/watch?v=g3hBYTkI-sE
 
