@@ -5,7 +5,7 @@
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
-... so ya' thought ya' might like to go to a 'show' ... to 'feel' the 'warm' 'feel' of illusion ... that SPACE cadet GLOW ... https://www.youtube.com/watch?v=XeDrx7Jxk1g ... I've got some bad news for you sunshing ... PINK isn't well ... stayed back at the hotel ... so they sent 'us' along as a 'surrogate' band ... we're gonna find out ... where you 'fans' really ... https://www.youtube.com/watch?v=IGInsosP0Ac ... STAND ..!
+... so ya' thought ya' might like to go to a 'show' ... to 'feel' the 'warm' 'feel' of illusion ... that SPACE cadet GLOW ... https://www.youtube.com/watch?v=XeDrx7Jxk1g ... I've got some bad news for you sunshing ... PINK isn't well ... stayed back at the hotel ... so they sent 'us' along as a 'surrogate' band ... we're gonna find out ... where you 'fans' really ... https://www.youtube.com/watch?v=IGInsosP0Ac ... STAND ..! A 'real' "c story" ... my St. Francis DeSales High School 'german drinking stein' mug https://duckduckgo.com/?q=german+stein+mug&t=opera&iax=images&ia=images reads "ANOTHER BRICK IN THE WALL" as I 'felt' that WAY way back in the day as 'you' say ... LOVE YOU I DO ... OH HOW I LOVE YOU ... PROMISE. ... so ... ganda ... so malakas ... so ... beautiful ... so ... strong ... so ... soft legs ... so ... PUREHEART ... GOOD K.I.D. ... GOOD Q.I.D. ... STAND OUT ..! PLEASE STAND OUT ..! BE YOU ..! I LOVE YOU AS YOU ARE WERE BORN ..! the more you know ...
 
 ... wel.com ... https://www.youtube.com/watch?v=Y0Yg9wjctRw ... to the future ... be berry Quiet ... I AM hunting 'rabbits' ..!
 
