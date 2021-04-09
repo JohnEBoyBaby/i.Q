@@ -11,7 +11,7 @@ BE YOU ... BE NATURAL ... BE GOOD ... BE TRUTH ... BE PUREHEART ..! PAY VERY Ver
 
 I LOVE YOUR PUREHEART GINA MARIA ... https://www.youtube.com/watch?v=27sxum1gacE SUGAR ..! 
 
-I LOVE YOU SUGAR ..! https://www.youtube.com/watch?v=cu7d8eUHkwU ... SUSULONG TAYO ..! LET'S GO ..! LOVE YOU I DO OH HOW I LOVE YOU ..! WONDERFUL ABSOLUTELY PUREHEART WONDERFUL TRUTH ..! I LOVE YOU ..! NEVER FORGET ..! ANYWHERE ..! ANYTIME ..! FOREVER ..!
+I LOVE YOU SUGAR ..! GREAT "STORY" TOO ... I AGREE .. REALLY MIGHT BE A 'REAL' GOOD IDEA for a 'man' not to fuQQ a 'pretty' 'snake' you know MAYBE IT'S JUST ME BUT YOU KNOW BUT UH Uh uh you know I AM "just saying" DAYUMMM probably a GOOD idea for a cow not to fuQQ a cat or a dog or a 'monkey' too ... doesn't really seem to take a 'brain surgeon' or a 'rocket scientist' to figure that out but the first thing I alWAYs say is 'WOULD YOU JUST LOOK AT THAT ..? JUST LOOK AT IT ..! https://www.youtube.com/watch?v=cu7d8eUHkwU ... SUSULONG TAYO ..! LET'S GO ..! LOVE YOU I DO OH HOW I LOVE YOU ..! WONDERFUL ABSOLUTELY PUREHEART WONDERFUL TRUTH ..! I LOVE YOU ..! NEVER FORGET ..! ANYWHERE ..! ANYTIME ..! FOREVER ..!
 
 DO YOU BELIEVE IN COINCIDENCES ..? https://www.youtube.com/watch?v=HQdphbEMmbY ... "I AM THE PROUDEST MONEY YOU EVER SEEN" ... the more you know ..!
 
