@@ -7,7 +7,9 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 ... wel.com ... https://www.youtube.com/watch?v=Y0Yg9wjctRw ... to the future ... be berry Quiet ... I AM hunting 'rabbits' ..!
 
-BE YOU ... BE NATURAL ... BE GOOD ... BE TRUTH ... BE PUREHEART ..! PAY VERY Very very https://www.youtube.com/watch?v=8vTDpVoLHeI&t=5304s CLOSE ATTENTION TO DETAIL beLOVED ..!
+BARANGUY ... JEHOVAH WITNESS ... MORMOM ... FREEMASON ... FOP ... SOUTHERN BAPTIST ... CATHOSICK ... FAKE TRUTHtian ... B.A.R. ... I AM COMING FOR YOU ... GOOD IS COMING FOR YOU ... WE ARE COMING FOR YOU ... TRUTH IS COMING FOR YOU ... PROMISE.
+
+... now YOU GO GIRL ... YOU GO AND YOU MAKE SURE YOU ARE NATURAL NO FAKE NOTHING JUST YOU AS YOU WERE BORN TO BE YOU ... BE NATURAL ... BE GOOD ... BE TRUTH ... BE PUREHEART ..! PAY VERY Very very https://www.youtube.com/watch?v=8vTDpVoLHeI&t=5304s CLOSE ATTENTION TO DETAIL beLOVED ..!
 
 I LOVE YOUR PUREHEART GINA MARIA ... https://www.youtube.com/watch?v=27sxum1gacE SUGAR ..! 
 
