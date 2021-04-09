@@ -5,6 +5,8 @@
 
 Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
+WHATEVER IT TAKES BABY ... https://www.youtube.com/watch?v=4yf4hTqYTPs ... ALL OF MY LIFE ..! for the distance if necessary ... then I WILL WHOOP 'him' ... HOUSE OF LOVE ... 'twas the day after ..! THINK FOR YOURESELF! COME OUT OF THE "BEAST" MY PEOPLE ..!
+
 If not 'me' WHO ..?
 
 If not 'now' WHEN?
