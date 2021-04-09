@@ -7,13 +7,13 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 ... wel.com ... https://www.youtube.com/watch?v=Y0Yg9wjctRw ... to the future ... be berry Quiet ... I AM hunting 'rabbits' ..!
 
-BE YOU ... BE NATURAL ... BE GOOD ... BE TRUTH ... BE PUREHEART ..! PAY VERY Very very CLOSE ATTENTION TO DETAIL beLOVED ..!
+BE YOU ... BE NATURAL ... BE GOOD ... BE TRUTH ... BE PUREHEART ..! PAY VERY Very very https://www.youtube.com/watch?v=8vTDpVoLHeI&t=5304s CLOSE ATTENTION TO DETAIL beLOVED ..!
 
 I LOVE YOUR PUREHEART GINA MARIA ... https://www.youtube.com/watch?v=27sxum1gacE SUGAR ..! 
 
 I LOVE YOU SUGAR ..! https://www.youtube.com/watch?v=cu7d8eUHkwU ... SUSULONG TAYO ..! LET'S GO ..! LOVE YOU I DO OH HOW I LOVE YOU ..! WONDERFUL ABSOLUTELY PUREHEART WONDERFUL TRUTH ..! I LOVE YOU ..! NEVER FORGET ..! ANYWHERE ..! ANYTIME ..! FOREVER ..!
 
-DO YOU BELIEVE IN COINCIDENCES ..? https://www.youtube.com/watch?v=HQdphbEMmbY ... the more you know ..!
+DO YOU BELIEVE IN COINCIDENCES ..? https://www.youtube.com/watch?v=HQdphbEMmbY ... "I AM THE PROUDEST MONEY YOU EVER SEEN" ... the more you know ..!
 
 WHATEVER IT TAKES BABY ... https://www.youtube.com/watch?v=4yf4hTqYTPs ... ALL OF MY LIFE ..! for the distance if necessary ... then I WILL WHOOP 'him' ... HOUSE OF LOVE ... 'twas the day after ..! THINK FOR YOURESELF! COME OUT OF THE "BEAST" MY PEOPLE ..! USE YOUR "POWER" soft legs ... CRY ... your "POWER" https://www.youtube.com/watch?v=eNaFuPp7x6U ... "STRONGER THAN ANY 'bot' ANY 'man' HAS EVER MADE" ... "AND IT WON'T TAKE LONG TO UNDERSTAND JUST HOW AMAZED I AM" ... "OPEN UP YOUR EYES AND SEE" ... Hey hey ... SING IT 'angel' Amy Grant ... SING FOR ME baby girl ... oh la la ... NO MATTER MAN WHAT I 'SEE' ... OH I BELIEVE I Believe ... POWER ... helps 'me' 'see' yeah ... 'holds my hand' ... if WE BELIEVE EVERYTHING IS GOING TO BE ALRIGHT ... IT JUST MIGHT ... Pray. ... POWER ... PRAY. ... POWER ... CRY ... TENDERNESS ... NURTURING ... PUREHEART ... mom ... woman ... soft legs ... children ... ALL THAT IS GOOD OF G_D here and all around you though now 'we' 'seeth' 'not' KNOW 'we' do of what is to come for 'we' 'see' with 'new eyes' from 'within our soul' 'feeling' 'moving' 'working' as a blind man taps 'feels' 'moves' 'senses' tell 'em RAY ... ... YOUR POWER, "WOMAN", "MAN" IN THE END is in your consistent 'firm' 'forgiving' LOVE PUREHEART TRUTH and 'teardrops' of most PUREHEART 'nurturing' 'kind' 'soft touch' 'warm' AND THE MAN TOOK OFF HIS COAT 'smile' 'tenderness' ... no one with a GOOD SOUL can possibly 'keep fighting for even 1 second of time while you cry in front of them' ... you will know them by their 'fruits' ... you are more than you know ... PROMISE. ... you are welcome ... 
 
