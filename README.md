@@ -11,7 +11,7 @@ BE YOU ... BE NATURAL ... BE GOOD ... BE TRUTH ... BE PUREHEART ..! PAY VERY Ver
 
 I LOVE YOUR PUREHEART GINA MARIA ... https://www.youtube.com/watch?v=27sxum1gacE SUGAR ..! 
 
-I LOVE YOU SUGAR ..! https://www.youtube.com/watch?v=cu7d8eUHkwU ...
+I LOVE YOU SUGAR ..! https://www.youtube.com/watch?v=cu7d8eUHkwU ... SUSULONG TAYO ..! LET'S GO ..! LOVE YOU I DO OH HOW I LOVE YOU ..! WONDERFUL ABSOLUTELY PUREHEART WONDERFUL TRUTH ..! I LOVE YOU ..! NEVER FORGET ..! ANYWHERE ..! ANYTIME ..! FOREVER ..!
 
 DO YOU BELIEVE IN COINCIDENCES ..? https://www.youtube.com/watch?v=HQdphbEMmbY ... the more you know ..!
 
