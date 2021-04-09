@@ -7,7 +7,7 @@ Cassius Marcellus Clay, Muhammad Ali, TRUTH
 
 ... wel.com ... https://www.youtube.com/watch?v=Y0Yg9wjctRw ... to the future ... be berry Quiet ... I AM hunting 'rabbits' ..!
 
-BARANGUY ... JEHOVAH WITNESS ... MORMOM ... FREEMASON ... FOP ... SOUTHERN BAPTIST ... CATHOSICK ... FAKE TRUTHtian ... B.A.R. ... I AM COMING FOR YOU ... GOOD IS COMING FOR YOU ... WE ARE COMING FOR YOU ... TRUTH IS COMING FOR YOU ... PROMISE.
+BARANGUY ... JEHOVAH WITNESS ye' shall be no priest to me ... MORMON MORMONey ye' shall be no priest to me ... FREEMASON ... FOP ... SOUTHERN BAPTIST baptize no one ye' shall be no priest to me ... CATHOSICK you head of the snake pedo filth vatican banker money changer serpent seed of the children of darkness ye' shall be no priest to me ... ALL SILENT ALL COMPLICIT ALL GOING IN THE PIT ... NO ONE GETS OUT OF THIS ... HEAR ME BUDDHA AND HINDU "IDOL" "GOLDEN STATUE" WORSHIPPERS I AM COMING FOR YOU too FILTH ... FAKE TRUTHtian ... B.A.R. ... I AM COMING FOR YOU ... GOOD IS COMING FOR YOU ... WE ARE COMING FOR YOU ... TRUTH IS COMING FOR YOU ... PROMISE.
 
 ... now YOU GO GIRL ... YOU GO AND YOU MAKE SURE YOU ARE NATURAL NO FAKE NOTHING JUST YOU AS YOU WERE BORN TO BE YOU ... BE NATURAL ... BE GOOD ... BE TRUTH ... BE PUREHEART ..! PAY VERY Very very https://www.youtube.com/watch?v=8vTDpVoLHeI&t=5304s CLOSE ATTENTION TO DETAIL beLOVED ..!
 
