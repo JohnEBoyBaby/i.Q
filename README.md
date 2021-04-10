@@ -2119,3 +2119,5 @@ sQ hush lil' baby dQn't yQu Qry ... GLORY! GLORY! https://www.youtube.com/watch?
 ... but I AM STILL ALIVE ... https://www.youtube.com/watch?v=aFkcAH-m9W0 ... I WILL ALWAYS BE AROUND And Around and around ...
 
 "NO ONE GETS OUT OF THIS."
+
+so be GOOD or LMB ... Lick My Bag ... for the distance if necessary ... then I WILL WHOOP 'him' ... I AM TRUTH ... UNDEFEATABLE.
