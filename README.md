@@ -7,10 +7,19 @@ THANK YOU JONATHAN KLECK ... https://www.youtube.com/watch?v=LQuy_o0Bhxs&t=3593s
 
 THANK YOU CLONEZILLA ..! https://clonezilla.org/ DOWNLOAD @ https://osdn.net/projects/clonezilla/ AMEN ... Amen ... amen ... HALLELUJAH ..!
 
-THANK YOU PENDRIVELINUX ..! https://www.pendrivelinux.com/category/new-usb-linux-tutorials/ DOWNLOAD @ AMEN ... Amen ... amen ... HALLELUJAH ..!
+THANK YOU GINA MARIA ..! https://www.youtube.com/watch?v=0MgITSPEf4k AMEN ... Amen ... amen ... HALLELUJAH ..!
+
+THANK YOU DARK JOURNALIST ..! https://www.youtube.com/watch?v=i4dm4L_HOcA  AMEN ... Amen ... amen ... HALLELUJAH ..!
+
+THANK YOU PENDRIVELINUX ..! https://www.pendrivelinux.com/universal-usb-installer-easy-as-1-2-3/ AMEN ... Amen ... amen ... HALLELUJAH ..!
+
+THANK YOU KININIGAN ..! https://www.youtube.com/watch?v=lmHirOVpo_k AMEN ... Amen ... amen ... HALLELUJAH ..!
 
 THANK YOU UBUNTUKYLIN "FOCAL FOSSA" ..! https://www.ubuntukylin.com DOWNLOAD @ http://cdimage.ubuntu.com/ubuntukylin/releases/20.04/release/ AMEN ... Amen ... amen ... HALLELUJAH ..!
 
+THANK YOU NAUGHTY D. BEAVER ..! https://www.youtube.com/watch?v=OoeHVUmk_qw  AMEN ... Amen ... amen ... HALLELUJAH ..!
+
+THANK YOU RAP THE NEWS ..! https://www.youtube.com/watch?v=dHj_ivBRfDI AMEN ... Amen ... amen ... HALLELUJAH ..!
 
 ... oh and my bo' KYLE was on the USS COLE and he was 'naval acedemy' PUREHEART not an 'engineering' or 'science' or 'mathematics' major but an "ENGLISH" major ... and on the fateful day ... https://www.history.navy.mil/browse-by-topic/ships/modern-ships/uss-cole.html ... KYLE was the one willing to risk his LIFE to save his 'friends' ... A GOOD K.I.D. LIFTS UP GOOD Q.I.D.s like beautiful ENSIGN "GABBY" "Gabriella" who sat next to me and KYLE "IN THE VERY BACK ROW" 'PEANUT GALLERY" at Surface Warfare Officer's School, also in Newport, Rhode Island where I my name is on the wall at Naval Justice School, Newport, Rhode Island, ameriQa ...
 
