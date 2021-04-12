@@ -3,6 +3,8 @@
 
 I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ...  IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ...
 
+HIT 'em ... https://www.youtube.com/watch?v=41qC3w3UUkU ... UP ..!
+
 WRITE IT IN THE "BRIDGE LOG" ENSIGN USING PROPER NAVAL SHORTHAND please ... MA'AM, YES, MA'AM "COMMAND'her'" ... MCPM ..!
 
 JEF DE G_D XTF Oscar Papa Echo Romeo Alfa Tango India Oscar November ... Papa Oscar Oscar Foxtrot Bravo Lima Uniform Echo ... STAND BY ... X ... K ... 
