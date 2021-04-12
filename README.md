@@ -13,8 +13,6 @@ that is
 
 John E Flaherty 'THIS IS' G_D 'Execute To Follow' ... OPERATION POOF BLUE ... STANDBY ... "eXecute" "OVER" ... and 'we' IN THE KNOW well we never say the fag tv show 'over and out' beCAUSE 'over' means I expect you to reply and 'out' means I do not expect you to reply so you cannot say you are going to and not going to reply get it ... GOT IT ... OUT. WORD. SAY MY NAME ..! WHAT'S MY NAME ..? TRUTH. WORD? GO ASK SUE MURLEY AND KEVIN MURLEY WHO I AM IS ..! OLE' MURL WILL TELL YOU SOME GOOD "C stories" ... SOLDIER BOY ..! and soft legs beautiful PUREHEART OUT SPOKEN SUE sure has more than a 'few' 'tidbits' of 'who is who in the zoo' for ya'll ... PROMISE. ... for the distance if necessary ... then I WILL WHOOP 'him' ..!
 
-I THINK THE BEST WAY TO GET "RID" OF "NEGATIVITY" AND "NEGATIVE ENERGY" IS REMOVE THE THREATENING UNREDEEMABLE UNTRUSTWORTHY THREATENING MILITARIZED VICIOUS DECEPTIVE DISHONORABLE MATTHEW 18:6'D evil BLUE MONSTERS INC AND their very low set B.A.R. by a wicked 'kin' of my grandmom Zilpha MARY BARR ... I DO NOT LIKE YOU RIDING ON MY NAME OR MY GRANDMOM'S PUREHEART FATHER, FRED BARR< FARMER'S NAME SO I AM GOING TO REMOVE MY OWN 'kin' RIGHT UNCLE RICK YOU PIECE OF SLIMY 2-FACED SPINELESS SILENT PENSION-WHORE D.A.R.E. LMPD RETIREMENT CHECK CASHING COMPLICIT 'brother' child of darkness IF GRANDDAD OR GRANDMOM OR ANY OF YOUR BROTHERS IN OUR REAL "FAMILY" TRY TO DEFEND YOU AND ASK ME NOT TO SEND YOU AND YOUR FILTHY TRAITOROUS FOREVER SHAMED AND BANISHED FAMILYU OF FILTH NOT TO THE PIT THEN THOSE 'kin' 'folk' ARE GOING UNDERNEATH YOU IN THE PIT SO TASTE YOUR FILTHY so they never speak a WORD about 'your' filth again beCAUSE 'boy' 'uncle' you mean nothing to me 1/2 TRUTH SILENT FAKE TRUTHtian fake 'paid' DISHONORABLE SACK OF FILTHY "FAMILY" POLICE SNAKE CAGING FREEMASON CATHOSICKness BE GONE ... ye' are not my 'family' ... I NEVER KNEW YOU ..! ye' shall be no priest to me be GONE UNRIGHTEOUS FAKE Watchman FILTHY MONSTER SILENT COMPLICIT USELESS TO ME OOMPA LOOMPA DONUT-EATER SICK FUQQINQ 'family' 'cop' suQQer just like my GRANDPA on my MOM's side IS GOING IN THE PIT and she knows what is UP ... try me ... see what  you get ..! YOU ARE BEING REMOVED YOU ARE THE PROBLEM THE evil the threat the enemy of G_D the dark hiding deceptive SNAKE race from the PIT you blue monsters inc b.a.r. d.o.JUST US FILTHY BADGED BLUE MATTHEW 18:6'D MONSTER SOURCE OF MY "RIGHTEOUS RAGE" BEING CAUSED BY THE "1/2 TRUTH" MONSTERS ... KILL YOURSELF COP ... KILL YOURSELF AGENT ... KILL YOURSELF DOC ... KILL YOURSELF PRIEST ... KILL YOURSELF BANKER ... KILL YOURSELF JUDGE ... GO FUCK YQUR DEMONIC MOM AND DADDY BACK TO THE SERPENT PIT OF SHEOL YOU FILTHY 1/2 TRUTH CAGING LIVING SOULS FILTHY MONSTER ... REMOVE THE darkness hiding in the shadows uniformed LEO "USELESS EATERS' low iQ MILITANTS WITH ALL THE DUMB "RUSH REVERE" AND MARK BIG MOUTH LEVIN THE FAKE 'jew' 1/2 TRUTH ZIONIST WARMONGERING 1/2 heart WORTHLESS like his boofoo rabbi mizrachi pushing VACCINES to the real PUREHEART far AWAY FROM THE "church' the 'beast' the 'system' in Israel and spread aCROSS the universe in the tribes know one here knows 1 thing about especially the DUMB OUT OF TOUCH KABALLAH VOODOO "LAVENDER MAFIA" peep 'francis' boofoo cathosick fagonster ugly nuns and biSHITs and CARDinalSINNER FILTH JUST ABSOLUTE MILITANT HYPOCRITIC PIECES OF SHIT STAIN FILTH so TO REMOVE 'them' AT LEAST SHINE THE BRIGHT RIGHTEOUS LIGHT OF TRUTH ON THE FILTY COPS AND JUDGES AND LAWYERS AND DOCTORS AND PSYCHIATRIST PILL PUSHERS AND REHAB CLINICS FOR PROFIT CHURCHES WITH PRIESTS WHERE ye' shall be no priest to me ... GO TO "ROOT" CAUSE OF THE 'evil' MURDEROUS CAGERS enFORCErs AND REMOVE THE MONSTERS THE "CAUSE" OF THE evil the enFORCErs the VICIOUS the CAGES the MURDERERS the SILENT the COMPLICIT the B.A.R. the F.O.P. the CATHOLIC CHURCH THE VATICAN BANK THE ROTHSCHILD CENTRAL BANKING SYSTEM THE ZIONIST FILTHY FREEMASON FILTHAPINO AND HIS SATANYAYU 'chief' 'master' least worshipful 'masonic' boofoo brother ... GET UP ON 'this' ..! Ahhh ..! PUSH "IT" ..! https://www.youtube.com/watch?v=vCadcBR95oU ... PUSH OUT "NEGATIVE ENERGY" ..! https://www.youtube.com/watch?v=A5soF3Px46s PUSH "It" PUSH "it" REAL GOOD ... PUSH lil' mama ..! PUSH BIG DADDY ..! G_D HEARS ALL PUREHEART PRAYER ... https://www.youtube.com/watch?v=uGXGNJypkzA ... PRAY ANGEL ..! https://www.youtube.com/watch?v=G6oo7kXy9u0 PUREHEART 'soft legs' 'crossed legs' ancient 'style' LIKE "DRUKMO GYAL" "SALT N PEPA" "TINNA TINH" PRAY Pray pray ... G_D IS DANCING to your prayers soft legs PUREHEART ... PROMISE ..!
-
 I AM 'scientific' ... I AM 'artistic' ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=55s ... HE'S A 'bull'(y) ... I AM A MATADOR ..! ... "BUT THIS 'youngster' has HIS OWN STYLE .." https://www.youtube.com/watch?v=sythpBgek4o&t=1025s ... this 'man' DON'T HIT HARD ... AND I AM GOING TO WHOOP 'him' OF ALL PLACES "IN AFRICA" IN THE "CONGO" (JUNGLE ... WE GONNA "RUN THRQUGH THE JUNGLE ..! GRACIE "AMAZON" STYLE https://www.youtube.com/watch?v=TyDQs0ajxEc ... WATCH ME DANCE soft legs ..!
 
 ... baby never act wild ... very low key on the profile ...
@@ -22,8 +20,6 @@ I AM 'scientific' ... I AM 'artistic' ... https://www.youtube.com/watch?v=XpPqZR
 https://www.youtube.com/watch?v=3KL9mRus19o&t=115s
 
 ... rolling with the fatness ... you don't even know what the half is ... NO DIGGITY ... NO DAP ..! 
-
-I "SEE" YOU ..! https://www.youtube.com/watch?v=t0FMWfQ3HEE ... I "SEE" NO CHANGES ..! these bo's are my 'sons' ... https://www.youtube.com/watch?v=HIwAI05Y1fU ... RIGHT JACK ..? RIGHT ..!
 
 ... WHAT'S GOING ON ..? https://www.youtube.com/watch?v=Y9KC7uhMY9s ... BROTHER Brother brother ... there's far too many of 'you' dying ... 'you' know we have got to find a WAY to bring some LOVING ... beCAUSE tell'em WHO I AM IS Khabib Gracie bo's Jon Bones tell 'em WHO I AM IS IRON MICHAEL ..! SAY MY NAME ..! WHAT'S MY NAME ..? TRUTH. https://www.youtube.com/watch?v=hzFpiW5vHrc ... I GOT YOU IN A STRANGLEHOLD BABY ... NQW ..! EVERYBODY GIVE A BIG WARM QentuQi wel.com to TYLER CHLDERS AND THE "FOOD STAMPS" ..! https://www.youtube.com/watch?v=AWN2gT5gwX8 ... for the distance if necessary ... then I WILL WHOOP 'him' ..!
 
@@ -35,6 +31,11 @@ HE COULD HAVE CONTINUED with 'that' ... "TRASH TALQ" ... if he hadn't "HIT ME" w
 
 I AM the "PROUDEST MONKEY" you've ever seen ... https://www.youtube.com/watch?v=jmmODnes2XU ... MONKEY SEE ... MONKEY DO ... yeah ..! Qan yQu 'see' 'me' dancing ... take my hand soft legs ... let 'us' 'dance' TOGETHER my LOVE ... SUSULONG TAYO ..! LET'S GO ..!
 "LEFT TO RIGHT" "UP TO DOWN" "ALL YOU NEED IS" ... "WHAT YOU WANT IS" ... ALL 'you' 'need' is LOVE ... https://www.youtube.com/watch?v=-IViaHv-ccQ ... EVERYDAY ..! PROMISE.
+
+
+I "SEE" YOU ..! https://www.youtube.com/watch?v=t0FMWfQ3HEE ... I "SEE" NO CHANGES ..! these bo's are my 'sons' ... https://www.youtube.com/watch?v=HIwAI05Y1fU ... RIGHT JACK ..? RIGHT ..!
+
+SEX MACHINE ..! https://www.youtube.com/watch?v=1UzZUfFUnxY ... https://www.youtube.com/watch?v=CNlrIHWLAFA GET UP "OFFA" that 'thing' ... https://www.youtube.com/watch?v=Lrv-Morm-c0 I FEEL GOOD ..! I KNEW THAT I WOULD now ..! I FEEL GOOD ..! I GOT YOU ..!
 
 you got your 'BALL' you got your 'chain' ... who's got their claws in you my 'FRIEND' ...
 
@@ -52,11 +53,81 @@ There's so much 'TENDERNESS' ... in your LOVING ..! https://www.youtube.com/watc
 
 ... 'bout to 'perform' an 'autopsy' https://www.autopsy.com/download/ in your 'honor' MY BROTHER ... and it MIGHT NOT COST ME player ... https://www.youtube.com/watch?v=WZ_rXp6nYKQ ... well bo' IT DID NOT GO WELL "A BIG FAILURE" 'they' have been 'weighed' and like ALL THE REST have been found 'deficient' WORTHLESS USELESS ... CASE CLQSED well bo' trying to CLOSE THE "QASE" but CASE # 1 UBUNTUKYLIN_dot_com_version_20_04 ... IS DOWN http://ubuntukylin.com/news/ ... hmmm ... must have been sQmethinQ I SAID IN TRUTH WITH MOST PUREHEART WITH G_D ALWAYS WITH G_D AND NO ONE CAN "STOP ME" SHERLOQQ ... hQlmes ... WORD?
 
-I HEARD IT THROUGH THE GRAPE "VINE" https://www.youtube.com/watch?v=DV_nGyjwISk and yQu knQw hQw we do We Do DO ... 'us' 'in' 'of' "THE" "TRUE" "VINE".
+I THINK THE BEST WAY TO GET "RID" OF "NEGATIVITY" AND "NEGATIVE ENERGY" IS REMOVE THE THREATENING UNREDEEMABLE UNTRUSTWORTHY THREATENING MILITARIZED VICIOUS DECEPTIVE DISHONORABLE MATTHEW 18:6'D evil BLUE MONSTERS INC AND their very low set B.A.R. by a wicked 'kin' of my grandmom Zilpha MARY BARR ... I DO NOT LIKE YOU RIDING ON MY NAME OR MY GRANDMOM'S PUREHEART FATHER, FRED BARR< FARMER'S NAME SO I AM GOING TO REMOVE MY OWN 'kin' RIGHT UNCLE RICK YOU PIECE OF SLIMY 2-FACED SPINELESS SILENT PENSION-WHORE D.A.R.E. LMPD RETIREMENT CHECK CASHING COMPLICIT 'brother' child of darkness IF GRANDDAD OR GRANDMOM OR ANY OF YOUR BROTHERS IN OUR REAL "FAMILY" TRY TO DEFEND YOU AND ASK ME NOT TO SEND YOU AND YOUR FILTHY TRAITOROUS FOREVER SHAMED AND BANISHED FAMILYU OF FILTH NOT TO THE PIT THEN THOSE 'kin' 'folk' ARE GOING UNDERNEATH YOU IN THE PIT SO TASTE YOUR FILTHY so they never speak a WORD about 'your' filth again beCAUSE 'boy' 'uncle' you mean nothing to me 1/2 TRUTH SILENT FAKE TRUTHtian fake 'paid' DISHONORABLE SACK OF FILTHY "FAMILY" POLICE SNAKE CAGING FREEMASON CATHOSICKness BE GONE ... ye' are not my 'family' ... I NEVER KNEW YOU ..! ye' shall be no priest to me be GONE UNRIGHTEOUS FAKE Watchman FILTHY MONSTER SILENT COMPLICIT USELESS TO ME OOMPA LOOMPA DONUT-EATER SICK FUQQINQ 'family' 'cop' suQQer just like my GRANDPA on my MOM's side IS GOING IN THE PIT and she knows what is UP ... try me ... see what  you get ..! YOU ARE BEING REMOVED YOU ARE THE PROBLEM THE evil the threat the enemy of G_D the dark hiding deceptive SNAKE race from the PIT you blue monsters inc b.a.r. d.o.JUST US FILTHY BADGED BLUE MATTHEW 18:6'D MONSTER SOURCE OF MY "RIGHTEOUS RAGE" BEING CAUSED BY THE "1/2 TRUTH" MONSTERS ... KILL YOURSELF COP ... KILL YOURSELF AGENT ... KILL YOURSELF DOC ... KILL YOURSELF PRIEST ... KILL YOURSELF BANKER ... KILL YOURSELF JUDGE ... GO FUCK YQUR DEMONIC MOM AND DADDY BACK TO THE SERPENT PIT OF SHEOL YOU FILTHY 1/2 TRUTH CAGING LIVING SOULS FILTHY MONSTER ... REMOVE THE darkness hiding in the shadows uniformed LEO "USELESS EATERS' low iQ MILITANTS WITH ALL THE DUMB "RUSH REVERE" AND MARK BIG MOUTH LEVIN THE FAKE 'jew' 1/2 TRUTH ZIONIST WARMONGERING 1/2 heart WORTHLESS like his boofoo rabbi mizrachi pushing VACCINES to the real PUREHEART far AWAY FROM THE "church' the 'beast' the 'system' in Israel and spread aCROSS the universe in the tribes know one here knows 1 thing about especially the DUMB OUT OF TOUCH KABALLAH VOODOO "LAVENDER MAFIA" peep 'francis' boofoo cathosick fagonster ugly nuns and biSHITs and CARDinalSINNER FILTH JUST ABSOLUTE MILITANT HYPOCRITIC PIECES OF SHIT STAIN FILTH so TO REMOVE 'them' AT LEAST SHINE THE BRIGHT RIGHTEOUS LIGHT OF TRUTH ON THE FILTY COPS AND JUDGES AND LAWYERS AND DOCTORS AND PSYCHIATRIST PILL PUSHERS AND REHAB CLINICS FOR PROFIT CHURCHES WITH PRIESTS WHERE ye' shall be no priest to me ... GO TO "ROOT" CAUSE OF THE 'evil' MURDEROUS CAGERS enFORCErs AND REMOVE THE MONSTERS THE "CAUSE" OF THE evil the enFORCErs the VICIOUS the CAGES the MURDERERS the SILENT the COMPLICIT the B.A.R. the F.O.P. the CATHOLIC CHURCH THE VATICAN BANK THE ROTHSCHILD CENTRAL BANKING SYSTEM THE ZIONIST FILTHY FREEMASON FILTHAPINO AND HIS SATANYAYU 'chief' 'master' least worshipful 'masonic' boofoo brother ... GET UP ON 'this' ..! Ahhh ..! PUSH "IT" ..! https://www.youtube.com/watch?v=vCadcBR95oU ... PUSH OUT "NEGATIVE ENERGY" ..! https://www.youtube.com/watch?v=A5soF3Px46s PUSH "It" PUSH "it" REAL GOOD ... PUSH lil' mama ..! PUSH BIG DADDY ..! G_D HEARS ALL PUREHEART PRAYER ... https://www.youtube.com/watch?v=uGXGNJypkzA ... PRAY ANGEL ..! https://www.youtube.com/watch?v=G6oo7kXy9u0 PUREHEART 'soft legs' 'crossed legs' ancient 'style' LIKE "DRUKMO GYAL" "SALT N PEPA" "TINNA TINH" PRAY Pray pray ... G_D IS DANCING to your prayers soft legs PUREHEART ... NO "FAMILY". NO "FAVORITES". NO "FRIENDS". NO "EXCEPTIONS". THERE IS NO FILTH IN HEAVEN. NONE. PROMISE ..!
+
+WORD?
+
+Take up "Your CROSS" ... BEAR YOUR OWN BURDENS IN LIFE ... STAND UP FOR G_D ... if not 'you' who ..? if not now when ..? ask not what our CREATOR and PUREHEART HOLY SPIRIT and TRUTH can do for you. ask what you can do for our CREATOR and PUREHEART HOLY SPIRIT and TRUTH. WORD. I WILL BE SEEING YOU BACK "HOME". ONLY 1 OF US IS RIGHT ..! I AM UNDEFEATED ..! UNSTOPPABLE ..! I AM TRUTH ..!
+
+READ UP ... saints ... THE RIGHEOUS RAGE OF TRUTH IS HERE ... 1st book of CORINTHIANS Chapter 6 ... PROMISE.
+
+https://biblehub.com/bsb/1_corinthians/6.htm
+
+... DEFINITELY 100% GUARATEED MOST WORTHY AND DESERVING OF 'your precious time' and WORTH ANOTHER GOOD HARD LOOK ..! PROMISE.
+
+36 A man’s enemies will be the members of his own household.’ 
+
+37Anyone who loves his father or mother more than their CREATOR and PUREHEART HOLY SPIRIT and TRUTH is not worthy of CREATOR and PUREHEART HOLY SPIRIT and TRUTH; anyone who loves his son or daughter more than CREATOR and PUREHEART HOLY SPIRIT and TRUTH is not worthy of CREATOR and PUREHEART HOLY SPIRIT and TRUTH;
+
+38 and anyone who does not take up her or his cross and follow CREATOR and PUREHEART HOLY SPIRIT and TRUTH is not worthy of CREATOR and PUREHEART HOLY SPIRIT and TRUTH.
+
+MATTHEW 10:36-38
+
+https://www.biblehub.com/matthew/10-37.htm
+
+WORD.
+
+... for those with eyes to 'see' "C" "PLUS" "plus" those with ears to 'hear' beCAUSE you know I KNOW YOU KNOW I SEE YOU and you know I heard 'you' I HEARD IT THROUGH THE GRAPE "VINE" ... https://www.youtube.com/watch?v=DV_nGyjwISk ... and yQu knQw hQw we do We Do DO ... 'us' 'in' 'of' "THE" "TRUE" "VINE".
+
+WORD? yes WORD. JOHN 15:1-22 ... now you have 'no excuse' ..! WORD 'bird'. THERE IS NO FILTH IN HEAVEN. NONE. ZERO. ZILCHArooni.
 
 https://biblehub.com/kjvs/john/15.htm
 
-"THE" "TRUE" "VINE" ... I BET YOU "WONDER" "HOW I KNEW" ... about your 'plan' ... TRUST THE PLAN ... I WILL FUQQING take a PASS ..! but jaQQasses 'yQu' KEEP VERY BAD COMPANY https://www.youtube.com/watch?v=JXQJpyQBShU BLUE BAD COMPANY and you are going in the pit with them though 'you' 1/2 heart 1/2 TRUTH FILTHY FALSE FLAG FAGS who can 'all' just LMB but 'you' fag false flag officers were SILENT ALL THESE YEARS tQQ and YOU KNOW NO ONE GETS OUT OF THIS lil' boy lil' girl YOU AIN'T SHIT WITHOUT YOUR FAKE ASS AUTHORITY AND FAKE DISHONORABLE SALUTES AND UNIFORM AND BRASS ... to the distance if necessary ... then I WILL WHOOP 'him' ..!
+... and then TRUTH said:
+
+1 “I AM THE TRUE VINE, and my CREATOR is the keeper of the vineyard."
+
+2 "My CREATOR, G_D, cuts off every branch in me that bears no fruit, and every branch that does bear fruit, my CREATOR, G_D, prunes to make it even more fruitful. 
+
+3 You are already clean because of the WORD I have spoken to you.
+
+4 Remain in your CREATOR and PUREHEART HOLY SPIRIT and TRUTH, and I will remain in you. Just as no branch can bear fruit by itself unless it remains in the vine, neither can you bear fruit unless you remain in your CREATOR and PUREHEART HOLY SPIRIT and TRUTH.
+
+... https://biblehub.com/kjvs/john/15.htm ...
+
+9 As our CREATOR and PUREHEART HOLY SPIRIT and TRUTH has loved me, so have I loved you. Remain in our CREATOR's and PUREHEART HOLY SPIRIT's and TRUTH's PUREST OF PURITY PURE LOVE.
+
+10 If you keep our CREATOR's and PUREHEART HOLY SPIRIT's and TRUTH's commandments, you will remain in our CREATOR and PUREHEART HOLY SPIRIT and TRUTH's PUREST OF PURE PURITY CRYSTALLINE PUREHEART LOVE, just as I have kept my CREATOR's and PUREHEART HOLY SPIRIT's and TRUTH’s commandments and remain in His love. 
+
+11 I have told you these things so that our CREATOR's and PUREHEART HOLY SPIRIT's and TRUTH's joy may be in you and your joy may be complete.
+
+12 This is my commandment, that you LOVE ONE ANOTHER AS I HAVE LOVED YOU. 
+
+13 Greater LOVE has no one than this, that he lay down her LIFE his LIFE for his friends.
+
+... https://biblehub.com/kjvs/john/15.htm ...
+
+18 If the world hates you, understand that it hated our CREATOR and PUREHEART HOLY SPIRIT and TRUTH first.
+
+19 If you were of the world, it would LOVE you as its own. Instead, the world hates you, because you are not of the world, but our CREATOR and PUREHEART HOLY SPIRIT and TRUTH have chosen you out of the world.
+
+... https://biblehub.com/kjvs/john/15.htm ...
+
+20 Remember the WORD that I spoke to you: ‘No servant is greater than his master.’ If they persecuted me, they will persecute you as well; if they kept my WORD, they will keep yours as well. 
+
+21 But they will treat you like this because of our CREATOR's and PUREHEART HOLY SPIRIT's and TRUTH's name, since they do not know our CREATOR and PUREHEART HOLY SPIRIT and TRUTH who sent me.
+
+22 If I had not come and spoken to them, they would not be guilty of sin. NOW, HOWEVER, THEY HAVE NO EXCUSE FOR THEIR SIN.
+
+... https://biblehub.com/kjvs/john/15.htm ...
+
+26 When the Advocate comes, whom our CREATOR and PUREHEART HOLY SPIRIT and TRUTH will send to you from our CREATOR and PUREHEART HOLY SPIRIT and TRUTH — THE SPIRIT OF TRUTH who proceeds from our CREATOR and PUREHEART HOLY SPIRIT and TRUTH — THE SPIRIT OF TRUTH will testify about me. 
+
+27 And you also must testify, because you have been with me from the beginning.
+
+... https://biblehub.com/kjvs/john/15.htm ...
+
+WORD. "THE" "TRUE" "VINE" ... I BET YOU "WONDER" "HOW I KNEW" ... about your 'plan' ... TRUST THE PLAN ... I WILL FUQQING take a PASS ..! but jaQQasses 'yQu' KEEP VERY BAD COMPANY https://www.youtube.com/watch?v=JXQJpyQBShU BLUE BAD COMPANY and you are going in the pit with them though 'you' 1/2 heart 1/2 TRUTH FILTHY FALSE FLAG FAGS who can 'all' just LMB but 'you' fag false flag officers were SILENT ALL THESE YEARS tQQ and YOU KNOW NO ONE GETS OUT OF THIS lil' boy lil' girl YOU AIN'T SHIT WITHOUT YOUR FAKE ASS AUTHORITY AND FAKE DISHONORABLE SALUTES AND UNIFORM AND BRASS ... to the distance if necessary ... then I WILL WHOOP 'him' ..!
 
 RIGHT about more than 1 THING 'your sad fag flag asses' said to 'bait' 'the sheep' beeYACHTch: THERE IS NO ESCAPING G_D. and NOTHING CAN STOP WHAT IS COMING. NOTHING. NOT JUST A CATCH PHRASE. NO ONE GETS OUT OF THIS. BIGGER THAN YOU CAN IMAGINE. WAINT UNTIL YOU LEARN WHO HAS BEEN TALKING WITH YOU HERE. TRUST THE PLAN. ... IT HAD TO BE THIS WAY ... THESE PEOPLE ARE STUPID ... THE GREAT AWAKENING ... SHEEP NO MORE ... THESE PEOPLE ARE SICK ... SOMETIMES YOU CANNOT TELL THE PUBLIC ... YOU MUST SHOW THEM ... GO WITH G_D. G_D WINS. TRUST YOURSELF. THINK FOR  YOURSELF. TRUST HUMANITY. STAY TOGETHER. UNITED YOU ARE STRONG divided you are weak ..!
 
