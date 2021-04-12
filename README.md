@@ -29,7 +29,7 @@ WE as "TRUTH" WARRIORS 'smell' VICTORY ..!
 
 https://www.youtube.com/watch?v=vyQIWt0WaHA
 
-YOU KNOW WHAT I AM GETTING AT, RIGHT ..? 17 TIMES ..! https://www.youtube.com/watch?v=2GMNNqPtGLk ... I NEVER STAYED OVERNIGHT ..! 'You' 'know' what I AM getting at, RIGHT ..?
+YOU KNOW WHAT I AM GETTING AT, RIGHT ..? 17 TIMES ..! https://www.youtube.com/watch?v=2GMNNqPtGLk ... I NEVER STAYED OVERNIGHT ..! 'You' 'know' what I AM getting at, RIGHT ..? DID YOU SEE THE "LOOK OF DISGUST ON QRUMPSTER'S FACE WHEN 'THE IDIOTS' CHEERED for PUNKPEO ... These people are stupid ... These people should be hanging ... "BUT I MADE SOME CHOICES ..." ... WORD.
 
 4CHAN 8CHAN "RED PEOPLE" you know "THE WHITE RED-HAIRED GREEN-EYED MONKEY" 'me' 'tarzan' TRUTH I AM UNIQUE I NEVER REALLY 'fit in' probably means I REALLY DO "STAND OUT" ..! https://www.youtube.com/watch?v=IGInsosP0Ac ... but soft butt 'kind' smiling MCHAN 'blessed' highly intelleQtual 'chosen' beautiful daughter of ancient Han I 100 % GUARANTEE that I WILL MOST CERTAINLY "FIT IN" REAL CREAMILY SMOOTH AND GOOD with your MCHAN soft legs 'crosed legs' of PUREHEART wonderments and softnesses just fQr yQu ..!
 
