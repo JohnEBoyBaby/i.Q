@@ -5,6 +5,30 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ...  IF G_D IS WITH ME, CAN'T NOBODY
 
 Cassius Marcellus Clay, Muhammad Ali
 
+IDEAS ARE BULLET PROOF ... https://www.youtube.com/watch?v=8WZ0XSf23rs ..!
+
+COME OUT OF THE DARKNESS AND INTO THE LIGHT ..!
+
+https://www.youtube.com/watch?v=uKwBp8-c_YE CHANGING FROM 'bad' to GOOD is as easy as putting one foot in front of the other ... 
+
+https://www.youtube.com/watch?v=zfPubcHCNi8 ... well not exactly but still CONSISTENCY I LOVE CONSISTENCY https://biblehub.com/matthew/15-9.htm MATTHEW 15:8-10. TRUTH.
+
+TRUTH is the WAY to LIFE with G_D.
+
+https://www.youtube.com/watch?v=jVh-gtuLVGw VICTORY ..!
+
+V for ... ... VENGEANCE ..!
+
+"AND ALL OTHERS SUCK RIGHT ..?" https://www.youtube.com/watch?v=FfhEdF40nhQ&t=1881s RIGHT ..! GO YICHUN MAKTO ..!
+
+... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
+
+Bruce Lee
+
+ENTER THE ... https://www.youtube.com/watch?v=7n-R4H0Rl2Q DRAGON you grasshopper ..! 
+
+... Aaah ..! https://www.youtube.com/watch?v=N0_LnvJrLo4&t=54s ... I INTERCEPT YQUR "EMOTIONAL TENSENESS" ..!
+
 The First Disciples
 
 18 As TRUTH was walking beside the Sea of Galilee, TRUTH saw two brothers, Simon called Peter and his brother Andrew. They were casting a net into the sea, for they were fishermen. 
@@ -13,13 +37,13 @@ The First Disciples
 
 20 And at once they left their nets and followed TRUTH.…
 
-MATE ..! if 'you' want to 'ride with me' ... https://www.youtube.com/watch?v=GsyJVv-9ygM ... RIDE WITH ME ..! YO' soft legs 'crossed legs' if Qrumpled StiltsQin is not taking 'you' 'beautiful' 'gorgeous' 'CREAMY' 'soft' oh la la MELANIA the take my hand and I WILL TAKE YOU RQLLER SKATINQ beLOVEd 'blessed' 'multilingual' 'BEBEST' 'kind' oh la la MCPM REAL WOMAN not a 'trans' fake fagonster filthy deviant stanky fecal maize mucous bloody 'lemon with worms in it ' POPPIN ... eEwW WHAT'S POPPIN ..? HEY JERMAINE DUPREE can you help 'homeboy' JACK HARLOW out with some 'beats' some 'hooks' ... WORD. COOL. THANKS BO' ..! nothing 'dripping out' like stank fag fecal cop suQQing butt juice lip liQQing 'boofoo' brothers WAY too F.O.P. freemason ALL BOYS BUTTHOLE BABY BROTHERHOOD OF FILTH 'Fraternal Order of Pedophile Punkass Police enFORCErs of the fake virus NO ONE DYING ANYWHERE JACKASS FAG-MASK WEARING DUMBfuQQ'children of darkness' 'butthole baby' or a 'dead inside' 'empty shell of a real soul' 'fake clone useless order follower slave toby kunta uncle tom cracker ass beeYACHTch' CAINibal SELL-OUT WORTHLESS MATTHEW 18:6'D DEVIANT 'transhumanist' unnatural 'machine' 'soulless' 'NO SPARK OF LIFE NO SOUL NO LIFE" I AM TALKING REAL WOMAN GROWN ASS BEAUTIFUL WOMAN like your 'mom' your 'sister' BETTER STOP TO PRAYING TO dead rabbi wizards though bo' WORD. READY TO GO SKATING ... 'me' and 'you' let's skate baby ... let me 'move' you ... hold 'you' ... slow skate ... hold me closer ... yeah like that oh I like that talk to me in my ear ... oh say that again ... oh la la I AM going to 'handle' you COMMANDER .. WORD. https://www.youtube.com/watch?v=HIwAI05Y1fU ... I AM "POPPIN" ..! MIDNIGHT SKATE JeffersonTOWN KentuQi ROBINS ROOST 'til 4AM so don't wait UP we might have to go out after 'we' 'workout' REALLY GOOD baby tell 'him' MELANIA ... Barron ... you want to go ... cool ... I LOVE YOU MELANIA ... BARRON LIFT UP YOUR 'mom' beCAUSE GOOD K.I.D.s LIFT UP GOOD Q.I.D.s and 'son' your 'mom' WRAPPED ALL KINDS OF TIGHT bo' ... STACEY' 'mom' ain't even in the same class as  your mom bo' ... R.E.S.P.E.C.T. 'her' BARRON ... love ya' lil' man ... MATTHEW 18:3 ... PROMISE. ... oh la la MELANIA ..! PUREHEART ..! https://duckduckgo.com/?q=MELANIA+looking+SEXY+with+BARRon+and+QrumpSTer+Trump&t=opera&iax=images&ia=images&iai=https%3A%2F%2Fim.indiatimes.in%2Fcontent%2Fitimes%2Fphoto%2F2016%2FJul%2F20%2F1469006833-melanias-modelling-days.jpg TRUTH. NQW that's the 'kind' kind I like ..! I LOVE SOFT LEGS ..! I LOVE TRUTH ..! I LOVE PUREHEART ..! I LOVE G_D LIKE AN INFANT ..! "LUCKY ONE" you are Qrumpster so  #BEBEST and LOOK UP ... https://duckduckgo.com/?q=MELANIA+looking+SEXY+with+BARRon+and+QrumpSTer+Trump&t=opera&iax=images&ia=images&iai=https%3A%2F%2Fstaticr1.blastingcdn.com%2Fmedia%2Fphotogallery%2F2016%2F12%2F11%2F660x290%2Fb_502x220%2Fdonald-trump-and-barron-photoshopped-to-be-looking-at-picture-of-melania-in-naked-pose-photo-blasting-news-library-wimp-com_1029197.jpg ... YOU KNOW WHAT I AM GETTING AT, RIGHT QRUMPLED STILTSQIN ..? https://duckduckgo.com/?q=MELANIA+looking+SEXY+with+BARRon+and+QrumpSTer+Trump&t=opera&iax=images&ia=images&iai=https%3A%2F%2Fstaticr1.blastingcdn.com%2Fmedia%2Fphotogallery%2F2016%2F12%2F11%2F660x290%2Fb_502x220%2Fdonald-trump-and-barron-photoshopped-to-be-looking-at-picture-of-melania-in-naked-pose-photo-blasting-news-library-wimp-com_1029197.jpg RIGHT ..! GOOD 'DAD' ..! CHECK ..!
-
-... like 'this' ... https://github.com/JohnEBoyBaby/i.Q/blob/main/Barron.And.Donald.John.Qrumpster.playing.chess.jpeg ... son ..!
-
 MATTHEW 4:18-20
 
 https://biblehub.com/matthew/4-19.htm
+
+MATE ..! if 'you' want to 'ride with me' ... https://www.youtube.com/watch?v=GsyJVv-9ygM ... RIDE WITH ME ..! YO' soft legs 'crossed legs' if Qrumpled StiltsQin is not taking 'you' 'beautiful' 'gorgeous' 'CREAMY' 'soft' oh la la MELANIA the take my hand and I WILL TAKE YOU RQLLER SKATINQ beLOVEd 'blessed' 'multilingual' 'BEBEST' 'kind' oh la la MCPM REAL WOMAN not a 'trans' fake fagonster filthy deviant stanky fecal maize mucous bloody 'lemon with worms in it ' POPPIN ... eEwW WHAT'S POPPIN ..? HEY JERMAINE DUPREE can you help 'homeboy' JACK HARLOW out with some 'beats' some 'hooks' ... WORD. COOL. THANKS BO' ..! nothing 'dripping out' like stank fag fecal cop suQQing butt juice lip liQQing 'boofoo' brothers WAY too F.O.P. freemason ALL BOYS BUTTHOLE BABY BROTHERHOOD OF FILTH 'Fraternal Order of Pedophile Punkass Police enFORCErs of the fake virus NO ONE DYING ANYWHERE JACKASS FAG-MASK WEARING DUMBfuQQ'children of darkness' 'butthole baby' or a 'dead inside' 'empty shell of a real soul' 'fake clone useless order follower slave toby kunta uncle tom cracker ass beeYACHTch' CAINibal SELL-OUT WORTHLESS MATTHEW 18:6'D DEVIANT 'transhumanist' unnatural 'machine' 'soulless' 'NO SPARK OF LIFE NO SOUL NO LIFE" I AM TALKING REAL WOMAN GROWN ASS BEAUTIFUL WOMAN like your 'mom' your 'sister' BETTER STOP TO PRAYING TO dead rabbi wizards though bo' WORD. READY TO GO SKATING ... 'me' and 'you' let's skate baby ... let me 'move' you ... hold 'you' ... slow skate ... hold me closer ... yeah like that oh I like that talk to me in my ear ... oh say that again ... oh la la I AM going to 'handle' you COMMANDER .. WORD. https://www.youtube.com/watch?v=HIwAI05Y1fU ... I AM "POPPIN" ..! MIDNIGHT SKATE JeffersonTOWN KentuQi ROBINS ROOST 'til 4AM so don't wait UP we might have to go out after 'we' 'workout' REALLY GOOD baby tell 'him' MELANIA ... Barron ... you want to go ... cool ... I LOVE YOU MELANIA ... BARRON LIFT UP YOUR 'mom' beCAUSE GOOD K.I.D.s LIFT UP GOOD Q.I.D.s and 'son' your 'mom' WRAPPED ALL KINDS OF TIGHT bo' ... STACEY' 'mom' ain't even in the same class as  your mom bo' ... R.E.S.P.E.C.T. 'her' BARRON ... love ya' lil' man ... MATTHEW 18:3 ... PROMISE. ... oh la la MELANIA ..! PUREHEART ..! https://duckduckgo.com/?q=MELANIA+looking+SEXY+with+BARRon+and+QrumpSTer+Trump&t=opera&iax=images&ia=images&iai=https%3A%2F%2Fim.indiatimes.in%2Fcontent%2Fitimes%2Fphoto%2F2016%2FJul%2F20%2F1469006833-melanias-modelling-days.jpg TRUTH. NQW that's the 'kind' kind I like ..! I LOVE SOFT LEGS ..! I LOVE TRUTH ..! I LOVE PUREHEART ..! I LOVE G_D LIKE AN INFANT ..! "LUCKY ONE" you are Qrumpster so  #BEBEST and LOOK UP ... https://duckduckgo.com/?q=MELANIA+looking+SEXY+with+BARRon+and+QrumpSTer+Trump&t=opera&iax=images&ia=images&iai=https%3A%2F%2Fstaticr1.blastingcdn.com%2Fmedia%2Fphotogallery%2F2016%2F12%2F11%2F660x290%2Fb_502x220%2Fdonald-trump-and-barron-photoshopped-to-be-looking-at-picture-of-melania-in-naked-pose-photo-blasting-news-library-wimp-com_1029197.jpg ... YOU KNOW WHAT I AM GETTING AT, RIGHT QRUMPLED STILTSQIN ..? https://duckduckgo.com/?q=MELANIA+looking+SEXY+with+BARRon+and+QrumpSTer+Trump&t=opera&iax=images&ia=images&iai=https%3A%2F%2Fstaticr1.blastingcdn.com%2Fmedia%2Fphotogallery%2F2016%2F12%2F11%2F660x290%2Fb_502x220%2Fdonald-trump-and-barron-photoshopped-to-be-looking-at-picture-of-melania-in-naked-pose-photo-blasting-news-library-wimp-com_1029197.jpg RIGHT ..! GOOD 'DAD' ..! CHECK ..!
+
+... like 'this' ... https://github.com/JohnEBoyBaby/i.Q/blob/main/Barron.And.Donald.John.Qrumpster.playing.chess.jpeg ... son ..!
 
 I MISS YOU ... https://www.youtube.com/watch?v=fdQgPu3iUYk ... son of ancient Han YICHUN https://OpenRESTy.com MAKTO hope find a GOOD K.I.D. like 'Kate' or 'PikaCHU' 'Joyful' Joyce 'kind' 'handsome' most PUREHEART most highly honorable and intellectual and deserving of such soft legs with most PUREHEART daughter of ancient Han PikaCHU MAKTO ..! PUREHEART MATCH IN TRUTH WITH G_D ..!
 
@@ -28,10 +52,6 @@ C'est parfait ..! https://www.youtube.com/watch?v=bNfbKwW0xI8 IT'S GOING DOWN ..
 "Your 'gift' LITTLE DRUMMER BO' given out of the simple desperation of a PURE LOVE is the 1 FAVORED ABOVE ALL."
 
 https://www.youtube.com/watch?v=HRbTrensuiY
-
-... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
-
-Bruce Lee
 
 Blessed are the PUREHEART
 for they shall see G_D.
