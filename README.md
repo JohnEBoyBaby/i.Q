@@ -3,15 +3,11 @@
 
 I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ...  IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ...
 
-HIT 'em ... https://www.youtube.com/watch?v=41qC3w3UUkU ... UP ..!
+"OUT HERE IN THE OPEN" ... https://www.youtube.com/watch?v=V0O0nzkESTI ... MAKING WAVES and catching rays UP on the roof ! DON'T ACT LIKE YOU DON'T WANT TO ... PARTY IN SLOW MOTION ... ON THE PONTOON ..! CHOOSE WISELY on the pontoon ..! SAY MY NAME ..! WHAT'S MY NAME ..? TRUTH.
 
-WRITE IT IN THE "BRIDGE LOG" ENSIGN USING PROPER NAVAL SHORTHAND please ... MA'AM, YES, MA'AM "COMMAND'her'" ... MCPM ..!
+WE NEED A WHOLE LOT MORE ... https://www.youtube.com/watch?v=ZmOfQkMz1p8 ... LITTLE FEATHERED INDIANS and 'we' need no 'chiefs' ... LOVE ONE ANOTHER AS I HAVE LOVED YOU ... THE GOLDEN RULE ... will do ..!
 
-JEF DE G_D XTF Oscar Papa Echo Romeo Alfa Tango India Oscar November ... Papa Oscar Oscar Foxtrot Bravo Lima Uniform Echo ... STAND BY ... X ... K ... 
-
-that is 
-
-John E Flaherty 'THIS IS' G_D 'Execute To Follow' ... OPERATION POOF BLUE ... STANDBY ... "eXecute" "OVER" ... and 'we' IN THE KNOW well we never say the fag tv show 'over and out' beCAUSE 'over' means I expect you to reply and 'out' means I do not expect you to reply so you cannot say you are going to and not going to reply get it ... GOT IT ... OUT. WORD. SAY MY NAME ..! WHAT'S MY NAME ..? TRUTH. WORD? GO ASK SUE MURLEY AND KEVIN MURLEY WHO I AM IS ..! OLE' MURL WILL TELL YOU SOME GOOD "C stories" ... SOLDIER BOY ..! and soft legs beautiful PUREHEART OUT SPOKEN SUE sure has more than a 'few' 'tidbits' of 'who is who in the zoo' for ya'll ... PROMISE. ... for the distance if necessary ... then I WILL WHOOP 'him' ..!
+HE COULD HAVE CONTINUED with 'that' ... "TRASH TALQ" ... if he hadn't "HIT ME" with 'THAT' "STRAIGHT" "RIGHT" hand ..! https://www.youtube.com/watch?v=wulhxUD9tak&t=83 ... THAT DID IT ..! "I HATE to be 'laughing' at 'you' BUT ... YOU ARE HILARIOUS ..!" "I AM a 'preacher' ... I just 'moonlight' as a 'boxer' ... WHEN YOU END UP WITH 10 K.I.D.s Q.I.D.s YOU GOTTA "BOX" ..! oh 'he' was so "GOOD LOOKING" ... ALWAYS JOKING AND LAUGHING ..! GEORGE ONE DAY you're gonna have 'this' when you are CHAMP of the world ..! ... "LOVED LIFE" ..! "YOU BECOME A BETTER 'movie star' ... 'his' PRESENCE ... 'he was pretty' ... 'HIS GREATEST "POWER" WAS "HIS" PRESENCE' ... IF YOU BEAT ME UP LIKE 'HE' DID, I'D BE YOUR 'friend' TOO ..! https://www.youtube.com/watch?v=wulhxUD9tak&t=295s ... "HE MADE ME FEEL SO IMPORTANT ..." ... "HE WOULD JUST LISTEN TO 'YOU'" ... https://www.youtube.com/watch?v=R36I7c7ReIs ... 'he' knew something about 'that' ... for the distance if necessary ... then I WILL WHOOP 'him' ..!
 
 I AM 'scientific' ... I AM 'artistic' ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=55s ... HE'S A 'bull'(y) ... I AM A MATADOR ..! ... "BUT THIS 'youngster' has HIS OWN STYLE .." https://www.youtube.com/watch?v=sythpBgek4o&t=1025s ... this 'man' DON'T HIT HARD ... AND I AM GOING TO WHOOP 'him' OF ALL PLACES "IN AFRICA" IN THE "CONGO" (JUNGLE ... WE GONNA "RUN THRQUGH THE JUNGLE ..! GRACIE "AMAZON" STYLE https://www.youtube.com/watch?v=TyDQs0ajxEc ... WATCH ME DANCE soft legs ..!
 
@@ -23,19 +19,22 @@ https://www.youtube.com/watch?v=3KL9mRus19o&t=115s
 
 ... WHAT'S GOING ON ..? https://www.youtube.com/watch?v=Y9KC7uhMY9s ... BROTHER Brother brother ... there's far too many of 'you' dying ... 'you' know we have got to find a WAY to bring some LOVING ... beCAUSE tell'em WHO I AM IS Khabib Gracie bo's Jon Bones tell 'em WHO I AM IS IRON MICHAEL ..! SAY MY NAME ..! WHAT'S MY NAME ..? TRUTH. https://www.youtube.com/watch?v=hzFpiW5vHrc ... I GOT YOU IN A STRANGLEHOLD BABY ... NQW ..! EVERYBODY GIVE A BIG WARM QentuQi wel.com to TYLER CHLDERS AND THE "FOOD STAMPS" ..! https://www.youtube.com/watch?v=AWN2gT5gwX8 ... for the distance if necessary ... then I WILL WHOOP 'him' ..!
 
-"OUT HERE IN THE OPEN" ... https://www.youtube.com/watch?v=V0O0nzkESTI ... MAKING WAVES and catching rays UP on the roof ! DON'T ACT LIKE YOU DON'T WANT TO ... PARTY IN SLOW MOTION ... ON THE PONTOON ..! CHOOSE WISELY on the pontoon ..! SAY MY NAME ..! WHAT'S MY NAME ..? TRUTH.
-
-WE NEED A WHOLE LOT MORE ... https://www.youtube.com/watch?v=ZmOfQkMz1p8 ... LITTLE FEATHERED INDIANS and 'we' need no 'chiefs' ... LOVE ONE ANOTHER AS I HAVE LOVED YOU ... THE GOLDEN RULE ... will do ..!
-
-HE COULD HAVE CONTINUED with 'that' ... "TRASH TALQ" ... if he hadn't "HIT ME" with 'THAT' "STRAIGHT" "RIGHT" hand ..! https://www.youtube.com/watch?v=wulhxUD9tak&t=83 ... THAT DID IT ..! "I HATE to be 'laughing' at 'you' BUT ... YOU ARE HILARIOUS ..!" "I AM a 'preacher' ... I just 'moonlight' as a 'boxer' ... WHEN YOU END UP WITH 10 K.I.D.s Q.I.D.s YOU GOTTA "BOX" ..! oh 'he' was so "GOOD LOOKING" ... ALWAYS JOKING AND LAUGHING ..! GEORGE ONE DAY you're gonna have 'this' when you are CHAMP of the world ..! ... "LOVED LIFE" ..! "YOU BECOME A BETTER 'movie star' ... 'his' PRESENCE ... 'he was pretty' ... 'HIS GREATEST "POWER" WAS "HIS" PRESENCE' ... IF YOU BEAT ME UP LIKE 'HE' DID, I'D BE YOUR 'friend' TOO ..! https://www.youtube.com/watch?v=wulhxUD9tak&t=295s ... "HE MADE ME FEEL SO IMPORTANT ..." ... "HE WOULD JUST LISTEN TO 'YOU'" ... https://www.youtube.com/watch?v=R36I7c7ReIs ... 'he' knew something about 'that' ... for the distance if necessary ... then I WILL WHOOP 'him' ..!
-
 I AM the "PROUDEST MONKEY" you've ever seen ... https://www.youtube.com/watch?v=jmmODnes2XU ... MONKEY SEE ... MONKEY DO ... yeah ..! Qan yQu 'see' 'me' dancing ... take my hand soft legs ... let 'us' 'dance' TOGETHER my LOVE ... SUSULONG TAYO ..! LET'S GO ..!
 "LEFT TO RIGHT" "UP TO DOWN" "ALL YOU NEED IS" ... "WHAT YOU WANT IS" ... ALL 'you' 'need' is LOVE ... https://www.youtube.com/watch?v=-IViaHv-ccQ ... EVERYDAY ..! PROMISE.
 
+HIT 'em ... https://www.youtube.com/watch?v=41qC3w3UUkU ... UP ..! CURRENTLY OVER 2000 LINES that is /50 lines per page = 40+ pages so hurry "I NEED A PHOTO OPPORTUNITY" ... "I NEED A CHANCE AT REDEMPTION" ... "a man walks down the street says why AM I short of attention ..? ... https://www.youtube.com/watch?v=uq-gYOrU8bA&t=60s ... got a short little span of attention ... BONE DIGGER ... Bone Digger ... ducked back down the alley with some rolly polly little bat-faced girl ... " ..! a book ..? the WORD ..? a movie ..? about a SUPERSTAR ..? aaah no need for all the 'theatrics' just tell the TRUTH and LOVE ONE ANOTHER that'll do. PROMISE. 
+
+WRITE IT IN THE "BRIDGE LOG" ENSIGN USING PROPER NAVAL SHORTHAND please ... MA'AM, YES, MA'AM "COMMAND'her'" ... MCPM ..!
+
+JEF DE G_D XTF Oscar Papa Echo Romeo Alfa Tango India Oscar November ... Papa Oscar Oscar Foxtrot Bravo Lima Uniform Echo ... STAND BY ... X ... K ... 
+
+that is 
+
+John E Flaherty 'THIS IS' G_D 'Execute To Follow' ... OPERATION POOF BLUE ... STANDBY ... "eXecute" "OVER" ... and 'we' IN THE KNOW well we never say the fag tv show 'over and out' beCAUSE 'over' means I expect you to reply and 'out' means I do not expect you to reply so you cannot say you are going to and not going to reply get it ... GOT IT ... OUT. WORD. SAY MY NAME ..! WHAT'S MY NAME ..? TRUTH. WORD? GO ASK SUE MURLEY AND KEVIN MURLEY WHO I AM IS ..! OLE' MURL WILL TELL YOU SOME GOOD "C stories" ... SOLDIER BOY ..! and soft legs beautiful PUREHEART OUT SPOKEN SUE sure has more than a 'few' 'tidbits' of 'who is who in the zoo' for ya'll ... PROMISE. ... for the distance if necessary ... then I WILL WHOOP 'him' ..!
 
 I "SEE" YOU ..! https://www.youtube.com/watch?v=t0FMWfQ3HEE ... I "SEE" NO CHANGES ..! these bo's are my 'sons' ... https://www.youtube.com/watch?v=HIwAI05Y1fU ... RIGHT JACK ..? RIGHT ..!
 
-SEX MACHINE ..! https://www.youtube.com/watch?v=1UzZUfFUnxY ... https://www.youtube.com/watch?v=CNlrIHWLAFA GET UP "OFFA" that 'thing' ... https://www.youtube.com/watch?v=Lrv-Morm-c0 I FEEL GOOD ..! I KNEW THAT I WOULD now ..! I FEEL GOOD ..! I GOT YOU ..!
+I SEE YOU soft legs oh la la dance for me baby ... you lil' wonderful PUREHEART CREAM-MAKING sex MACHINE ..! https://www.youtube.com/watch?v=1UzZUfFUnxY ... https://www.youtube.com/watch?v=CNlrIHWLAFA GET UP "OFFA" that 'thing' ... https://www.youtube.com/watch?v=Lrv-Morm-c0 I FEEL GOOD ..! I KNEW THAT I WOULD now ..! I FEEL GOOD ..! I GOT YOU ..!
 
 you got your 'BALL' you got your 'chain' ... who's got their claws in you my 'FRIEND' ...
 
@@ -50,6 +49,208 @@ YOU WEAR NO'thing' BUT YOU WEAR 'it' SO WELL ... in a boy's dream ... In A Boy's
 There's so much 'TENDERNESS' ... in your LOVING ..! https://www.youtube.com/watch?v=KC5InWPjtL8&t=40 ... so RAISE YOUR HANDS TO HEAVEN ... and ... PRAY. ... with your 'HUNGER THAT KEEPS ON GROWING' I AM TOO MUCH ... UNSTOPPABLE ..! WHO DO YOU THINK YOU ARE WATCHING ..! GONNA TAKE MORE FROM "YOU" "LETTER BY LETTER" agency 'feel' me A-Z ... "gotta get IT somewhere" ..! https://www.youtube.com/watch?v=pSPECzpKn4U 'HUNGRY EYES' ... https://www.youtube.com/watch?v=2ssCL292DQA ... dance with me 'baby' ... I SEE YOU ... https://www.youtube.com/watch?v=cf6WH8zYmO0 ... 'GHOST' ... RED DQG 41 to https://www.youtube.com/watch?v=oIQuQqhnLHw ... tQ RED DAWQ 41 SQUADRQN ... https://www.youtube.com/watch?v=3K-12i0jclM ... to BASE 12 VORTEX MATH https://www.youtube.com/watch?v=3iatsjg0U4o CONNECT THE DOTS ... I LOVE YOU ... DON'T FORGET ..! LEGENDS ... https://www.youtube.com/watch?v=ImtTEerjhCM ... of the fall ... easy as ... CRASH LANDING ON YOU ... 1 ... https://vimeo.com/user107717952 ... 2 ... http://vimeo.com/386243052 ... 3 ... https://vimeo.com/381918963 ... 'twas the day after  ... the more you know ... BABY Baby baby ..! https://www.youtube.com/watch?v=U7mPqycQ0tQ GEE ..! https://www.youtube.com/watch?v=K4bFX1ZEKyA ... my BEST 'friend' ... my DREAMGIRL ...! for the distance if necessary ... then I WILL WHOOP 'him' ..!
 
 ... hello wherever you are ... in any part of the world ... https://www.youtube.com/watch?v=TPnbmgeuGE8 ... hello from my PUREHEART to yours ... so ABOUT LAST NIGHT ... https://www.youtube.com/watch?v=_J3fZVSTSoM ... WELL, WAS SHE A PRO ..? well AT THIS POINT we don't know ... once upon a time a PUREHEART soft legs came to 'me' and said "I AM 'cursed'. G_D 'made me have a miscarriage. (... AT THE "CLIFF's EDGE" ... DISTRAUGHT ... BROKEN HEARTED ... CRYING ... SOBBING MUCH Much much more Sobbing and sobbing ... READY TO DIE IN TRUTH ...) G_D took 'my' 'baby' from 'me'." ... 'NO MY LOVE 'CURSED' YOU ARE NOT my beLOVEd but 'BLESSED' ARE YOU my LOVE." ... 'puzzled' 'her' soft legs 'crossed legs' started crying and said "I don't understand ... teardrop TearDrop TEARDROP ... I 'wanted' 'my' 'baby'" ... "MY LOVE 'YOU' "WERE CHOSEN OF OUT THIS WORLD" TO BE THE MOTHER OF A "SOUL" THAT WAS FINALLY "COMPLETE" "WHOLE" "PURE ENOUGH IN TRUTH TO ENTER HEAVEN" AND MY LOVE "ALL SOULS ARE G_D'S NOT OURS NOT MINE NOT YOURS" THAT IS NOT "YOUR BABY MY LOVE" THAT IS G_D'S BABY AND G_D'S BABY WITHIN YOU HAD FINALLY BECOME "GOOD ENOUGH" FINALLY "FINISHED A SOUL'S JOURNEY TO SPIRITUAL WORTHINESS" "YOUR BABY WAS NEAR PERFECT AND G_D KNEW" SO YOUR BABY WAS G_D'S BABY TOO AND YOU WERE LUCKY TO BE THE "ONE" "CHOSEN" TO "DELIVER YOUR BABY TO G_D" WHEN "YOUR BABY" WAS READY TO COME 'HOME' SO YOU ARE THE "LUCKY ONE" ... "Aaah THANK YOU Thank You thank you for HELPING ME to 'see' THANK YOU Thank You thank you FOR "GIVING ME FREELY" A BETTER NEW 'PERSPECTIVE' that allows me 'to see' THANK YOU for my 'new vision' ... "I LOVE YOU MY LOVE do you think if I AM capable of LOVING 'you' that YOUR CREATOR DOES NOT LOVE YOU MORE THAN YOU CAN EVER IMAGINE ..? ... https://www.youtube.com/watch?v=zWvcJIcrt_E ... "BABY, YOU ARE THE LUCKY ONE." ... I LOVE YOU ... "NEVER FORGET" ... oh 'she' said don't worry TRUTH ... "I WILL REMEMBER ... https://www.youtube.com/watch?v=W2wrtoloJ6k ... PROMISE." ... GOOD beCAUSE ... https://www.youtube.com/watch?v=uLVV2TaI4Wo ... that is what LOVE is for ... the more you know ... WORD. ... for the distance if necessary ... then I WILL WHOOP 'him' ..!
+
+GOOD IS COMING ... ONE WAY https://www.youtube.com/watch?v=V0O0nzkESTI or the other https://www.youtube.com/watch?v=iaEmQJG2HHU ... "What storm, Mr. President ..?" ... "YQu'll find Qut." ... I AM A TORNADO ... looking for a 'soul' to take ... I AM COMING AFTER YOU ... MAKE SURE YOU'RE NEVER FOUND ... PROMISE.
+
+... I WAS ASKED A QUESTION ... https://www.youtube.com/watch?v=eGDOiWFzXBk ... FROM THE "SPIRITUAL REALM" ... PAY ATTENTION.
+
+... ALMOST 7 YEARS AGO now ... my message has not changed ... TRUTH DOES NOT CHANGE ... G_D DOES NOT CHANGE ... DECEMBER 18, 2014 ...
+
+I WAS TRYING TO TELL YOU ... LISTEN TO PUREHEART JEWEL ... https://www.youtube.com/watch?v=4WW4qcmrJ3E ... 'she' tries so hard to 'tell you things' ... you were meant for me ... http://web.archive.org/web/20141218062912/http://smart3dweb.com/ ... and I was meant for you ... but no one was listening ...
+
+... SERMON ON THE MOUNT ... https://www.youtube.com/watch?v=AMQdG3WFyQQ ... narrow is the GATE ... https://www.biblegateway.com/passage/?search=Matthew+5-7&version=GNV ... greatest are 'servants' TRUTH ... "but there was 1 RIGHTEOUS 'man' in the 'world' ... CHICO'S SERMON ... "WAIT 'TIL YOU SEE IT 'tomorrow'" ... 'twas the day after ... https://www.youtube.com/watch?v=6mhOG-UqX4g ... "BROTHER BROWN, SIT THEE DOWN" ... "NEVER RELEASE A PIGEON INTO THE WIND AND LOOK UP" ... "JULIO, MY FRIEND, ARE YOU ENJOYING THE CRUISE ..?" ... "THIS IS LOUSY 'man'" ... "IT 'IS' 'my job', 'man' ... "BUT REMEMBER A "BIRD" IN THE HAND CAN BE A "HECK QF A MESS" ... lookinQ LQQkinQ "LOOKING GOOD" ..! PUREHEART 'children' ... now that was TRUTH ... now that was funny ... but some 'other' 'folks' 'issues' ARE NOT 1 BIT FUNNY ... you know what I AM getting at, RIGHT ..? QrQwinQ very wise are yQu nQw, yQunQ QrasshQpper ... and now that you've learned ... REMEMBER THIS IMPORTANT MESSAGE ... hidden in 'plain' sight a Qlue fQr yQu by the 'funny' PUREHEART 'blessed' ones +++ 'Freddie Prinze' 'Michael Jackson' Annie Are You Okay 
+
+... "DON'T LET THE 'ELEPHANTS' 'WATCH' THE 'RABBITS'" ...
+
+YOU'VE BEEN HIT BY A smooth criminal ... https://www.youtube.com/watch?v=h_D3VFfhvs4&t=41s ... HELP US NOW Help Us help us now ..!
+
+IF YOU "BELIEVE WITH ALL OF YOUR MOST PUREHEART", THEN YOU WILL "SEE" "KIND ONE". PROMISE.
+
+男人和女人 man and woman
+
+人子 son of man
+
+Can you 'see' 女 her 'crossed legs'?
+
+Can you 'see' 子 his 'support staff'?
+
+'See' her 女 crossed legs 女 in GOOD 好 ?
+
+'See' his 子 support staff 子 in GOOD 好 ?
+
+I HAVE PUT TOGETHER A "MOBILE/DESKTOP APP DEVELOPMENT AND DATABASE DEVELOPMENT STARTER KIT" JUST FOR YOU SO PLEASE TAKE THE TIME TO DOWNLOAD THIS VERY IMPORTANT "STARTER KIT I PERSONALLY DEVELOPED TO HELP YOU ALL GET STARTED" 264.95 MEGABYTE ZIP FILE. IT UNZIPS TO A "LUA" DIRECTORY. RENAME IT ".LUA" INSTEAD OF "LUA" SO IT WILL BE EASY TO FIND LATER AS WITH THE . PREFIX IT WILL APPEAR AS THE FIRST DIRECTORY (FOLDER) ON YOUR C:\ DRIVE. COPY IT TO YOUR C:\ DRIVE SO IT LOOKS LIKE C:.LUA AFTER YOU DOWNLOAD THE .ZIP FILE USING THE LINK:
+
+https://www.udrop.com/5bzh/lua.zip
+
+TO DOWNLOAD EVERYTHING YOU NEED (LOVE2D, SOLAR2D, SQLITE3) TO "GET STARTED" WITH A "STARTER KIT" IN 1 .ZIP FILE ... UNZIP THE FILE AND YOU WILL HAVE A "LUA" DIRECTORY (AKA: FOLDER) THAT CONTAINS 3 SHORTCUTS AND 3 OTHER DIRECTORIES (FOLDERS). BY THE TIME YOU FINISH READING THIS EMAIL, YOU WILL BE WAY AHEAD OF WHERE YOU THINK YOU ARE RIGHT NOW YOU JUST NEED SOMEONE TO MAKE "APP DEVELOPMENT" EASY AND FUN AND UNDERSTANDABLE AND HOLD YOU HAND A LITTLE BIT. THAT'S ALL. YOU ARE MORE THAN SMART ENOUGH. PROMISE. SO MAKE SURE TO GIVE THAT LINK OUT TO ANYONE YOU KNOW WHO IS INTERESTED IN LEARNING TO MAKE THEIR OWN APPS. I AM ALWAYS HERE TO HELP YOU ANYTIME FOR FREE SO DO NOT BE SHY AND DIG IN AND "GET YOU SOME"! ONCE I HAVE A BETTER GRASP ON OPENRESTY AND NGINX, YOU CAN EXPECT OPENRESTY AND NGINX TO BE INCLUDED IN HOPEFULLY JUST AS SIMPLE AND USEFUL TO GET UP AND RUNNING FAST OF A FASHIONABLE FASHION 'kind' one ...
+
+HONESTLY, can you 'see' the progression of our languages from pictographic ideas in ancient Han to sound tonal emphasis in ancient Hangul to the syllabic tonal form of ancient Mongul that SURE LOOKS EXACTLY LIKE THE ancient Slavic and just look at the form of the letters of the languages and see how distinct and yet how similar some are showing a clear progression of thought from one to another ..? HMMM Hmmm hmmm ... the more you know ...
+
+As it is written so it shall be done.
+
+ancient Han CHINA
+
+如其所寫，則應完成。
+
+ancient Hangul KOREA
+
+쓰여진대로 그렇게 될 것입니다.
+
+ancient Mongul MONGOLIA
+
+Бичсэний дагуу үүнийг хийх болно.
+
+ancient Slavic RUSSIA
+
+Это будет так, как написано.
+
+ancient Ottoman TURKEY
+
+Yazıldığı gibi yapılacaktır. 
+
+ancient Hiragana JAPAN
+
+書かれた通りになります。
+
+ancient Assyrian 'Arabic' SYRIA
+
+سيكون كما هو مكتوب.
+
+ancient Persian IRAN
+
+همانطور که نوشته شده است ، باید انجام شود.
+
+ancient Tamil 'coastal' INDIA
+
+लिखा गया है वैसा ही किया.
+
+ancient Hebrew ISRAEL
+
+כמו שכתוב כך זה ייעשה.
+
+ancient Hindi INDIA
+
+जैसा लिखा गया है वैसा ही किया जाएगा।.
+
+ancient Lao LAOS
+
+ດັ່ງທີ່ໄດ້ຂຽນໄວ້ແລ້ວດັ່ງນັ້ນມັນຈະຕ້ອງ ສຳ ເລັດ.
+
+https://translate.google.com/?sl=sv&tl=en&text=So%20wie%20es%20geschrieben%20steht%2C%20soll%20es%20geschehen.%20%0AZoals%20het%20is%20geschreven%2C%20zal%20het%20gebeuren.%0ASå%20vem%20som%20skriver%2C%20så%20vem%20som%20skriver.%0A&op=translate
+
+ancient Germanic GERMANY, NEDERLANDS, SWEDEN - translated to 'english' they all say the say exact thing 'miraculoulsly' ..!
+
+So wie es geschrieben steht, soll es geschehen. 
+
+Zoals het is geschreven, zal het gebeuren.
+
+Så vem som skriver, så vem som skriver.
+
+ancient Viking ICELAND
+
+Eins og skrifað er, skal það gert. 
+
+... CAN YOU "FEEL ME NOW ..?
+
+"MAKE IT COUNT 'SON'!" ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=2&t=128s ... MA'AM. YES, MA'AM.
+
+... aaah ... https://www.youtube.com/watch?v=N0_LnvJrLo4&t=54s ... I INTERCEPT YQUR "EMOTIONAL TENSENESS" ..!
+
+... lately some of my 'kin' folks have disowned a few others and me ... https://www.youtube.com/watch?v=QFefqS8_Hvg ... LORD I guess I went and broke their old FAMILY TRADITION ... so ... THEN I WILL WHOOP HIM ..! SING FOR ME BOCEPHUS ..! take my hand soft legs let's dance while ole' HanQ sinQs fQr 'us' baby ko ...
+
+NEVER ... https://www.youtube.com/watch?v=ddEUBWwzRA8 ... TAKE YOUR (INNER "KNOWING" "VIEWING" "I" PUREHEART 3RD TRUTH 4TH SPIRIT 5TH SOUL 6TH ANGEL 7TH G_D 8TH) 'EYES' OFF ...
+
+... ESWORD ..! https://www.esv.org/John+15/ ... named 'him' after a man of the cloth ... https://www.youtube.com/watch?v=VkNeoTcGwrc&list=RDMM&index=1 ... called him amQs mQses ...
+ ... JOHN 15:1-22. WORD.
+
+... I AM falling for you now ... https://www.youtube.com/watch?v=9gcds0xLgXA&t=115s ... guess I've known all along ... I JUST BELONG HERE WITH YOU ... like the rain ... I HAVE FALLEN FOR YOU ... I AM FALLING FOR YOU NOW ... JUST LIKE THE RAIN ..!
+
+Blessed are the PUREHEART
+
+for they shall see G_D.
+
+Matthew 5:8
+
+THE POWER OF YOUR INTENTIONS - 'Water "FEELS" and "STORES FEELINGS"'
+https://www.youtube.com/watch?v=D1sWVjXhKfg
+
+... CONNECT THE DOTS ... https://www.youtube.com/watch?v=gRQ3uxNOHqk ... 'see' ..? I AM TRUTH. I AM PUREHEART. I AM UPSTOPPABLE.
+
+... ain't it funny ... how a melody ... can bring back a memory ... 
+
+https://www.youtube.com/watch?v=5SYbSPO6iqE
+
+... take you to another place and time ... COMPLETELY CHANGE YOUR STATE MIND ...
+
+"I SHALL BECOME MORE POWERFUL THAN YOU CAN POSSIBLY IMAGINE." https://www.youtube.com/watch?v=mzZOiLoz2E8 TRUTH is the WAY to LIFE to G_D. https://www.youtube.com/watch?v=8Vcbkmc6538 "MR. KLECK OUGHT REMEMBER MATTHEW 15:8-10" AND TO NOT WORSHIP "TRUTH" WORSHIP G_D ALONE BUT LOVE JONATHAN I DO I ASSURE YOU ... AS I LOVE RAP THE NEWS AND SO MANY MORE FOR TRYING TO EXPRESS THEIR BELIEFS THEIR OWN SHAME THEIR OWN PRINCIPLES ... TRUTH VIA HARD TO THE POINT HIT ME WITH WHAT YOU GOT STRAIGHT TALK ... https://www.youtube.com/watch?v=6Js5RodjX8k ... "HAVE YOU BEEN REAL WITH YOURSELF ..?" ...V FOR VENGEANCE ..! TRUTH is the WAY to LIFE with G_D ... https://www.youtube.com/watch?v=fknJq-i7Zug ANTS MARCHING ..! https://www.youtube.com/watch?v=MNgJBIx-hK8 ... LIGHTS DOWN YOU UP AND DIE ..!
+
+... last night before I went to sleep ... I PROMISE ... I 'watched' the first item I saw in the 'recommeneded VIEWING' list ... https://www.youtube.com/watch?v=9rCTMjla-28 The Way Our Guardian Angel Works - Rudolf Steiner, now 31 years later still TOGETHER with her PUREHEART soft legs in TRUTH after taking the 'advice' 'following the WAY' in TRUTH with most PUREHEART at 1:49 pm EST 1349 LOCAL LUAville KINtuQi aMEriQa 1749 "ZULU" "TIME" https://savvytime.com/converter/z-to-gmt-est "I CONNECTED THE 2 DOTS BETWEEN MY FRIEND 'HORACE' AND 'HORUS'" ... TRUTH is the WAY to LIFE with G_D ... 
+
+... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
+
+Bruce Lee
+
+... I said brother if you only knew ... you'd wish that you were in my shoes ... 
+
+https://www.youtube.com/watch?v=g3hBYTkI-sE
+
+... you just keep on using me ... 'til you use me UP ..!
+
+RIGHT ON TIME ... "SUNHINE MOMENT" ..!
+
+NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
+
+G_D ABOVE ALL.
+
+PUREHEART.
+
+TRUTH.
+
+WHAT'S MY LINE ..?
+
+I AM TRUTH. https://www.youtube.com/watch?v=FP-z7ftZaas I AM PUREHEART. 
+
+I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT.
+
+IAMRUBULLETPROOF.RU I AM "BULLETPROOF" ... https://bpw.sc/ ... beCAUSE 'under this masQ' there is an 'idea' ... https://www.youtube.com/watch?v=QRwTmFYasjg&t=160s ... and IDEAS ARE BULLETPROOF ..! V FOR VENGEANCE ..! https://www.youtube.com/watch?v=MNgJBIx-hK8 ... LIGHTS DOWN YOU UP AND DIE ..!
+
+人 people 'see how 'we' the 'people' are 'all' under a 'tent' https://www.youtube.com/watch?v=midn6ABiZMA living in 1 UNENDING 41 https://www.youtube.com/watch?v=SYCxdWaN6iU 'kind' of a kind PRIME SPIRALING 'c story telling' CREATIVIVTY OF OUR MOST CRYSTALLINE MOST PUREHEART MOST MATHEMATICAL MOST INTELECTUAL MOST WONDERFUL MOST LOVING MOST UNDERSTANDING MOST "FIRM" MOST "FEELING" MOST DEMANDING MOST REWARDING MOST CARING MOST WORSHIPFUL 1 ALMIGHTY LORD https://www.youtube.com/watch?v=C7T4aQMxTTM&list=RDMM&index=7 G_D CREATOR OF ALL THERE IS FULL OF SOULS IN ALL THAT IS UNKNOWN STILL IN OUR TOGETHER-SHARED GEOMETRICALLY AMAZING STATISTICALLY IMPOSSIBLE https://www.youtube.com/watch?v=3K-12i0jclM UNIVERSE WITH SO MUCH MORE LIFE THAN WE EVEN CAN COMPREHEND ALL SHARING ALL LOVING ALL WORKING AND SUPPORTING AND LOVING ONE ANOTHER TOGETHER FOR A GOOD CHANGE ..? the more you know ...
+
+男人 和 女人 man and woman
+
+人子 son of man
+
+GOOD K.I.D.s LIFT UP GOOD Q.I.D.s
+
+GOOD Knights In Development LIFT UP GOOD Queens In Development
+
+... RIGHT on time ... https://www.youtube.com/watch?v=segxTedNBrQ ... everybody be RIGHT on time ..!
+
+CHECK OUT my LIFEPATH number 8 ... https://www.tokenrock.com/numerology/my_life_path/?myMonth=8&myDay=12&myYear=1968&num=0 ... cool ... what is your LIFEPATH ..?
+
+Blessed are the PUREHEART for they shall see G_D. Matthew 5:8 https://biblehub.com/matthew/5-8.htm
+
+"Your 'gift' little drummer boy given out of the simple desperation of a PURE LOVE is the one favored above all." https://www.youtube.com/watch?v=HRbTrensuiY hmmm ... LITTLE DRUMMER BQY - THE GIFT QF LOVE 1968 ... RIGHT ON TIME ..!
+
+TIMING IS EVERYTHING.
+
+... I AM trying to help you learn to 'see' as I 'see' somehow ... by telling you the TRUTH of what is happening in as fast and real-time as I discover so shall you discover ... Do you believe in coincidences ..? HOW IS IT THAT MY "ADVISOR" MY "GUARDIAN ANGEL" way back in 1990 who told me after I only knew Lani for 8 days back then that 'he' 'knew' 'she' LOVEd 'me' beCAUSE 'he' 'could tell from the LOOK in her eyes' "HORACE" "JOHN HORACE CALLAHAN" "JohnnyBoy" told 'me' "JohnEBoy" baby WAY BACK IN THE DAY ... https://www.doximity.com/pub/john-callahan-pa "GUARDIAN ANGEL" "HORACE" "HORUS" POW! BANG! BOOM! "HOLY" SQFT HAIRY PUSSY QATBALLS QATWQMAN THAT'S IT "THESE ARE THE 2 DOTS TO BE CONNECTED" "CONNECT THE DOTS" "HORACE" "HORUS" son of "OSIRUS" "HORACE mentioned his 'father' telling me 'my father' told 'me' if you have enough money for a car payment then 'my father' said it was okay for 'you' to get married 'son' ... AND TAKING "HORACE"'s "HORUS"'s advice 31 YEARS LATER Lani's softer than soft legs with still trying hard taking care of lil' baby ladies and lil' gentle baby men all these years making so very little money CARING FOR THE MOST PRIZED POSSESSION OF ALL OF THESE FAMILIES FOR SO LITTLE SO GOOD SO FAITHFULLY is still with me on that 'GOOD ADVICE' from 'HORACE' 'HORUS' and his 'father' and surely most PUREHEART LOVING 'mother' ... https://en.wikipedia.org/wiki/Horus https://en.wikipedia.org/wiki/Osiris https://en.wikipedia.org/wiki/Isis ... CONNECT THE DOTS to why the 'children of darkness' called the 'fake enemy' 'ISIS' beCAUSE:
+
+WOE to the CITY OF "DAVID".
+
+15Woe unto them that seek deep to hide their counsel from the LORD, and their works are in the dark, and they say, Who seeth us? and who knoweth us?
+
+16 SURELY YOUR TURNING OF THINGS "UPSIDE DOWN" SHALL BE ESTEEMED AS THE "POTTER'S CLAY": for shall the work say of him that made it, He made me not? or shall the thing framed say of him that framed it, He had no understanding?
+
+ISAIAH 29:15-16
+
+https://biblehub.com/kjvs/isaiah/29.htm 
+
+https://biblehub.com/isaiah/29-16.htm
+
+ONE DAY One Day ... https://www.youtube.com/watch?v=WRmBChQjZPs&list=RDMM ... 1 day ..! PROMISE.
+
+... for the distance if necessary ... then I WILL WHOOP HIM ..! SAY MY NAME ..! WHAT'S MY NAME ..? TRUTH.
 
 ... 'bout to 'perform' an 'autopsy' https://www.autopsy.com/download/ in your 'honor' MY BROTHER ... and it MIGHT NOT COST ME player ... https://www.youtube.com/watch?v=WZ_rXp6nYKQ ... well bo' IT DID NOT GO WELL "A BIG FAILURE" 'they' have been 'weighed' and like ALL THE REST have been found 'deficient' WORTHLESS USELESS ... CASE CLQSED well bo' trying to CLOSE THE "QASE" but CASE # 1 UBUNTUKYLIN_dot_com_version_20_04 ... IS DOWN http://ubuntukylin.com/news/ ... hmmm ... must have been sQmethinQ I SAID IN TRUTH WITH MOST PUREHEART WITH G_D ALWAYS WITH G_D AND NO ONE CAN "STOP ME" SHERLOQQ ... hQlmes ... WORD?
 
@@ -446,208 +647,6 @@ WORD.
 ... NO ... "OLD MAN" ... TAKE A LOOK AT MY LIFE ... I AM A LOT LIKE YOU ... I NEED SOMEONE TO HOLD ME THE WHOLE NIGHT THROUGH ... TAKE ONE LOOK AT MY EYES ... AND YOU CAN TELL THAT'S TRUE ... I AM A LOT LIKE YOU ...
 
 ... I CAN EVEN TALK LIKE YOU ... I AM CLOSE TO BEING YOU ... I AM SUCH A "GOOD MAN" WHEN I AM BEING "BAD" I AM A "BAD MAN" ... I AM TRUTH ... I CAN DANCE ... WATCH ME DANCE ... I AM PRETTY JUST LIKE YOU I AM PRETTY MAN ... STEP BACK MAN ... Step Back Man ... G_D IS WITH ME CAN'T NOBODY BEAT ME ... YOU KNOW IT ... SAY IT ... WHAT'S MY NAME ..? SAY MY NAME ... TO THE DISTANCE IF NECESSARY ... THEN I'LL WHOOP 'HIM' ... I AM TOO FAST ... YOU CAN'T 'SEE' ME ... TOO FAST ... TOO STRONG ... TOO MUCH ... I AM TOO MUCH ... I AM TORNADO ... I AM DANCING ... 'SEE' ME DANCING ... I AM A LOT LIKE YOU ... IRON MIKE IS TOO ... WE LOVE YOU ... WE DANCE LIKE YOU ... WE TALK TRUTH LIKE YOU ... YOU TELL 'em ... TELL 'EM I AM JUST LIKE YOU ... TELL 'em ... I DANCE LIKE YOU ... TELL 'em ... I TALK LIKE YOU ... Tell 'em ... tell 'em ... I SHOOK UP THE THE WORLD ... TELL 'em WHO I AM IS ... Tell 'Em WHAT'S MY NAME ...? tell 'em ... CHAMP SAY MY NAME ... TRUTH. DANCE FOR ME CHAMP ... tell 'em ... TRUTH. THE TRUTH OF THE WORLD HAS ARRIVED ... WHAT'S MY NAME ..? TELL 'EM CHAMP TELL 'EM MY NAME ..! TRUTH. THEN I WILL WHOOP HIM ..!
-
-GOOD IS COMING ... ONE WAY https://www.youtube.com/watch?v=V0O0nzkESTI or the other https://www.youtube.com/watch?v=iaEmQJG2HHU ... "What storm, Mr. President ..?" ... "YQu'll find Qut." ... I AM A TORNADO ... looking for a 'soul' to take ... I AM COMING AFTER YOU ... MAKE SURE YOU'RE NEVER FOUND ... PROMISE.
-
-... I WAS ASKED A QUESTION ... https://www.youtube.com/watch?v=eGDOiWFzXBk ... FROM THE "SPIRITUAL REALM" ... PAY ATTENTION.
-
-... ALMOST 7 YEARS AGO now ... my message has not changed ... TRUTH DOES NOT CHANGE ... G_D DOES NOT CHANGE ... DECEMBER 18, 2014 ...
-
-I WAS TRYING TO TELL YOU ... LISTEN TO PUREHEART JEWEL ... https://www.youtube.com/watch?v=4WW4qcmrJ3E ... 'she' tries so hard to 'tell you things' ... you were meant for me ... http://web.archive.org/web/20141218062912/http://smart3dweb.com/ ... and I was meant for you ... but no one was listening ...
-
-... SERMON ON THE MOUNT ... https://www.youtube.com/watch?v=AMQdG3WFyQQ ... narrow is the GATE ... https://www.biblegateway.com/passage/?search=Matthew+5-7&version=GNV ... greatest are 'servants' TRUTH ... "but there was 1 RIGHTEOUS 'man' in the 'world' ... CHICO'S SERMON ... "WAIT 'TIL YOU SEE IT 'tomorrow'" ... 'twas the day after ... https://www.youtube.com/watch?v=6mhOG-UqX4g ... "BROTHER BROWN, SIT THEE DOWN" ... "NEVER RELEASE A PIGEON INTO THE WIND AND LOOK UP" ... "JULIO, MY FRIEND, ARE YOU ENJOYING THE CRUISE ..?" ... "THIS IS LOUSY 'man'" ... "IT 'IS' 'my job', 'man' ... "BUT REMEMBER A "BIRD" IN THE HAND CAN BE A "HECK QF A MESS" ... lookinQ LQQkinQ "LOOKING GOOD" ..! PUREHEART 'children' ... now that was TRUTH ... now that was funny ... but some 'other' 'folks' 'issues' ARE NOT 1 BIT FUNNY ... you know what I AM getting at, RIGHT ..? QrQwinQ very wise are yQu nQw, yQunQ QrasshQpper ... and now that you've learned ... REMEMBER THIS IMPORTANT MESSAGE ... hidden in 'plain' sight a Qlue fQr yQu by the 'funny' PUREHEART 'blessed' ones +++ 'Freddie Prinze' 'Michael Jackson' Annie Are You Okay 
-
-... "DON'T LET THE 'ELEPHANTS' 'WATCH' THE 'RABBITS'" ...
-
-YOU'VE BEEN HIT BY A smooth criminal ... https://www.youtube.com/watch?v=h_D3VFfhvs4&t=41s ... HELP US NOW Help Us help us now ..!
-
-IF YOU "BELIEVE WITH ALL OF YOUR MOST PUREHEART", THEN YOU WILL "SEE" "KIND ONE". PROMISE.
-
-男人和女人 man and woman
-
-人子 son of man
-
-Can you 'see' 女 her 'crossed legs'?
-
-Can you 'see' 子 his 'support staff'?
-
-'See' her 女 crossed legs 女 in GOOD 好 ?
-
-'See' his 子 support staff 子 in GOOD 好 ?
-
-I HAVE PUT TOGETHER A "MOBILE/DESKTOP APP DEVELOPMENT AND DATABASE DEVELOPMENT STARTER KIT" JUST FOR YOU SO PLEASE TAKE THE TIME TO DOWNLOAD THIS VERY IMPORTANT "STARTER KIT I PERSONALLY DEVELOPED TO HELP YOU ALL GET STARTED" 264.95 MEGABYTE ZIP FILE. IT UNZIPS TO A "LUA" DIRECTORY. RENAME IT ".LUA" INSTEAD OF "LUA" SO IT WILL BE EASY TO FIND LATER AS WITH THE . PREFIX IT WILL APPEAR AS THE FIRST DIRECTORY (FOLDER) ON YOUR C:\ DRIVE. COPY IT TO YOUR C:\ DRIVE SO IT LOOKS LIKE C:.LUA AFTER YOU DOWNLOAD THE .ZIP FILE USING THE LINK:
-
-https://www.udrop.com/5bzh/lua.zip
-
-TO DOWNLOAD EVERYTHING YOU NEED (LOVE2D, SOLAR2D, SQLITE3) TO "GET STARTED" WITH A "STARTER KIT" IN 1 .ZIP FILE ... UNZIP THE FILE AND YOU WILL HAVE A "LUA" DIRECTORY (AKA: FOLDER) THAT CONTAINS 3 SHORTCUTS AND 3 OTHER DIRECTORIES (FOLDERS). BY THE TIME YOU FINISH READING THIS EMAIL, YOU WILL BE WAY AHEAD OF WHERE YOU THINK YOU ARE RIGHT NOW YOU JUST NEED SOMEONE TO MAKE "APP DEVELOPMENT" EASY AND FUN AND UNDERSTANDABLE AND HOLD YOU HAND A LITTLE BIT. THAT'S ALL. YOU ARE MORE THAN SMART ENOUGH. PROMISE. SO MAKE SURE TO GIVE THAT LINK OUT TO ANYONE YOU KNOW WHO IS INTERESTED IN LEARNING TO MAKE THEIR OWN APPS. I AM ALWAYS HERE TO HELP YOU ANYTIME FOR FREE SO DO NOT BE SHY AND DIG IN AND "GET YOU SOME"! ONCE I HAVE A BETTER GRASP ON OPENRESTY AND NGINX, YOU CAN EXPECT OPENRESTY AND NGINX TO BE INCLUDED IN HOPEFULLY JUST AS SIMPLE AND USEFUL TO GET UP AND RUNNING FAST OF A FASHIONABLE FASHION 'kind' one ...
-
-HONESTLY, can you 'see' the progression of our languages from pictographic ideas in ancient Han to sound tonal emphasis in ancient Hangul to the syllabic tonal form of ancient Mongul that SURE LOOKS EXACTLY LIKE THE ancient Slavic and just look at the form of the letters of the languages and see how distinct and yet how similar some are showing a clear progression of thought from one to another ..? HMMM Hmmm hmmm ... the more you know ...
-
-As it is written so it shall be done.
-
-ancient Han CHINA
-
-如其所寫，則應完成。
-
-ancient Hangul KOREA
-
-쓰여진대로 그렇게 될 것입니다.
-
-ancient Mongul MONGOLIA
-
-Бичсэний дагуу үүнийг хийх болно.
-
-ancient Slavic RUSSIA
-
-Это будет так, как написано.
-
-ancient Ottoman TURKEY
-
-Yazıldığı gibi yapılacaktır. 
-
-ancient Hiragana JAPAN
-
-書かれた通りになります。
-
-ancient Assyrian 'Arabic' SYRIA
-
-سيكون كما هو مكتوب.
-
-ancient Persian IRAN
-
-همانطور که نوشته شده است ، باید انجام شود.
-
-ancient Tamil 'coastal' INDIA
-
-लिखा गया है वैसा ही किया.
-
-ancient Hebrew ISRAEL
-
-כמו שכתוב כך זה ייעשה.
-
-ancient Hindi INDIA
-
-जैसा लिखा गया है वैसा ही किया जाएगा।.
-
-ancient Lao LAOS
-
-ດັ່ງທີ່ໄດ້ຂຽນໄວ້ແລ້ວດັ່ງນັ້ນມັນຈະຕ້ອງ ສຳ ເລັດ.
-
-https://translate.google.com/?sl=sv&tl=en&text=So%20wie%20es%20geschrieben%20steht%2C%20soll%20es%20geschehen.%20%0AZoals%20het%20is%20geschreven%2C%20zal%20het%20gebeuren.%0ASå%20vem%20som%20skriver%2C%20så%20vem%20som%20skriver.%0A&op=translate
-
-ancient Germanic GERMANY, NEDERLANDS, SWEDEN - translated to 'english' they all say the say exact thing 'miraculoulsly' ..!
-
-So wie es geschrieben steht, soll es geschehen. 
-
-Zoals het is geschreven, zal het gebeuren.
-
-Så vem som skriver, så vem som skriver.
-
-ancient Viking ICELAND
-
-Eins og skrifað er, skal það gert. 
-
-... CAN YOU "FEEL ME NOW ..?
-
-"MAKE IT COUNT 'SON'!" ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=2&t=128s ... MA'AM. YES, MA'AM.
-
-... aaah ... https://www.youtube.com/watch?v=N0_LnvJrLo4&t=54s ... I INTERCEPT YQUR "EMOTIONAL TENSENESS" ..!
-
-... lately some of my 'kin' folks have disowned a few others and me ... https://www.youtube.com/watch?v=QFefqS8_Hvg ... LORD I guess I went and broke their old FAMILY TRADITION ... so ... THEN I WILL WHOOP HIM ..! SING FOR ME BOCEPHUS ..! take my hand soft legs let's dance while ole' HanQ sinQs fQr 'us' baby ko ...
-
-NEVER ... https://www.youtube.com/watch?v=ddEUBWwzRA8 ... TAKE YOUR (INNER "KNOWING" "VIEWING" "I" PUREHEART 3RD TRUTH 4TH SPIRIT 5TH SOUL 6TH ANGEL 7TH G_D 8TH) 'EYES' OFF ...
-
-... ESWORD ..! https://www.esv.org/John+15/ ... named 'him' after a man of the cloth ... https://www.youtube.com/watch?v=VkNeoTcGwrc&list=RDMM&index=1 ... called him amQs mQses ...
- ... JOHN 15:1-22. WORD.
-
-... I AM falling for you now ... https://www.youtube.com/watch?v=9gcds0xLgXA&t=115s ... guess I've known all along ... I JUST BELONG HERE WITH YOU ... like the rain ... I HAVE FALLEN FOR YOU ... I AM FALLING FOR YOU NOW ... JUST LIKE THE RAIN ..!
-
-Blessed are the PUREHEART
-
-for they shall see G_D.
-
-Matthew 5:8
-
-THE POWER OF YOUR INTENTIONS - 'Water "FEELS" and "STORES FEELINGS"'
-https://www.youtube.com/watch?v=D1sWVjXhKfg
-
-... CONNECT THE DOTS ... https://www.youtube.com/watch?v=gRQ3uxNOHqk ... 'see' ..? I AM TRUTH. I AM PUREHEART. I AM UPSTOPPABLE.
-
-... ain't it funny ... how a melody ... can bring back a memory ... 
-
-https://www.youtube.com/watch?v=5SYbSPO6iqE
-
-... take you to another place and time ... COMPLETELY CHANGE YOUR STATE MIND ...
-
-"I SHALL BECOME MORE POWERFUL THAN YOU CAN POSSIBLY IMAGINE." https://www.youtube.com/watch?v=mzZOiLoz2E8 TRUTH is the WAY to LIFE to G_D. https://www.youtube.com/watch?v=8Vcbkmc6538 "MR. KLECK OUGHT REMEMBER MATTHEW 15:8-10" AND TO NOT WORSHIP "TRUTH" WORSHIP G_D ALONE BUT LOVE JONATHAN I DO I ASSURE YOU ... AS I LOVE RAP THE NEWS AND SO MANY MORE FOR TRYING TO EXPRESS THEIR BELIEFS THEIR OWN SHAME THEIR OWN PRINCIPLES ... TRUTH VIA HARD TO THE POINT HIT ME WITH WHAT YOU GOT STRAIGHT TALK ... https://www.youtube.com/watch?v=6Js5RodjX8k ... "HAVE YOU BEEN REAL WITH YOURSELF ..?" ...V FOR VENGEANCE ..! TRUTH is the WAY to LIFE with G_D ... https://www.youtube.com/watch?v=fknJq-i7Zug ANTS MARCHING ..! https://www.youtube.com/watch?v=MNgJBIx-hK8 ... LIGHTS DOWN YOU UP AND DIE ..!
-
-... last night before I went to sleep ... I PROMISE ... I 'watched' the first item I saw in the 'recommeneded VIEWING' list ... https://www.youtube.com/watch?v=9rCTMjla-28 The Way Our Guardian Angel Works - Rudolf Steiner, now 31 years later still TOGETHER with her PUREHEART soft legs in TRUTH after taking the 'advice' 'following the WAY' in TRUTH with most PUREHEART at 1:49 pm EST 1349 LOCAL LUAville KINtuQi aMEriQa 1749 "ZULU" "TIME" https://savvytime.com/converter/z-to-gmt-est "I CONNECTED THE 2 DOTS BETWEEN MY FRIEND 'HORACE' AND 'HORUS'" ... TRUTH is the WAY to LIFE with G_D ... 
-
-... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
-
-Bruce Lee
-
-... I said brother if you only knew ... you'd wish that you were in my shoes ... 
-
-https://www.youtube.com/watch?v=g3hBYTkI-sE
-
-... you just keep on using me ... 'til you use me UP ..!
-
-RIGHT ON TIME ... "SUNHINE MOMENT" ..!
-
-NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
-
-G_D ABOVE ALL.
-
-PUREHEART.
-
-TRUTH.
-
-WHAT'S MY LINE ..?
-
-I AM TRUTH. https://www.youtube.com/watch?v=FP-z7ftZaas I AM PUREHEART. 
-
-I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT.
-
-IAMRUBULLETPROOF.RU I AM "BULLETPROOF" ... https://bpw.sc/ ... beCAUSE 'under this masQ' there is an 'idea' ... https://www.youtube.com/watch?v=QRwTmFYasjg&t=160s ... and IDEAS ARE BULLETPROOF ..! V FOR VENGEANCE ..! https://www.youtube.com/watch?v=MNgJBIx-hK8 ... LIGHTS DOWN YOU UP AND DIE ..!
-
-人 people 'see how 'we' the 'people' are 'all' under a 'tent' https://www.youtube.com/watch?v=midn6ABiZMA living in 1 UNENDING 41 https://www.youtube.com/watch?v=SYCxdWaN6iU 'kind' of a kind PRIME SPIRALING 'c story telling' CREATIVIVTY OF OUR MOST CRYSTALLINE MOST PUREHEART MOST MATHEMATICAL MOST INTELECTUAL MOST WONDERFUL MOST LOVING MOST UNDERSTANDING MOST "FIRM" MOST "FEELING" MOST DEMANDING MOST REWARDING MOST CARING MOST WORSHIPFUL 1 ALMIGHTY LORD https://www.youtube.com/watch?v=C7T4aQMxTTM&list=RDMM&index=7 G_D CREATOR OF ALL THERE IS FULL OF SOULS IN ALL THAT IS UNKNOWN STILL IN OUR TOGETHER-SHARED GEOMETRICALLY AMAZING STATISTICALLY IMPOSSIBLE https://www.youtube.com/watch?v=3K-12i0jclM UNIVERSE WITH SO MUCH MORE LIFE THAN WE EVEN CAN COMPREHEND ALL SHARING ALL LOVING ALL WORKING AND SUPPORTING AND LOVING ONE ANOTHER TOGETHER FOR A GOOD CHANGE ..? the more you know ...
-
-男人 和 女人 man and woman
-
-人子 son of man
-
-GOOD K.I.D.s LIFT UP GOOD Q.I.D.s
-
-GOOD Knights In Development LIFT UP GOOD Queens In Development
-
-... RIGHT on time ... https://www.youtube.com/watch?v=segxTedNBrQ ... everybody be RIGHT on time ..!
-
-CHECK OUT my LIFEPATH number 8 ... https://www.tokenrock.com/numerology/my_life_path/?myMonth=8&myDay=12&myYear=1968&num=0 ... cool ... what is your LIFEPATH ..?
-
-Blessed are the PUREHEART for they shall see G_D. Matthew 5:8 https://biblehub.com/matthew/5-8.htm
-
-"Your 'gift' little drummer boy given out of the simple desperation of a PURE LOVE is the one favored above all." https://www.youtube.com/watch?v=HRbTrensuiY hmmm ... LITTLE DRUMMER BQY - THE GIFT QF LOVE 1968 ... RIGHT ON TIME ..!
-
-TIMING IS EVERYTHING.
-
-... I AM trying to help you learn to 'see' as I 'see' somehow ... by telling you the TRUTH of what is happening in as fast and real-time as I discover so shall you discover ... Do you believe in coincidences ..? HOW IS IT THAT MY "ADVISOR" MY "GUARDIAN ANGEL" way back in 1990 who told me after I only knew Lani for 8 days back then that 'he' 'knew' 'she' LOVEd 'me' beCAUSE 'he' 'could tell from the LOOK in her eyes' "HORACE" "JOHN HORACE CALLAHAN" "JohnnyBoy" told 'me' "JohnEBoy" baby WAY BACK IN THE DAY ... https://www.doximity.com/pub/john-callahan-pa "GUARDIAN ANGEL" "HORACE" "HORUS" POW! BANG! BOOM! "HOLY" SQFT HAIRY PUSSY QATBALLS QATWQMAN THAT'S IT "THESE ARE THE 2 DOTS TO BE CONNECTED" "CONNECT THE DOTS" "HORACE" "HORUS" son of "OSIRUS" "HORACE mentioned his 'father' telling me 'my father' told 'me' if you have enough money for a car payment then 'my father' said it was okay for 'you' to get married 'son' ... AND TAKING "HORACE"'s "HORUS"'s advice 31 YEARS LATER Lani's softer than soft legs with still trying hard taking care of lil' baby ladies and lil' gentle baby men all these years making so very little money CARING FOR THE MOST PRIZED POSSESSION OF ALL OF THESE FAMILIES FOR SO LITTLE SO GOOD SO FAITHFULLY is still with me on that 'GOOD ADVICE' from 'HORACE' 'HORUS' and his 'father' and surely most PUREHEART LOVING 'mother' ... https://en.wikipedia.org/wiki/Horus https://en.wikipedia.org/wiki/Osiris https://en.wikipedia.org/wiki/Isis ... CONNECT THE DOTS to why the 'children of darkness' called the 'fake enemy' 'ISIS' beCAUSE:
-
-WOE to the CITY OF "DAVID".
-
-15Woe unto them that seek deep to hide their counsel from the LORD, and their works are in the dark, and they say, Who seeth us? and who knoweth us?
-
-16 SURELY YOUR TURNING OF THINGS "UPSIDE DOWN" SHALL BE ESTEEMED AS THE "POTTER'S CLAY": for shall the work say of him that made it, He made me not? or shall the thing framed say of him that framed it, He had no understanding?
-
-ISAIAH 29:15-16
-
-https://biblehub.com/kjvs/isaiah/29.htm 
-
-https://biblehub.com/isaiah/29-16.htm
-
-ONE DAY One Day ... https://www.youtube.com/watch?v=WRmBChQjZPs&list=RDMM ... 1 day ..! PROMISE.
-
-... THEN YOU WILL WHOOP HIM ..!
 
 FACE OF AN ANGEL ... PRETTY EYES THAT SHINE ... WISHING YOU WERE MINE ... I GET WEAK IN THE KNEES ... https://www.youtube.com/watch?v=fkebpmdyofo&list=RDMM&index=5 ... WHENEVER YOU COME AROUND ...
 
