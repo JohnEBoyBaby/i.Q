@@ -21,7 +21,9 @@ I AM 'scientific' ... I AM 'artistic' ... https://www.youtube.com/watch?v=XpPqZR
 
 https://www.youtube.com/watch?v=3KL9mRus19o&t=115s
 
-... rolling with the fatness ... you don't even know what the half is ... NO DIGGITY ... NO DAP ..!
+... rolling with the fatness ... you don't even know what the half is ... NO DIGGITY ... NO DAP ..! 
+
+I "SEE" YOU ..! https://www.youtube.com/watch?v=t0FMWfQ3HEE ... I "SEE" NO CHANGES ..!
 
 ... WHAT'S GOING ON ..? https://www.youtube.com/watch?v=Y9KC7uhMY9s ... BROTHER Brother brother ... there's far too many of 'you' dying ... 'you' know we have got to find a WAY to bring some LOVING ... beCAUSE tell'em WHO I AM IS Khabib Gracie bo's Jon Bones tell 'em WHO I AM IS IRON MICHAEL ..! SAY MY NAME ..! WHAT'S MY NAME ..? TRUTH. https://www.youtube.com/watch?v=hzFpiW5vHrc ... I GOT YOU IN A STRANGLEHOLD BABY ... NQW ..! EVERYBODY GIVE A BIG WARM QentuQi wel.com to TYLER CHLDERS AND THE "FOOD STAMPS" ..! https://www.youtube.com/watch?v=AWN2gT5gwX8 ... for the distance if necessary ... then I WILL WHOOP 'him' ..!
 
