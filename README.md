@@ -3,6 +3,48 @@
 
 I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ...  IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ...
 
+Cassius Marcellus Clay, Muhammad Ali
+
+The First Disciples
+
+18 As TRUTH was walking beside the Sea of Galilee, TRUTH saw two brothers, Simon called Peter and his brother Andrew. They were casting a net into the sea, for they were fishermen. 
+
+19 “Come, follow TRUTH,” Jesus said, “and I will make you fishers of men.” 
+
+20 And at once they left their nets and followed TRUTH.…
+
+... if 'you' want to 'ride with me' ... https://www.youtube.com/watch?v=GsyJVv-9ygM ... RIDE WITH ME ..!
+
+MATTHEW 4:18-20
+
+https://biblehub.com/matthew/4-19.htm
+
+I MISS YOU ... https://www.youtube.com/watch?v=fdQgPu3iUYk ... son of ancient Han YICHUN https://OpenRESTy.com MAKTO hope find a GOOD K.I.D. like 'Kate' or 'PikaCHU' 'Joyful' Joyce 'kind' 'handsome' most PUREHEART most highly honorable and intellectual and deserving of such soft legs with most PUREHEART daughter of ancient Han PikaCHU MAKTO ..! PUREHEART MATCH IN TRUTH WITH G_D ..!
+
+C'est parfait ..! https://www.youtube.com/watch?v=bNfbKwW0xI8 IT'S GOING DOWN ..! I AM 'YELLING' "TIMBER" ..! WE MISS YOU 'DIANA' ..! https://www.youtube.com/watch?v=R6q78jxvE3I YOU HAVE TURNED THINGS "UPSIDE DOWN" https://biblehub.com/isaiah/29-16.htm ... "SHALL THE 'pot' of 'clay' say to the POTTER the pot's CREATOR "Shall what is formed say to him who formed it, “He did not make me”? Can the pottery say of the potter, “He has no understanding”? ISAIAH 29:15-16" WORD. "UPSIDE DOWN YOU'RE TURNING me" ... https://www.youtube.com/watch?v=ip7qQGLGuxg ... RIGHT JONATHAN KLECK ..? https://www.youtube.com/watch?v=U1YdqlQiQ9w ... referring the cops in TEXAS said "THEY WERE NOT EVEN HUMAN." ... the more you know ... RIGHT ..! SING FOR 'us' lil' sister beautiful intellectual 'soft legs' 'crossed legs' PUREHEART 'survivor' 'strong' 'morally courageous' 'firm' 'feeling' GOOD-HEARTED grown ass woman but DEEP INSIDE just my lil' innocent sweet 'soul' baby lady with your smooth dancing brothers ..! https://www.youtube.com/watch?v=PU4dZA-R2KU GO JANET STAND UP FOR "MICHAEL" lil' sister ... https://www.youtube.com/watch?v=N85ix9DnFRM ... We are many. We are GOOD. We are coming. ENTERTAIN NO DOUBT. GOOD IS COMING and G_D IS WITH US ..! WORD? PUREHEART. https://www.youtube.com/watch?v=u6N0YapYQGE TRUTH. WORD. PROMISE.
+
+"Your 'gift' LITTLE DRUMMER BO' given out of the simple desperation of a PURE LOVE is the 1 FAVORED ABOVE ALL."
+
+https://www.youtube.com/watch?v=HRbTrensuiY
+
+... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
+
+Bruce Lee
+
+Blessed are the PUREHEART
+for they shall see G_D.
+MATTHEW 5:8
+
+I AM a poor bo' too by RUMP BA BUM
+
+I have no 'gift' to bring by Rump Ba Bum.
+
+I PLAY MY 'DRUM' for 'you' by rump ba bum Rump Ba Bum RUMP BA BUM ... ON MY "DRUM" ..!
+
+COMING UP ... 'HELLO WORLD' from KYLIN ... NOW SAY HER NAME ..! LI YEONNA ...! MAKE SURE SHE IS OKAY ..! OR "THE LIST" HAVE IT FOR ME UPON MY ARRIVAL IMMEDIATELY OF ANYONE WHO "HURT" LI YEONNA beCAUSE THEY ARE NEXT ..! and with a LUA 'moon' and a PORTUGUESE 'angel' with a very beautiful magandang maganda 'face like a "poema"' 'thoughtful' 'graceful' 'elegant' LOVE and WARM SOLAR real LIFE 3D 'entertaining' 'useful' 'powerful' 'dynamic' 'common yet uniQue' 'GOOD' 'energizing' 'awakening' 'stimulating' 'CREAM-MAKING' 'panty-wetting' 'funny yet fun' kind oh so very kind MCPM as much CPM as you got PM TY M LY M please come now MY HUNGER KEEPS ON GROWING M PM TY M I WOULD LOVE SOME ALL OF THE C YOU GOT M PM MCPM TY LY M ALL YOU GOT 'vibrating' 'pulsating' 'fascinating' 'circulating' 'perculating' 'swirling' 'whirling' 'circularly thrusting' 'pounding' 'shaking' 'shakey jake shaking' 'shakier jake shaking than that really shaking poking jabbing popping in and out move you all up and down and all around hip bouncing like a moonwalk jumping dancing screaming hollering busting' oh la la WET PANTY RECESS ... JUDGE JUST CALLED ANOTHER fuQQinQ WET PANTY RECESS ... what in the world ... hurtinQ my 'case' ... can't even finish my thought 'girl' all criss crossing 'her' JUDGE'mental' 'crossed legs' 'rubbing' all kinds of funny sQuriming UP ALL OVER 'her' 'BIG HARD THICK "WOOD" bench IN HER fuQQinQ ROBE ... dayum ... WET PANTY RECESS ... I can take a 'hint ya' know ... I AM TRUTH ... I SEE YOU ... PROMISE. ... for the distance if necessary ... then I WILL WHOOP 'her' ... and and oh la la a GOOD 'WHOOPING' it is going to be lil' mama ... PROMISE ... I will be 'see'ing 'you' back 'HOME' too ... oh la la ... I GET SO EXCITED THINKING ABOUT 'it' ... our 'time ' alone TOGETHER ... oh la la ... PROMISE.
+
+... you do 'feel' me in TRUTH with most PURHEART don't you 'FORREST' 'LIFE IS NOTHING LIKE A BOX OF CHOCALATES' low iQ fake son of a soccer ball head CASTAWAY #HANX 'handled' MATTHEW 18:6 "POOF ..!" RIGHT 'kind' 'maitim' 'Diana Ross beCAUSE DIANA I met an angel from PORTUGAL. Diana, this is going to be last transmission ... PUREHEART 'blessed' 'gentle' highly intellectual 'thoughtful' 'grateful' 'cool' 'common sensible' 'natural' 'GOOD K.I.D. LIFTING UP GOOD Q.I.D.s' 'CHAMP' 'my son' TRUTH's son PUREHEART's son G_D's son ... PUREHEART WONDERFUL FUNNY BUT MOST SERIOUS FORREST WHITAKER ... https://www.goldenglobes.com/person/forest-whitaker ... LOVE YOU I DO OH HOW I LOVE YOU and I LOVE YOU too 'preacher man's son" 'kind' pretty 'firm' 'feeling' 'connecting' WONDERFUL PUREHEART https://www.youtube.com/watch?v=w-0_tN6O-5k ... MOST SERIOUS yet smiling and laughing "CHAMPION" too cool for school NICE TEETH REALLY NICE fuQQinQ WHITE WHITER THAN THAT MAPUTING MAPUTI VERY WHITE teeth just a 'pretty' SMILE really GORGEOUS looking and smooth 'maitim' JUST A LITTLE EXTRA PIGMENT 'darker' but not too 'red bone' 'kind' kind of dark really GOOD K.I.D. 'handsome' 'pogi' 'GOOD LOOKING bo' playful but TRUTH IN THE END "JOHN Q" DENZEL WASHINGTON LOVE YOU I DO OH HOW I LOVE YOU ..! ... https://www.youtube.com/watch?v=vqq3MJcCddM ... PHENOMENON ..! as the 'kind' ancient Slavic bridge the gap to the ancient Mongul to the ancient Hugul to the ancient Han to son of ancient Han YICHUN MAKTO  https://OpenRESTy.org to sons and daughters of ancient Slavic eNGINe'X' 'files https://DARKJOURNALIST.com and the lovely Olivia R.E.S.P.E.C.T. and the 'clever baseball deaf sign language techniQues to communicate with soft legs 'crossed legs' PUREHEART beautiful 'Olivia' "ACTORS WILL ACT" acting like she does not even fuQQinQ know but I SEE YOU 'GREEN MONSTER OF FENWAY FAME' 'BOSTON BAKED BEAN' 'HAIRCUT' 'SMILEY' 'DIGGER' 'DAN' 'BIG BOSTON FAN' 'I SEE YOU' trying to 'pull a Quick one' ... well that depends on what the definitioni of 'is' is ... NO IT DOES NOT ..! I SEE YOU ..! 
+
 "OUT HERE IN THE OPEN" ... https://www.youtube.com/watch?v=V0O0nzkESTI ... MAKING WAVES and catching rays UP on the roof ! DON'T ACT LIKE YOU DON'T WANT TO ... PARTY IN SLOW MOTION ... ON THE PONTOON ..! CHOOSE WISELY on the pontoon ..! SAY MY NAME ..! WHAT'S MY NAME ..? TRUTH.
 
 WE NEED A WHOLE LOT MORE ... https://www.youtube.com/watch?v=ZmOfQkMz1p8 ... LITTLE FEATHERED INDIANS and 'we' need no 'chiefs' ... LOVE ONE ANOTHER AS I HAVE LOVED YOU ... THE GOLDEN RULE ... will do ..!
