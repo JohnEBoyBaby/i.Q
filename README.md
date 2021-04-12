@@ -3,6 +3,12 @@
 
 I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ...  IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ...
 
+JEF DE G_D XTF Oscar Papa Echo Romeo Alfa Tango India Oscar November ... Papa Oscar Oscar Foxtrot Bravo Lima Uniform Echo ... STAND BY ... X ... K ... 
+
+that is 
+
+John E Flaherty 'THIS IS' G_D 'Execute To Follow' ... OPERATION POOF BLUE ... STANDBY ... "eXecute" "OVER" ... and 'we' IN THE KNOW well we never say the fag tv show 'over and out' beCAUSE 'over' means I expect you to reply and 'out' means I do not expect you to reply so you cannot say you are going to and not going to reply get it ... GOT IT ... OUT. WORD. SAY MY NAME ..! WHAT'S MY NAME ..? TRUTH.
+
 GET UP ON 'this' ..! Ahhh ..! PUSH "IT" ..! https://www.youtube.com/watch?v=vCadcBR95oU ... PUSH OUT "NEGATIVE ENERGY" ..! https://www.youtube.com/watch?v=A5soF3Px46s PUSH "It" PUSH "it" REAL GOOD ... PUSH lil' mama ..! PUSH BIG DADDY ..! G_D HEARS ALL PUREHEART PRAYER ... https://www.youtube.com/watch?v=uGXGNJypkzA ... PRAY ANGEL ..! https://www.youtube.com/watch?v=G6oo7kXy9u0 PUREHEART 'soft legs' 'crossed legs' ancient 'style' LIKE "DRUKMO GYAL" "SALT N PEPA" "TINNA TINH" PRAY Pray pray ... G_D IS DANCING to your prayers soft legs PUREHEART ... PROMISE ..!
 
 I AM 'scientific' ... I AM 'artistic' ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=55s ... HE'S A 'bull'(y) ... I AM A MATADOR ..! ... "BUT THIS 'youngster' has HIS OWN STYLE .." https://www.youtube.com/watch?v=sythpBgek4o&t=1025s ... this 'man' DON'T HIT HARD ... AND I AM GOING TO WHOOP 'him' OF ALL PLACES "IN AFRICA" IN THE "CONGO" (JUNGLE ... WE GONNA "RUN THRQUGH THE JUNGLE ..! GRACIE "AMAZON" STYLE https://www.youtube.com/watch?v=TyDQs0ajxEc ... WATCH ME DANCE soft legs ..!
