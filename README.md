@@ -13,7 +13,9 @@ The First Disciples
 
 20 And at once they left their nets and followed TRUTH.…
 
-... if 'you' want to 'ride with me' ... https://www.youtube.com/watch?v=GsyJVv-9ygM ... RIDE WITH ME ..!
+MATE ..! if 'you' want to 'ride with me' ... https://www.youtube.com/watch?v=GsyJVv-9ygM ... RIDE WITH ME ..! CHECK ..!
+
+... like 'this' ... https://github.com/JohnEBoyBaby/i.Q/blob/main/Barron.And.Donald.John.Qrumpster.playing.chess.jpeg ... son ..!
 
 MATTHEW 4:18-20
 
