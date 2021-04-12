@@ -5,7 +5,7 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ...  IF G_D IS WITH ME, CAN'T NOBODY
 
 Cassius Marcellus Clay, Muhammad Ali
 
-IDEAS ARE BULLET PROOF ... https://www.youtube.com/watch?v=8WZ0XSf23rs ... MONKEY SEE ... MONKEY DO ... I AM THE "PROUDEST MONKEY" YOU'VE EVER SEEN ..! https://www.youtube.com/watch?v=gWaSDcER_oQ ... RIDE with YICHUN MAKTO RIDE son of ancient Han on his ancient Slavic powered eNGINe'X' FAST POWERFUL FUN PUREHEART IN TRUTH HIGH PERFORMANCE HIGH QUALITY PURE H2O "flowing" RIDE ..!
+IDEAS ARE BULLET PROOF ..! https://www.youtube.com/watch?v=8WZ0XSf23rs ... MONKEY SEE ... MONKEY DO ..! I AM THE "PROUDEST MONKEY" YOU'VE EVER SEEN ..! https://www.youtube.com/watch?v=gWaSDcER_oQ ... RIDE with YICHUN MAKTO ..! RIDE son of ancient Han on his ancient Slavic powered eNGINe'X' FAST POWERFUL FUN PUREHEART IN TRUTH HIGH PERFORMANCE HIGH QUALITY PURE H2O "flowing" RIDE ..!
 
 "AND ALL OTHERS SUCK RIGHT ..?" https://www.youtube.com/watch?v=FfhEdF40nhQ&t=1881s RIGHT ..! GO YICHUN MAKTO ..!
 
