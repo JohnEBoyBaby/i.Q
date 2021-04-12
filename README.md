@@ -63,7 +63,7 @@ READ UP ... saints ... THE RIGHEOUS RAGE OF TRUTH IS HERE ... 1st book of CORINT
 
 https://biblehub.com/bsb/1_corinthians/6.htm
 
-... DEFINITELY 100% GUARATEED MOST WORTHY AND DESERVING OF 'your precious time' and WORTH ANOTHER GOOD HARD LOOK ..! PROMISE.
+... DEFINITELY 100% GUARANTEED MOST WORTHY AND DESERVING OF 'your precious time' and WORTH ANOTHER GOOD HARD LOOK ..! PROMISE.
 
 36 A man’s enemies will be the members of his own household.’ 
 
