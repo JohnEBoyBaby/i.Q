@@ -3,17 +3,11 @@
 
 I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ...  IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... 
 
-you got your 'BALL' you got your 'chain' ... who's got their claws in you my 'FRIEND' ...
-
-https://www.youtube.com/watch?v=k7in-9E3ImQ 
-
-... sweet like candy to my SOUL sweet you rock AND sweet you roll ... I AM so lost FOR YOU ... AHHH when 'YOU' come CRASH INTO ME ... hike UP your skirt a little more ... show your 'world' to 'me' ...
-
-YOU WEAR NO'thing' BUT YOU WEAR 'it' SO WELL ... in a boy's dream ... In A Boy's Dream ... IN A BOY'S DREAM ..!
+I AM 'scientific' ... I AM 'artistic' ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=55s ... HE'S A 'bull'(y) ... I AM A MATADOR ..! ... "BUT THIS 'youngster' has HIS OWN STYLE .." https://www.youtube.com/watch?v=sythpBgek4o&t=1025s ... this 'man' DON'T HIT HARD ... AND I AM GOING TO WHOOP 'him' OF ALL PLACES "IN AFRICA" IN THE "CONGO" (JUNGLE ... WE GONNA "RUN THRQUGH THE JUNGLE ..! GRACIE "AMAZON" STYLE https://www.youtube.com/watch?v=TyDQs0ajxEc ... WATCH ME DANCE soft legs ..!
 
 ... WHAT'S GOING ON ..? https://www.youtube.com/watch?v=Y9KC7uhMY9s ... BROTHER Brother brother ... there's far too many of 'you' dying ... 'you' know we have got to find a WAY to bring some LOVING ... beCAUSE tell'em WHO I AM IS Khabib Gracie bo's Jon Bones tell 'em WHO I AM IS IRON MICHAEL ..! SAY MY NAME ..! WHAT'S MY NAME ..? TRUTH. https://www.youtube.com/watch?v=hzFpiW5vHrc ... I GOT YOU IN A STRANGLEHOLD BABY ... NQW ..! EVERYBODY GIVE A BIG WARM QentuQi wel.com to TYLER CHLDERS AND THE "FOOD STAMPS" ..! https://www.youtube.com/watch?v=AWN2gT5gwX8 ... for the distance if necessary ... then I WILL WHOOP 'him' ..!
 
-I AM 'scientific' ... I AM 'artistic' ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=55s ... HE'S A 'bull'(y) ... I AM A MATADOR ..! ... "BUT THIS 'youngster' has HIS OWN STYLE .." https://www.youtube.com/watch?v=sythpBgek4o&t=1025s ... this 'man' DON'T HIT HARD ... AND I AM GOING TO WHOOP 'him' OF ALL PLACES "IN AFRICA" IN THE "CONGO" (JUNGLE ... WE GONNA "RUN THRQUGH THE JUNGLE ..! GRACIE "AMAZON" STYLE https://www.youtube.com/watch?v=TyDQs0ajxEc ... WATCH ME DANCE soft legs ..!
+"OUT HERE IN THE OPEN" ... https://www.youtube.com/watch?v=V0O0nzkESTI ... MAKING WAVES and catching rays UP on the roof ! DON'T ACT LIKE YOU DON'T WANT TO ... PARTY IN SLOW MOTION ... ON THE PONTOON ..! CHOOSE WISELY on the pontoon ..! SAY MY NAME ..! WHAT'S MY NAME ..? TRUTH.
 
 WE NEED A WHOLE LOT MORE ... https://www.youtube.com/watch?v=ZmOfQkMz1p8 ... LITTLE FEATHERED INDIANS and 'we' need no 'chiefs' ... LOVE ONE ANOTHER AS I HAVE LOVED YOU ... THE GOLDEN RULE ... will do ..!
 
@@ -21,6 +15,14 @@ HE COULD HAVE CONTINUED with 'that' ... "TRASH TALQ" ... if he hadn't "HIT ME" w
 
 I AM the "PROUDEST MONKEY" you've ever seen ... https://www.youtube.com/watch?v=jmmODnes2XU ... MONKEY SEE ... MONKEY DO ... yeah ..! Qan yQu 'see' 'me' dancing ... take my hand soft legs ... let 'us' 'dance' TOGETHER my LOVE ... SUSULONG TAYO ..! LET'S GO ..!
 "LEFT TO RIGHT" "UP TO DOWN" "ALL YOU NEED IS" ... "WHAT YOU WANT IS" ... ALL 'you' 'need' is LOVE ... https://www.youtube.com/watch?v=-IViaHv-ccQ ... EVERYDAY ..! PROMISE.
+
+you got your 'BALL' you got your 'chain' ... who's got their claws in you my 'FRIEND' ...
+
+https://www.youtube.com/watch?v=k7in-9E3ImQ 
+
+... sweet like candy to my SOUL sweet you rock AND sweet you roll ... I AM so lost FOR YOU ... AHHH when 'YOU' come CRASH INTO ME ... hike UP your skirt a little more ... show your 'world' to 'me' ...
+
+YOU WEAR NO'thing' BUT YOU WEAR 'it' SO WELL ... in a boy's dream ... In A Boy's Dream ... IN A BOY'S DREAM ..!
 
 ... WATCH 'me' RUN LIKE THE WIND ... watch 'us' bo' soft legs watch TRUTH watch TRUTH while I AM DANCING for 'you' 'kind' beLOVEd one and come and dance with TRUTH baby give me all you got beCAUSE I AM coming for you ... if you want ride with me ... https://www.youtube.com/watch?v=GsyJVv-9ygM ... RIDE WITH ME ..! I AM just a yQunQ buQQ ... so WATCH 'me' baby Watch TRUTH FLY WITH THE WIND MOVING FAST MUCH Much much FASTER than 'that' REALLY FAST MOVING FAST 'style' FAST REALLY FAST "FAST" LIKE IF "IRON MIKE" IS COMING AFTER YOU FAST LIKE IF "MICHAEL" IS GOING TO BE THE "REAL DEAL HOLYFIELD" AND WANTS TO REALLY GET IN SHAPE "IRON MIKE" CAN CALL OR EMAIL ME ANYTIME AND JUST "IMAGINE IN YOUR MIND'S EYE" "AQUILLA LIPSCOMB" 'see' it clearly running faster than FAST LIGHT SPEED FAST 'me' alone all by lonesome 'self' with "BIG IRON MIKE TYSON" CONFIDENTLY GETTING "HIM" IN SHAPE FOR HIS UPCOMING "BATTLE" and running fast 'me', 'lil ole' 'me', lil' ole' JOHN E BOY bitch 'slapping' "IRON MIKE" ON THE BACK OF his THICK NEQQ SLAPPING HIM HARD TOO TO MAKE HIM MAD AS HELL AND FURIOUSLY RAGE AT ME FOR SMACKING THAT BIG "THICK bloody bleeding QUT beeYACHTch rich dull pencil NEQQ" HEAD of 'his' LIKE "HE NEEDED" at this VERY MOMENT LIKE A GOOD DRILL INSTRUCTOR 'bitch' 'slap'ping a RECRUIT INTO SHAPE FOR THE REAL "BATTLE" not just a bitch slap bo' AND DREAM of 'me' running AWAY FROM 'BIG MIKE' and "HIS REAL TIGERS" RACING AFTER HIM RACING AFTER ME ... 'INSTANT CLASSIC "HIT"' ..! for the distance if necessary ... then I WILL WHOOP 'him' ..! 
 
