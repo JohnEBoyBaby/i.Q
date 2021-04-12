@@ -3,6 +3,8 @@
 
 I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ...  IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ...
 
+WRITE IT IN THE "BRIDGE LOG" ENSIGN USING PROPER NAVAL SHORTHAND please ... MA'AM, YES, MA'AM "COMMAND'her'" ... MCPM ..!
+
 JEF DE G_D XTF Oscar Papa Echo Romeo Alfa Tango India Oscar November ... Papa Oscar Oscar Foxtrot Bravo Lima Uniform Echo ... STAND BY ... X ... K ... 
 
 that is 
@@ -2227,4 +2229,4 @@ sQ hush lil' baby dQn't yQu Qry ... GLORY! GLORY! https://www.youtube.com/watch?
 
 "NO ONE GETS OUT OF THIS."
 
-so be GOOD or LMB ... Lick My Bag ... for the distance if necessary ... then I WILL WHOOP 'him' ... I AM TRUTH ... UNDEFEATABLE.
+so be GOOD or LMB ... Lick My Bag ... for the distance if necessary ... LMP says soft legs ... Lick My Pussy ... https://www.youtube.com/watch?v=3KL9mRus19o&t=115s ... NO DIGGITY ... NO DAP ... for the distance if necessary ... then I WILL WHOOP 'him' ... I AM TRUTH ... I COULD HAVE BEEN A PersonnelmaN Chief Master PNCM or a LegalmaN Master Chief LNCM but instead I AM TRUTH. I AM PUREHEART. I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT. I AM UNDEFEATABLE. PROMISE. ... so I AM just 'me' TRUTH ... I LOVE SOFT LEGS ... MCPM ... More Cream Please Ma'am ..!
