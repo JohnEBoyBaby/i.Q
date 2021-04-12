@@ -5,19 +5,7 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ...  IF G_D IS WITH ME, CAN'T NOBODY
 
 Cassius Marcellus Clay, Muhammad Ali
 
-IDEAS ARE BULLET PROOF ... https://www.youtube.com/watch?v=8WZ0XSf23rs ..!
-
-COME OUT OF THE DARKNESS AND INTO THE LIGHT ..!
-
-https://www.youtube.com/watch?v=uKwBp8-c_YE CHANGING FROM 'bad' to GOOD is as easy as putting one foot in front of the other ... 
-
-https://www.youtube.com/watch?v=zfPubcHCNi8 ... well not exactly but still CONSISTENCY I LOVE CONSISTENCY https://biblehub.com/matthew/15-9.htm MATTHEW 15:8-10. TRUTH.
-
-TRUTH is the WAY to LIFE with G_D.
-
-https://www.youtube.com/watch?v=jVh-gtuLVGw VICTORY ..!
-
-V for ... ... VENGEANCE ..!
+IDEAS ARE BULLET PROOF ... https://www.youtube.com/watch?v=8WZ0XSf23rs ... MONKEY SEE ... MONKEY DO ... I AM THE "PROUDEST MONKEY" YOU'VE EVER SEEN ..! https://www.youtube.com/watch?v=gWaSDcER_oQ RIDE YICHUN MAKTO RIDE son of ancient Han ..!
 
 "AND ALL OTHERS SUCK RIGHT ..?" https://www.youtube.com/watch?v=FfhEdF40nhQ&t=1881s RIGHT ..! GO YICHUN MAKTO ..!
 
@@ -28,6 +16,24 @@ Bruce Lee
 ENTER THE ... https://www.youtube.com/watch?v=7n-R4H0Rl2Q DRAGON you grasshopper ..! 
 
 ... Aaah ..! https://www.youtube.com/watch?v=N0_LnvJrLo4&t=54s ... I INTERCEPT YQUR "EMOTIONAL TENSENESS" ..!
+
+COME OUT OF THE DARKNESS AND INTO THE LIGHT ..! https://www.youtube.com/watch?v=uKwBp8-c_YE ... I WILL BE THE YOU GOT TO KNOW ..! WILL YOU LOOK ME IN THE EYE ..? WILL YOU RUN FROM WHAT YOU SEE ..? WILL YOU SEE ME "IN THE LIGHT" ... I HOPE YOU DO ..! I HOPE YOU STAY ..! DON'T GO RUNNING FROM THE LIGHT ..!
+
+CHANGING FROM 'bad' to GOOD is as easy as putting one foot in front of the other ... https://www.youtube.com/watch?v=zfPubcHCNi8 ... well ... not exactly ... BUT ... HOWEVER ... COMMA ... CONSISTENCY ... SUSTAINED SUPERIOR PERFORMER ... I JUST LOVE YOUR CONSISTENCY so 'you' get an "A" for effort beCAUSE I LOVE TRUTH and I REALLY LOVE CONSISTENCY ..! https://biblehub.com/matthew/15-9.htm MATTHEW 15:8-10. TRUTH.
+
+TRUTH is the WAY to LIFE with G_D.
+
+WORD? https://www.youtube.com/watch?v=jVh-gtuLVGw VICTORY ..! WORD.
+
+WE as "TRUTH" WARRIORS 'smell' VICTORY ..!
+
+https://www.youtube.com/watch?v=vyQIWt0WaHA
+
+YOU KNOW WHAT I AM GETTING AT, RIGHT ..? 17 TIMES ..! https://www.youtube.com/watch?v=2GMNNqPtGLk ... I NEVER STAYED OVERNIGHT ..! 'You' 'know' what I AM getting at, RIGHT ..?
+
+4CHAN 8CHAN "RED PEOPLE" you know "THE WHITE RED-HAIRED GREEN-EYED MONKEY" 'me' 'tarzan' TRUTH I AM UNIQUE I NEVER REALLY 'fit in' probably means I REALLY DO "STAND OUT" ..! https://www.youtube.com/watch?v=IGInsosP0Ac ... but soft butt 'kind' smiling MCHAN 'blessed' highly intelleQtual 'chosen' beautiful daughter of ancient Han I 100 % GUARANTEE that I WILL MOST CERTAINLY "FIT IN" REAL CREAMILY SMOOTH AND GOOD with your MCHAN soft legs 'crosed legs' of PUREHEART wonderments and softnesses just fQr yQu ..!
+
+V for ... ... VENGEANCE ..!
 
 The First Disciples
 
