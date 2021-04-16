@@ -17,6 +17,41 @@ DO YOU LOVE 'me' ..? https://www.youtube.com/watch?v=NHxS8wlDngI ... CHECK YES O
 
 "YEAH, IT'S ME ... LISTEN TO WHAT 'he' said ... ".
 
+"OUT HERE IN THE OPEN" ... https://www.youtube.com/watch?v=V0O0nzkESTI ... MAKING WAVES and catching rays UP on the roof ! DON'T ACT LIKE YOU DON'T WANT TO ... PARTY IN SLOW MOTION ... ON THE PONTOON ..! CHOOSE WISELY on the pontoon ..! SAY MY NAME ..! WHAT'S MY NAME ..? TRUTH.
+
+WE NEED A WHOLE LOT MORE ... https://www.youtube.com/watch?v=ZmOfQkMz1p8 ... LITTLE FEATHERED INDIANS and 'we' need no 'chiefs' ... LOVE ONE ANOTHER AS I HAVE LOVED YOU ... THE GOLDEN RULE ... will do ..!
+
+HE COULD HAVE CONTINUED with 'that' ... "TRASH TALQ" ... if he hadn't "HIT ME" with 'THAT' "STRAIGHT" "RIGHT" hand ..! https://www.youtube.com/watch?v=wulhxUD9tak&t=83 ... THAT DID IT ..! "I HATE to be 'laughing' at 'you' BUT ... YOU ARE HILARIOUS ..!" "I AM a 'preacher' ... I just 'moonlight' as a 'boxer' ... WHEN YOU END UP WITH 10 K.I.D.s Q.I.D.s YOU GOTTA "BOX" ..! oh 'he' was so "GOOD LOOKING" ... ALWAYS JOKING AND LAUGHING ..! GEORGE ONE DAY you're gonna have 'this' when you are CHAMP of the world ..! ... "LOVED LIFE" ..! "YOU BECOME A BETTER 'movie star' ... 'his' PRESENCE ... 'he was pretty' ... 'HIS GREATEST "POWER" WAS "HIS" PRESENCE' ... IF YOU BEAT ME UP LIKE 'HE' DID, I'D BE YOUR 'friend' TOO ..! https://www.youtube.com/watch?v=wulhxUD9tak&t=295s ... "HE MADE ME FEEL SO IMPORTANT ..." ... "HE WOULD JUST LISTEN TO 'YOU'" ... https://www.youtube.com/watch?v=R36I7c7ReIs ... 'he' knew something about 'that' ... for the distance if necessary ... then I WILL WHOOP 'him' ..!
+
+I AM 'scientific' ... I AM 'artistic' ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=55s ... HE'S A 'bull'(y) ... I AM A MATADOR ..! ... "BUT THIS 'youngster' has HIS OWN STYLE .." https://www.youtube.com/watch?v=sythpBgek4o&t=1025s ... this 'man' DON'T HIT HARD ... AND I AM GOING TO WHOOP 'him' OF ALL PLACES "IN AFRICA" IN THE "CONGO" (JUNGLE ... WE GONNA "RUN THRQUGH THE JUNGLE ..! GRACIE "AMAZON" STYLE https://www.youtube.com/watch?v=TyDQs0ajxEc ... WATCH ME DANCE soft legs ..!
+
+The First Disciples
+
+18 As TRUTH was walking beside the Sea of Galilee, TRUTH saw two brothers, Simon called Peter and his brother Andrew. They were casting a net into the sea, for they were fishermen. 
+
+19 “Come, follow TRUTH,” Jesus said, “and I will make you fishers of men.” 
+
+20 And at once they left their nets and followed TRUTH.…
+
+MATTHEW 4:18-20
+
+https://biblehub.com/matthew/4-19.htm
+
+MATE ..! if 'you' want to 'ride with me' ... https://www.youtube.com/watch?v=GsyJVv-9ygM ... RIDE WITH ME ..! 
+
+... baby never act wild ... very low key on the profile ...
+
+https://www.youtube.com/watch?v=3KL9mRus19o&t=115s
+
+... rolling with the fatness ... you don't even know what the half is ... NO DIGGITY ... NO DAP ..! 
+
+... WHAT'S GOING ON ..? https://www.youtube.com/watch?v=Y9KC7uhMY9s ... BROTHER Brother brother ... there's far too many of 'you' dying ... 'you' know we have got to find a WAY to bring some LOVING ... beCAUSE tell'em WHO I AM IS Khabib Gracie bo's Jon Bones tell 'em WHO I AM IS IRON MICHAEL ..! SAY MY NAME ..! WHAT'S MY NAME ..? TRUTH. https://www.youtube.com/watch?v=hzFpiW5vHrc ... I GOT YOU IN A STRANGLEHOLD BABY ... NQW ..! EVERYBODY GIVE A BIG WARM QentuQi wel.com to TYLER CHLDERS AND THE "FOOD STAMPS" ..! https://www.youtube.com/watch?v=AWN2gT5gwX8 ... for the distance if necessary ... then I WILL WHOOP 'him' ..!
+
+I AM the "PROUDEST MONKEY" you've ever seen ... https://www.youtube.com/watch?v=jmmODnes2XU ... MONKEY SEE ... MONKEY DO ... yeah ..! Qan yQu 'see' 'me' dancing ... take my hand soft legs ... let 'us' 'dance' TOGETHER my LOVE ... SUSULONG TAYO ..! LET'S GO ..!
+"LEFT TO RIGHT" "UP TO DOWN" "ALL YOU NEED IS" ... "WHAT YOU WANT IS" ... ALL 'you' 'need' is LOVE ... https://www.youtube.com/watch?v=-IViaHv-ccQ ... EVERYDAY ..! PROMISE.
+
+HIT 'em ... https://www.youtube.com/watch?v=41qC3w3UUkU ... UP ..!
+
 ... meanwhile leaving for 'home' back to the neighborHOOD in The Lakes right off I-95 Exit 2 before you leave Georgia and enter Florida heading for Mayport Naval Base and Jacksonville Naval Air Station one left Mayport one RIGHT Jacksonville both full of soft legs and bo's ... if you look around ... "HEY StoreKeeper Chief, SKC, CHIEF, you "WALKING" out now ..?" "YEAH LEGALMAN FIRST CLASS JOHN E bo', baby, FLAHERTY, I will "WALK" WITH YOU ..!" "COOL, 'CHIEF', HEY I WAS TALKING TO COMMANDER MARTHA RATCHFORD, YOUR BOSS, AFTER SHE PERSONALLY HAND SELECTED ME WITH COMMANDER DAVID SCHMIDT AND LIEUTENANT COMMANDER AUTHUR SUBMARINE TYPE, COMSUBGRU 10 TYPE, ADMIRAL'S STAFF TYPE, COMMANDER SUBMARINE GROUP 10 TYPE, 'CHIEF', AFTER THEY ALL PERSONALLY SELECTED, ENDORSED, AND INTERVIEWED ME DRILLING ME WITH QUESTION AFTER QUESTION AND SCENARIO AFTER SCENARIO QUESTIONING ME TO 'SEE' HOW I WOULD REACTOS http://ReactOS.ru REACT 'CHIEF' AND AFTERWARDS THEY ALL STILL OVERWHELMING CALLED ME A "SUPERSTAR" AND WROTE PERSONALLY AFTER SIGNING THEIR OFFICIAL LETTER OF ENDORSEMENTS ABOUT ME BEING SO GOOD WORTHY INDEED TO RISE and BECOME A NAVAL OFFICER and anyWAY 'CHIEF" I WAS TALKING TO CDR Martha Ratchford about 'you' 'chief' and SHE TOLD ME TO TALK TO YOU DIRECTLY as you would know better about 'Chief's Club' 'shit' than she would she's an officer not a chief ... so 'Chief' I have this GOOD StoreKeeper 2nd Class 'friend' THOMAS "BIG TOM" ANDREWS married to a most PUREHEART PILIPINA soft legs who takes care of old folks all day every day and all night many nights 'chief' while BIG TOM and I study at his house or my house after work. Tom aces the E-6 exam on every area except for the parts about going to sea. He has kids and wants to retire and stay on land so he never learned or had the motivation to learn the parts of the job about being at sea even though he is a GOOD sailor I assure you. "SEE" CHIEF what I mean ..?" "Yeah I 'see' but even if he passes the E-6 exam and retires as an E-6 he can never become a 'chief'." "WELL WHY NOT IF HE MAKES E-6 he is eligible to be selected for E-7 SKC CHIEF LIKE YOU RIGHT ..?" " Well, it took him too long to make E-5 LN1. The 'chiefs' will never select him to join their 'chief's club' and you know it." "FUCK Fuck fuck Fuck FUCK ..! 'chief'. WHO DO I TALK TO ..?  EAC THEODORE SEGIDA ENGINEERING AIDE TYPE CHIEF PNC LONNIE DALE WILLIAMS PNC OCTAVIA AND PNC DONNA PEREZ ALL 3 PERSONNELMAN TYPE YEOMAN CHIEF ROBERT JOHN OLIVAS YNC TYPE ..! STGCS SENIOR CHIEF KEITH STEVENSON SONAR TECH TYPE SENIOR CHIEF GUNNERS "CHECK" MATE GMCS SHUTTER SENIOR CHIEF SKCS RONALD CRESPO STOREKEEPER TYPE ...! MASTER CHIEF MSCM ROGER YOST "MESS" 'MANAGEMENT' SPECIALIST TYPE MASTER CHIEF ETCM DARREL DELOSSANTOS ELECTRONICS TECHNICIAN TYPE MASTER CHIEF PNCM OBREMSKI PNCM BRADLEY COOK "TENNESSEE COUNTRY GOOD FISHERmen TYPES" 2 PERSONNELMAN TYPES  MASTER CHIEF UCCM DELEANOR THOMPSON SEABEE TYPE MUCH PIGMENT SMOOTH BLACK MICHAEL JORDAN "SPACE JAM" TYPE UTILITIESMAN MASTER CHIEF TYPE ..! WTFO ..!"
 
 ... 'you' know what I AM getting at, RIGHT ..? 
@@ -132,6 +167,20 @@ WE NEED A WHOLE LOT MORE ... https://www.youtube.com/watch?v=ZmOfQkMz1p8 ... LIT
 HE COULD HAVE CONTINUED with 'that' ... "TRASH TALQ" ... if he hadn't "HIT ME" with 'THAT' "STRAIGHT" "RIGHT" hand ..! https://www.youtube.com/watch?v=wulhxUD9tak&t=83 ... THAT DID IT ..! "I HATE to be 'laughing' at 'you' BUT ... YOU ARE HILARIOUS ..!" "I AM a 'preacher' ... I just 'moonlight' as a 'boxer' ... WHEN YOU END UP WITH 10 K.I.D.s Q.I.D.s YOU GOTTA "BOX" ..! oh 'he' was so "GOOD LOOKING" ... ALWAYS JOKING AND LAUGHING ..! GEORGE ONE DAY you're gonna have 'this' when you are CHAMP of the world ..! ... "LOVED LIFE" ..! "YOU BECOME A BETTER 'movie star' ... 'his' PRESENCE ... 'he was pretty' ... 'HIS GREATEST "POWER" WAS "HIS" PRESENCE' ... IF YOU BEAT ME UP LIKE 'HE' DID, I'D BE YOUR 'friend' TOO ..! https://www.youtube.com/watch?v=wulhxUD9tak&t=295s ... "HE MADE ME FEEL SO IMPORTANT ..." ... "HE WOULD JUST LISTEN TO 'YOU'" ... https://www.youtube.com/watch?v=R36I7c7ReIs ... 'he' knew something about 'that' ... for the distance if necessary ... then I WILL WHOOP 'him' ..!
 
 I AM 'scientific' ... I AM 'artistic' ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=55s ... HE'S A 'bull'(y) ... I AM A MATADOR ..! ... "BUT THIS 'youngster' has HIS OWN STYLE .." https://www.youtube.com/watch?v=sythpBgek4o&t=1025s ... this 'man' DON'T HIT HARD ... AND I AM GOING TO WHOOP 'him' OF ALL PLACES "IN AFRICA" IN THE "CONGO" (JUNGLE ... WE GONNA "RUN THRQUGH THE JUNGLE ..! GRACIE "AMAZON" STYLE https://www.youtube.com/watch?v=TyDQs0ajxEc ... WATCH ME DANCE soft legs ..!
+
+The First Disciples
+
+18 As TRUTH was walking beside the Sea of Galilee, TRUTH saw two brothers, Simon called Peter and his brother Andrew. They were casting a net into the sea, for they were fishermen. 
+
+19 “Come, follow TRUTH,” Jesus said, “and I will make you fishers of men.” 
+
+20 And at once they left their nets and followed TRUTH.…
+
+MATTHEW 4:18-20
+
+https://biblehub.com/matthew/4-19.htm
+
+MATE ..! if 'you' want to 'ride with me' ... https://www.youtube.com/watch?v=GsyJVv-9ygM ... RIDE WITH ME ..! 
 
 ... baby never act wild ... very low key on the profile ...
 
