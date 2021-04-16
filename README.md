@@ -9,6 +9,16 @@ DO YOU LOVE 'me' ..? https://www.youtube.com/watch?v=NHxS8wlDngI ... CHECK YES O
 
 ... THE MORE YOU KNOW ... ... The More You Know ... https://www.youtube.com/results?search_query=dr+kathy+horton+dr+joseph+farrell ... THANK YOU ... https://STOP007.org ... DR. KATHY HORTON, PHD, PHYSICS +++ "CONNECTOR OF DOT TO DOT TRUTH with most PUREHEART" ... NAZIS STILL RUNNING THE "SHOW" ..? https://www.youtube.com/watch?v=YgMtMklrc8Y ... ARGENTINA ..? GERMANY ..? NEDERLANDS ..? ROME ..? ROTHSCHILD just a puppet ..? ... the more you know ... THANK YOU ... https://GizaDeathStar.com ... DR. JOSEPH FARRELL, PHD in MORE THAN 1 FIELD OF EXPERTISE "DOT TO DOT TRUTH CONNECTOR with most PUREHEART" AND LOVER OF DR. KATHY HORTON, GOOD Queen In Development, the more you know ... BRUCE ROSS MORGAN child of FAMOUS 'PSYCHIC' 'ACTRESS' 'friend of HOWARD HUGHES' 'IN THE KNOW' YVONNE DE CARLO ... https://www.youtube.com/watch?v=WZew0olMgcM ... THANK YOU DANIEL AND OLIVIA ... http://DarkJournalist.com  ... THANK YOU NAUGHTY D BEAVER ... https://www.youtube.com/watch?v=84WuD1zbCHw ... THANK YOU RAP THE NEWS ... www.youtube.com/watch?v=f_7qmo4cZ5k ... THANK YOU JONATHAN KLECK ... https://www.youtube.com/watch?v=xBBZkIotasM ... http://JonathanKleck.com ... THANK YOU TRUTHSTREAMMEDIA ... https://www.youtube.com/watch?v=D1sWVjXhKfg ... https://TRUTHstreamMedia.com ... THANK YOU GINA MARIA COLVIN HILL ... https://www.youtube.com/watch?v=tEnopCQnyRA ... MAGANDANG "DILA" 'DILAG' ... https://www.youtube.com/watch?v=Ecm1iCzG6Jw ... beautiful "lick" 'country' 'province' girl ... "crossed legs" ... "feeling" ... PUREHEART ... "support staff" ... "firm" ... TRUTH ... CONNECT THE DOTS ..!
 
+THICK ..! "SMELLS" like 'NAVAL DIPLOMACY' ..! THIQQ ..!
+
+https://github.com/JohnEBoyBaby/i.Q/blob/main/.%200%20..%201%20...THICK.Smells.Like.Naval.Diplomacy.FIRST.THING.I.alWAYs.say.is.WOULD.YOU.JUST.LOOK.AT.THAT.just.look.at.it.JUST.LOOK.AT.THAT.and.your.wise.men.don't.know.how.it.feels.to.be.THICK.AS.A.BRICK.jpg
+
+... and their sandcastle virtues were all swept aWAY ... the tidal desstruction ... the moral melee ...
+
+https://www.youtube.com/watch?v=hAt1b21S97k
+
+... and your wise men don't know how it feels ... to be ... THIQQ AS A BRIQQ ..!
+
 IDEAS ARE BULLET PROOF ..! https://www.youtube.com/watch?v=8WZ0XSf23rs ... MONKEY SEE ... MONKEY DO ..! I AM THE "PROUDEST MONKEY" YOU'VE EVER SEEN ..! https://www.youtube.com/watch?v=gWaSDcER_oQ ... RIDE with YICHUN MAKTO ..! RIDE son of ancient Han on his ancient Slavic powered eNGINe'X' FAST POWERFUL FUN PUREHEART IN TRUTH HIGH PERFORMANCE HIGH QUALITY PURE H2O "flowing" RIDE ..!
 
 "AND ALL OTHERS SUCK RIGHT ..?" https://www.youtube.com/watch?v=FfhEdF40nhQ&t=1881s RIGHT ..! GO YICHUN MAKTO ..!
