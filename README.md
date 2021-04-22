@@ -79,7 +79,7 @@ SAY MY NAME ..! WHAT'S MY NAME ..? TELL 'em WHO I AM IS VLADIMIR PUTIN, 'kind' '
 
 https://www.youtube.com/watch?v=z9C2NxO_dJs
 
-... their were colors flying and children crying all around the chosen ones ... the loading had begun ... they were flying mother nature's silver seed to a new home in the 'sun' ... to a new home in the 'son' ...
+... there were colors flying and children crying all around the chosen ones ... the loading had begun ... they were flying mother nature's silver seed to a new home in the 'sun' ... to a new home in the 'son' ...
 
 The more you know ... one thing we do know ... TRUTH is the WAY to LIFE with G_D ... and 'we' are 'all' about to 'ENJOY THE SHOW' ... WORD? MATTHEW 5:8 KEEP YOUR PUREHEART. YOU ARE GOING TO NEED IT. WORD.
 
