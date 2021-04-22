@@ -11,15 +11,36 @@ THE WAY YOU LOOK INTO MY EYES ... I KNOW YOU WANT IT ... SO BABY CAN I DANCE WIT
 
 “Those who organize any provocations threatening our core security interests will regret their deeds more than they regretted anything for a long time.” Vladimir Putin AKA: QLADMEISTER TRANSLATION FROM ANCIENT SLAVIC MODERN RUSSIAN INTO ameriQan ... https://www.youtube.com/watch?v=41qC3w3UUkU ... "I HIT 'EM UP ..!" GOOD beCAUSE 'they' need it VLAD BIGLY ..!
 
+YOU MIGHT WANT TO START TO ... www.youtube.com/watch?v=6o8X_e8PJLs ... PAY ATTENTION ... https://www.youtube.com/watch?v=GB_Two0hjrU ... WHAT IF "THEY" ARRIVING ARE THE "GOOD FRIENDS OF LIGHT" HERE TO HELP "PUREHEART" and WHAT IF "THEY" ARRIVING ARE THE "DESTROYERS" ENEMIES OF LIGHT TO DESTROY "NON-PUREHEART" ... the more you know ... one thing we do know ... TRUTH is the WAY to LIFE with G_D ... and 'we' are 'all' about to 'ENJOY THE SHOW' ... WORD? MATTHEW 5:8 KEEP YOUR PUREHEART. YOU ARE GOING TO NEED IT. WORD.
+
+... so VOCABULARLY like INCREASES i.Q you know NOT FAD WORDS like ACT LIKE IT so BE GOOD or be gone ... IF THE PEDOGON, MILITARY, NEWS, GOVERNMENTS, COURTS, BUSINESSES, COMMUNITY "LEADERS", CHURCH "SEND ME A DONATION" "leaders" ALL LYING TO EVERYONE ALL THESE YEARS SILENT AND COMPLICIT @AE911TRUTH ... BELIEVE NOTHING ... NOTHING ANY WESTERN GOVERNMENT SAYS AND REQUIRE PROOF OF ANY EASTERN GOVERNMENT BUT TRUST ... VLADIMIR PUTIN SAID "IF THEY ASKED TO BE SERVED BABIES FOR BREAKFAST, THEN THEY WOULD SERVE THEM BABIES FOR BREAKFAST." AND THE POPE IS NONE TOO HAPPY WITH THE EASTERN ORTHODOX PUREHEART MOST SERIOUS ONE FIGHTING BEING THAT THE POPE IS ALLIED WITH ... so BELIEVE NO FAKE NEWS DUMB FUQQER TUQQER SELLING "FEAR OF THE ALIENS" WHEN THE "FEAR OF THE BLUE MONSTERS INC AND THEIR SHAPESHIFTING SERPENT RACE BOOFOO VACCINE PUSHING CHILDREN OF DARKNESS BOOFOO BROTHERHOOD" AND THEIR VERY OBNOXIOUS NOISE POLLUTION SIRENS TO SCARE YOU AND INSTILL FEAR AND INTIMIDATION LIKE A "BULLY" "BULLYING YOU" WITH BRIGHT LIGHTS "SCARING YOU" FORCING YOU TO "OBEY" OR ELSE CAGERS KILLERS RAPISTS MONSTERS TORTURERS NOTHING LIKE "THEY" LIE AND SAY THEY DO AS WE SAY NOT AS WE DO SPYING ON INNOCENTS enFORCErs of BANKERS FOR BLOOD MONEY COMPLICIT IN THE MATTHEW 18:6 POOF ..! GLOBAL CONVERSATION THAT WE ALL HAVE TO HAVE ... NOTHING CAN STOP WHAT IS COMING ... NOTHING ... THERE IS NO ESCAPING G_D ...  LIES FAKE NEWS and more talking head CIA 4AM MOCKINGBIRD MEDIA PLANdemic SCAMdemic C = 3 = ANGEL OF ABYSS BOTTOMLESS "PIT" DEATH ... OVID = baby name "SHEEP" ... 19 = SLAUGHTER ... ANGEL OF THE PIT LEADING THE SHEEP TO THE SLAUGHTER ... "THEJONATHANKLECK" TY LY TQQ even thQuQh 'they' censQr 'him' for his TRUTH and blame it Qn "Q" ... https://www.yahoo.com/news/philippine-hospitals-struggle-cope-more-064158532.html ... MY "NURSE" "NEPHEW" I PAID FOR "HIS" "NURSING" DEGREE HAS SEEN ZERO THAT IS NONE NOT A ONE ZIP ZILCH NO CASES OF FILTHY FREEMASON "CHILDREN OF DARKNESS" FILTH "VIRUS" BUT SO "INTIMIDATED" AND "BRAINWASHED" his dumb ass took the 'vaccine' ... THERE IS NO FILTH IN HEAVEN. NONE. NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS. NONE. Can 'you' "FEEL" "ME" now ..? BIBLEHUB STRONGS CONCORDANCE MEANING OF 3 MEANING OF 19 ... BABY NAME MEANING OF OVID ... https://DuckDuckGo ... DUCK ... Duck ... duck ... GQQSE ...
+
 WORD.
 
 "SOME" ... "HAVE DEVELOPED A NASTY HABIT" ... "BULLYING" ... "NEW SPORT" ... and they are getting 'BULLIED' RIGHT THE FUQQ BAQQ QLADMEISTER ...
 
 www.yahoo.com/news/putin-annual-address-lauds-russias-093510843.html
 
+YES EXACTLY LIKE THIS LITTLE FREEMASON MASS MURDERER ZIONIIST "BAKLA" "BOOFOO BLUE LOCKDOWN POLICE STATE BROTHERHOOD" "LEAST WORSHIPFUL" LITTLE BROWN BOY RODRIGO FECAL MATTER AND MAIZE ON A PENILE INSTRUMENT IN HIS BUTTHOLE BABY MOUTH AND BUTTHOLE STANKY STANK FILTHapino TALKING "SHIT" https://www.yahoo.com/news/philippines-says-boosting-maritime-presence-105435014.html LIKE A LITTLE BOY ... GO XiQ ... let us see the ancient Han give their LOST SOUL CHILD A GOOD SPANKING and then MATTHEW 18:6'd ... 
+
+PLEASE RISE FQR THE SINQINQ QF QUR NATIQNAL ANTHEM ...
+
+https://www.youtube.com/watch?v=HNGaa5Opfmc
+
+... BATTER UP ..!
+
 “Some countries have developed a nasty habit of bullying Russia for any reason or without any reason at all. It has become a new sport,”
 
-HOPE YOU'RE HAVING A GOOD TIME ..! https://www.youtube.com/watch?v=n_k4r0xrwhU ... "I AM STUCK LIKE THE OTHER MONKEYS HERE." "ME I AM A HUMBLE A MONKEY SITTING UP IN MY TREE AGAIN ..." "THERE CAME A DAY WHEN I CLIMBED OUT OF THESE FAKE HILL ..!" "WALKING TALL HEAD HIGH UP AND SINGING ..." ... NOPW I AM THE PROUDEST MONKEY YOU EVER SEEN ... MONKEY SEE ... MONKEY DO ... yeah ... Monkey See ... Monkey Do ... mQnQey see ... mQnQey dQ ...
+"I 'SEE' NO CHANGES" ... https://www.youtube.com/watch?v=9G6ro-c0C5E ... THAT'S NOT JUST "the WAY it is" ... PROMISE.
+
+... don't accept that what's happening ... is just a case of all the suffering ... or you'll find that you're joining in ... THE TURNING AWAY ...
+... it's a sin that somehow ... LIGHT is changing to shadows ...
+
+https://www.youtube.com/watch?v=ojf18wT_Xtk
+
+... NO MORE TURNING AWAY ..!
+
+I HOPE YOU'RE HAVING A GOOD TIME ..! https://www.youtube.com/watch?v=n_k4r0xrwhU ... "I AM STUCK LIKE THE OTHER MONKEYS HERE." "ME I AM A HUMBLE A MONKEY SITTING UP IN MY TREE AGAIN ..." "THERE CAME A DAY WHEN I CLIMBED OUT OF THESE FAKE HILL ..!" "WALKING TALL HEAD HIGH UP AND SINGING ..." ... NOPW I AM THE PROUDEST MONKEY YOU EVER SEEN ... MONKEY SEE ... MONKEY DO ... yeah ... Monkey See ... Monkey Do ... mQnQey see ... mQnQey dQ ...
 
 GOOD seeing you today at 4CHAN IN THE "INTERNATIONAL" section REPLYING TO A "MAP" "TOP POST" SAME QAT TIME SAME QAT CHANNEL ... the more you know ... so anyWAY I was walking you know me WO SAN SANBU I TAKE A WALK and anyHOW what do I 'see' but an 'OPPORTUNITY' to 'SPREAD THE GOOD WORD WITH MY SOFT LEGS AND BO'S" at a nearby ARMY REQRUITINQ STATIQN ... I THOUGHT IT BEST TO DELIVER TRUTH 'in person' ... INSTANT "FRIEND" "GOOD BO'" ... funny how that is ... and oh how he standing so ARMY PROUD SMOOTH WITH LOTS OF PIGMENT AND A MOST SERIOUS INTENTFUL YET PLAYFUL IN SHAPE READY TO SWING BATTER SMILE AS I TOLD HIM OF THE FEMALE ARMY GUNNERY SERGEANT WHO after discussing with the pregnant woman more deserving than me in my own personal opinion, Donna Reed, CAME TO ME WITH DONNA AND THEY BOTH HUGGED ME AND TOLD ME THAT IT WAS I WHO THEY WANTED TO HAVE THEIR NAME ON THE WALL AT NAVAL JUSTICE SCHOOL. YOU SEE AS "HE" LISTENED "GOOD" to me and I told him about my 2 baby ladies dying beCAUSE I ran out of money and the FOR-PROFIT 'DOCTORS' allowed my baby ladies to be sent to the basement of the hospital I think he started looking more and More and MORE like DENZEL ... John Q ... I had to go ... thought he might want to just HIT 'EM UP LA MUMBA BO' STYLE RIGHT HERE ... have me and him dancing all night with the La Mumba Bo's CLEANING HOUSE ... nah he had to finish UP his work ... can't be getting bo' all FIRED UP ... Can you 'feel' me now ..?
 
