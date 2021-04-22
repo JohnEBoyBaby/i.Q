@@ -22,7 +22,7 @@ PAY ATTENTION "BIRD" ..! BE A GOOD FUQQINQ "BIRD" ..! NOT A DUMB FUQQ "SHITBIRD"
 
 https://qanon.pub/?q=why%20are%20china%20%26%20russia%20communist%20s%2Fclosed
 
-SAY MY NAME ..! WHAT'S MY NAME ..? TELL 'em WHO I AM IS VLADIMIR PUTIN, 'kind' 'courageous' beLOVEd 'playful' yet 'most serious' one AKA QLADMEISTER TRANSLATION FROM ANCIENT SLAVIC MODERN RUSSIAN INTO ameriQan ... https://www.youtube.com/watch?v=41qC3w3UUkU ... "I HIT 'EM UP ..!" 
+SAY MY NAME ..! WHAT'S MY NAME ..? TELL 'em WHO I AM IS VLADIMIR PUTIN, 'kind' 'courageous' beLOVEd 'playful' yet 'most serious' one AKA QLADMEISTER TRANSLATION FROM ANCIENT SLAVIC MODERN RUSSIAN INTO ameriQan ... https://www.youtube.com/watch?v=41qC3w3UUkU ... WEGRO please ... I AM AN "ORIGINAL" "PREMIUM" 'SALTY' "CRACKER" wegro ... "I HIT 'EM UP ..!" 
 
 ... well I dreamed I saw the KNIGHTS in armor coming saying something about a QUEEN ...
 
