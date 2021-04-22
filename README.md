@@ -5,7 +5,7 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... IF G_D IS WITH ME, CAN'T NOBODY 
 
 Cassius Marcellus Clay, Muhammad Ali
 
-I LOVE PUREHEART PILIPINA soft legs ganda AINA JUAREZ ... oh la la ... Oh La La ... OH LA LA ... ANGELIC ... ANGEL ... PUREHEART ... TRUTH ... sing for me angel ..! TY LY ..!
+YO Yo yo MATE ... CHECK it out ... she's so oh la la ... soft legs ... beautiful ... maGANDA ... PUREHEART ... CREAMY ... MCPM ... oh la la ... sing to me angel ... I LOVE PUREHEART PILIPINA soft legs ganda AINA JUAREZ ... oh la la ... Oh La La ... OH LA LA ... ANGELIC ... ANGEL ... PUREHEART ... TRUTH ... sing for me angel ..! TY LY ..!
 
 THE WAY YOU LOOK INTO MY EYES ... I KNOW YOU WANT IT ... SO BABY CAN I DANCE WITH YOU TONIGHT ..? www.youtube.com/watch?v=htMvDGwVso8 ... TAKE MY HAND MY LOVE ... LET US DANCE ... now that's the KIND kind I like ANGEL PUREHEART SING FOR ME ANGEL DANCE WITH ME ANGEL ... www.youtube.com/watch?v=cNW1zoQWy8g ... ANGELIC VOICE ... PUREHEART ... TRUTH ... ANGEL ... OH LA LA ... MCPM ... More Cream Please Ma'am ... Oh Yes Ma'am I Would LOVE some more of YOUR ALL NATURAL DELICIOUS CREAM YES MA'AM MCPM ... MAGANDANG DILA DILAG BEAUTIFUL LICK COUNTRY GIRL ... now that makes me want to have a DEEP PENETRATINGLY STIMULATING CIRCULAR ROTATING REPEATED GOOD LIQQ ARQUND ... https://www.youtube.com/watch?v=okXp4PTAGEA WHY YOU CALLING ME YOUR BABY ... HOLD UP ... BACK IT UP ..! https://www.youtube.com/watch?v=1SlyBlepkGw ... oh la la ... SING FOR ME ANGEL Oh La La OH LA LA THAT'S THE "KIND" KIND I LIKE ... I LOVE YOU ANGEL more you will ever know ... https://www.youtube.com/watch?v=LeZLR6UR1yg ANGEL some things reQuire a REAL "MAN'S TOUCH" ... https://www.youtube.com/watch?v=UTN5nddGP4s ... WORD.
 
