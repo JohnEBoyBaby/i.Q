@@ -5,6 +5,8 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... IF G_D IS WITH ME, CAN'T NOBODY 
 
 Cassius Marcellus Clay, Muhammad Ali
 
+... I find if 'wonderful' listening to an angel sing ... https://www.youtube.com/watch?v=iPoj2vSIIlM ... even when I just 'feel' and cannot understand WORDs ...
+
 AS PROMISED ... "HELLO WORLD" from https://CENTOS.org ... WHAT'S MY NAME ..? TRUTH. SAY MY NAME ..! TRUTH. TELL 'em WHO I AM IS ..! TRUTH.
 
 ... so ... YO Yo yo MATE ... CHECK it out ... IF YOU DO NOT LOVE AINA JUAREZ ... THEN YOU DO NOT HAVE A SOUL so be gone beYACHTch ... AINA JUAREZ IS PUREHEART ... AINA JUAREZ IS AN ANGEL HERE WITH US ... she's so oh la la ... soft legs ... beautiful ... maGANDA ... PUREHEART ... CREAMY ... MCPM ... oh la la ... sing to me angel ... I LOVE PUREHEART PILIPINA soft legs maGANDAng maGANDAng VERY BEAUTIFUL AINA JUAREZ ... oh la la ... Oh La La ... OH LA LA ... ANGELIC ... ANGEL ... PUREHEART ... TRUTH ... sing for me angel ..! TY LY ..!
