@@ -5,9 +5,9 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... IF G_D IS WITH ME, CAN'T NOBODY 
 
 Cassius Marcellus Clay, Muhammad Ali
 
-... AIANA PIPAH when you sing nearly every song better than the original artists ... YOU SHOULD KNOW that G_D IS WITH YOU, ANGEL ... I find if 'wonderful' listening to an angel sing ... SING FOR US AIANA ... WE LOVE YOU PURHEART ... https://www.youtube.com/watch?v=iPoj2vSIIlM ... even when I just 'feel' and cannot understand WORDs ... sing angel PIPAH with your most PUREHEART ... DANCE WITH US ANGEL ... https://www.youtube.com/watch?v=jkvWRU_Uh6w ... PASENYA NA ... https://www.youtube.com/watch?v=CeNTIpf6Ui4 ... PASENYA KA NA ..!
+... AIANA, PIPAH +++ when you sing nearly every song better than the original artists ... YOU SHOULD KNOW that G_D IS WITH YOU, ANGEL ... I find if 'wonderful' listening to an angel sing ... SING FOR US AIANA ... WE LOVE YOU PURHEART ... https://www.youtube.com/watch?v=iPoj2vSIIlM ... even when I just 'feel' and cannot understand WORDs ... sing angel PIPAH with your most PUREHEART ... DANCE WITH US ANGEL ... https://www.youtube.com/watch?v=jkvWRU_Uh6w ... PASENYA NA ... https://www.youtube.com/watch?v=CeNTIpf6Ui4 ... PASENYA KA NA ..! beCAUSE if you are FULL OF LOVE and "GRACE" ... https://www.youtube.com/watch?v=ypwcitHSEQo ... you just might come to understand that there are many "THINGS I NEVER NEEDED" ... WORD.
 
-AS PROMISED ... "HELLO WORLD" from https://CENTOS.org ... WHAT'S MY NAME ..? TRUTH. SAY MY NAME ..! TRUTH. TELL 'em WHO I AM IS ..! TRUTH.
+... and now as PROMISEe ... "HELLO WORLD" from https://CENTOS.org ... WHAT'S MY NAME ..? TRUTH. SAY MY NAME ..! TRUTH. TELL 'em WHO I AM IS ..! TRUTH.
 
 ... so ... YO Yo yo MATE ... CHECK it out ... IF YOU DO NOT LOVE AINA JUAREZ ... THEN YOU DO NOT HAVE A SOUL so be gone beYACHTch ... AINA JUAREZ IS PUREHEART ... AINA JUAREZ IS AN ANGEL HERE WITH US ... she's so oh la la ... soft legs ... beautiful ... maGANDA ... PUREHEART ... CREAMY ... MCPM ... oh la la ... sing to me angel ... I LOVE PUREHEART PILIPINA soft legs maGANDAng maGANDAng VERY BEAUTIFUL AINA JUAREZ ... oh la la ... Oh La La ... OH LA LA ... ANGELIC ... ANGEL ... PUREHEART ... TRUTH ... sing for me angel ..! TY LY ..!
 
