@@ -5,7 +5,7 @@ I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... IF G_D IS WITH ME, CAN'T NOBODY 
 
 Cassius Marcellus Clay, Muhammad Ali
 
-... I find if 'wonderful' listening to an angel sing ... https://www.youtube.com/watch?v=iPoj2vSIIlM ... even when I just 'feel' and cannot understand WORDs ...
+... AIANA PIPAH when you sing nearly every song better than the original artists ... YOU SHOULD KNOW that G_D IS WITH YOU, ANGEL ... I find if 'wonderful' listening to an angel sing ... SING FOR US AIANA ... WE LOVE YOU PURHEART ... https://www.youtube.com/watch?v=iPoj2vSIIlM ... even when I just 'feel' and cannot understand WORDs ... sing angel PIPAH with your most PUREHEART ... DANCE WITH US ANGEL ... https://www.youtube.com/watch?v=jkvWRU_Uh6w ... PASENYA NA ... https://www.youtube.com/watch?v=CeNTIpf6Ui4 ... PASENYA KA NA ..!
 
 AS PROMISED ... "HELLO WORLD" from https://CENTOS.org ... WHAT'S MY NAME ..? TRUTH. SAY MY NAME ..! TRUTH. TELL 'em WHO I AM IS ..! TRUTH.
 
