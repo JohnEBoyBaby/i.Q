@@ -5,6 +5,8 @@ IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.
 
 Cassius Marcellus Clay, Muhammad Ali
 
+SIMPLY WAY ABOVE ..! http://storge.pic2.me/c/1360x800/849/5fc2d9e094a496.54528015.jpg OVER THE TOP https://www.youtube.com/watch?v=iPoj2vSIIlM YOU BE LIKE THIS ANGEL AIANA JUAREZ MAKING EVERYONE'S SONGS BETTER SIMPLY ABSOLUTELY AMAZING ANGELIC HEAVENLY BEHOLD THE WONDERMENTS SETTING THE BAR OH LA LA SO VERY HIGH YOU CAN LIKE HER BUT YOU CANNOT BE BETTER THAN HER ... just sayin' ... there's a certain level of excellence where the most excellent just behold one another's wonderments ..!
+
 DO NOT EVEN THINK ABOUT ... I AM TOO MUCH ..! https://www.youtube.com/watch?v=pSPECzpKn4U ... SWALLOW Swallow ... BREATHE DEEP ... SUCK IT UP Suck It Up suck it up SUQQ IT UP ... baby ... MY HUNGER KEEPS ON GROWING ... GOT TO GET "IT" SOMEWHERE ... I MEAN ... YOU NEVER KNOW ..! AND I MEAN MORE ... GONNA TAKE MORE FROM YOU ..! LETTER BY LETTER ..! TOO MUCH ..!
 
 I GOT MY PERSONALLY SIGNED COPY BEFORE THEY SOLD OUT ..! DID YOU ..?
