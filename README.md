@@ -5,6 +5,8 @@ IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.
 
 Cassius Marcellus Clay, Muhammad Ali
 
+NADARANG ..! https://www.youtube.com/watch?v=iPoj2vSIIlM ... sing for me ANGEL AIANA JUAREZ ... why you baby lady are not a MEGA STAR WORLDWIDE I KNOWETH not ..!
+
 ... OUT OF THE DARKNESS AND INTO THE LIGHT ... darkness ... Darkness ... DARKNESS ... surely 'darkness' you jest ... G_D WINS ... SPIRITUAL WARFARE ... WORD.
 
 'IN THE LAST YEAR ALONE WE HAVE BEEN HIT BY "DARKNESS" 365 TIMES' ... https://www.youtube.com/watch?v=NtfKU98WoN8 ... BUT THERE IS 1 GROUP WHO ARE NOT AFRAID ..!
