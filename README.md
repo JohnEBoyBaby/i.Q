@@ -15,7 +15,29 @@ THANK YOU Shannon Lee ... LOVE YOU I DO ... TRUTH I WILL TELL FOR YOU ... PROUD 
 
 Bruce Lee
 
-WOMAN 女 + CHILD 子 = 好 GOOD ... https://translate.google.com/?sl=auto&tl=en&text=WOMAN%20女%20%2B%20CHILD%20子%20%3D%20好%20GOOD%20...%20%0A&op=translate ... LITERALLY WOMAN + CHILD = GOOD ... ancient Han knew her 'crossed legs' were so special they put her 'crossed legs' in LOVE in NUMBER in MATHEMATICS ... can you 'see' her highly intellectual most PUREHEART most elegant most beautiful most soft most wonderful most natural most elegant most gracious most grateful most eloQuest most valuable of all here with us my beLOVEd soft legs thoughtful nurturing LOVE incarnate HOLY SPIRIT LIFE GIVER SPARK OF LIFE BEARER SEED GROWER CREAM-MAKER "SPECIAL SOUL-EMBODIER" "SPECIAL SOUL-HEALER" "SPECIAL SOUL-FOOD FEEDER" CREAMY really fun and playful and most serious and protective and demanding outRIGHT OUTRAGEOUS DAMN RIGHT BITCH but 'everything to me' 'crossed legs' ... know ye' not ... now ye' know ..!
+... don't hate the player ... hate the game ... darkness only RESPECT GREATER DARKNESS ... sometimes you cannot tell the public the TRUTH ... you have to show them ... and HIT 'em UP ..! and ye' would be wise to remember WHO I AM ... I AM TRUTH ... THERE IS NO FILTH IN HEAVEN ... NONE ... YOU MIGHT PAY CLOSER ATTENTION AND ACT WHILE YOU STILL HAVE TIME ... time grows short 'kind' one ... soften your heart ... put down your weapons ... release yourself from bondage ... you are G_D's child ... REMEMBER WHO YOU ARE MY CHILD ..? FROM WHENCE YOU SHALL RETURN ..? A MONSTER ARE YOU ..? INTENT OF DECEPTION HATH YOU ..? TELL "US" "ALL" WHO ARE YOU ..? https://www.youtube.com/watch?v=LYb_nqU_43w ... WHO ARE YOU ..? WHO Who who WHO ..? TELL ME WHO ARE YOU ..? WHO Who who are you ..?
+
+LOVE 2 TIMES BABY ... https://www.youtube.com/watch?v=MsP6EKAzEjI ... LOVE TWICE TODAY ..! LOVE ME TWO TIMES GIRL ... I AM GOING AWAY ..! LOVE ME TWO TIMES ..! LOVE ME 1 TIME ... I COULD NOT SPEAK ... LOVE 1 TIME ... YEAH MY KNEES GOT WEAK ... LOVE ME 2 TIMES GIRL ... LASTING ALL THROUGH THE WEEK ... LOVE ME 2 TIMES ... I AM GOING AWAY ... OH YEAH ..!
+
+BATTER UP ..! YOUNG GRASSHOPPER 'you' WOULD BE WISE TO REMEMBER ... YOU GET JUST 1 STRIKE BATTER ... NO FOUL TIPS ... NO BALLS JUST 1 PITCH AND YOU BETTER BE A HITTER ... SWING BATTER Batter batter swing batter ..!
+
+I AM TRUTH ... I AM the LEADER OF THE GOOD COPS HOLDER OF MANY... do ye' not think I AM MOST PAITENT AND MOST KIND TO OFFER SUCH AN OLIVE BRANCH ..? why then is the slowest 'runner' in the front ..? is it to ensure everyone even the very slowest 'runner' gets back to HEAVEN with 'us' 'all' TOGETHER to ensure everyone finishes the race by allowing the slowest 'runner' to finish the AWAKENING RACE ..? 
+
+I really don't mind if 'you' sit 'this' one out ..! My WORD's but a whisper ... a deafness ... A SHOUT ..! I may make you 'feel' but I can't make  you 'think' ... Your sperm's in the gutter ...  Your LOVE's in the sink ... 
+
+https://www.youtube.com/watch?v=u9bk2MrMGaA
+
+... so you ride your sails over the fields ... and you make all your 'animal' 'deals' ... and your wise men don't know how it 'feels' ... TQ BE THIQQ AS B.R.I.C.S. ... to be THICK AS A BRICK ...!
+
+SHE'S A BRICK ... HOUSE ... MIGHTY Mighty ... she's letting it 'all hang  out' ..!
+
+https://www.youtube.com/watch?v=rrBx6mAWYPU
+
+... SHE'S A BRIQQ ... HQUSE ..!
+
+WOMAN 女 + CHILD 子 = 好 GOOD ... https://translate.google.com/?sl=auto&tl=en&text=WOMAN%20女%20%2B%20CHILD%20子%20%3D%20好%20GOOD%20...%20%0A&op=translate ... 
+
+LITERALLY WOMAN + CHILD = GOOD ... ancient Han knew her 'crossed legs' were so special they put her 'crossed legs' in LOVE in NUMBER in MATHEMATICS ... can you 'see' her highly intellectual most PUREHEART most elegant most beautiful most soft most wonderful most natural most elegant most gracious most grateful most eloQuest most valuable of all here with us my beLOVEd soft legs thoughtful nurturing LOVE incarnate HOLY SPIRIT LIFE GIVER SPARK OF LIFE BEARER SEED GROWER CREAM-MAKER "SPECIAL SOUL-EMBODIER" "SPECIAL SOUL-HEALER" "SPECIAL SOUL-FOOD FEEDER" CREAMY really fun and playful and most serious and protective and demanding outRIGHT OUTRAGEOUS DAMN RIGHT BITCH but 'everything to me' 'crossed legs' ... know ye' not ... now ye' know ..!
 
 GOOD K.I.D.s LIFT UP GOOD Q.I.D.s ... GOOD Knights In Development LIFT UP GOOD Queens In Development ... REAL FRIENDS TELL THE 100% TRUTH TO GET YOU TO HEAVEN.
 
