@@ -3,7 +3,9 @@
 
 ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... IF G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... 
 
-Cassius Marcellus Clay, Muhammad Ali 
+Cassius Marcellus Clay, Muhammad Ali
+
+DARKNESS ... SPIRITUAL WARFARE ... WORD.
 
 'IN THE LAST YEAR ALONE WE HAVE BEEN HIT BY "DARKNESS" 365 TIMES' ... https://www.youtube.com/watch?v=NtfKU98WoN8 ... BUT THERE IS 1 GROUP WHO ARE NOT AFRAID ..!
 
