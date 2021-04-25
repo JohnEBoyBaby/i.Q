@@ -5,6 +5,8 @@ IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.
 
 Cassius Marcellus Clay, Muhammad Ali
 
+"THE NEGROES TOOK OUR DATES ..!" https://www.youtube.com/watch?v=js4aeH47pGw&t=98 ... WHOOLY BULLY WHQQLY BOOLY ... LAY IT DOWN ..! MOM MAKE HIM STOP ..! NO I WILL NEVER STOP ..! DAD PLEASE MAKE HIM STOP ..! NO I WILL NEVER EVER Ever ever stop EVER ..! PLEASE SOMEONE MAKE HIM STOP Make Him Stop make him stop ..! NO I WILL NEVER STOP ..! EVER.
+
 ... someone shave ... Someone Shave ... SOMEONE SHAVE ... https://www.youtube.com/watch?v=vaux40k6jYk ... MY WIFE TONIGHT ... tongiht ... SOMEONE SHAVE MY WIFE TONIGHT ... Tonight ... YOU REALLY HAD ME ROPED AND TIED ... HYPNOTIZED ... SWEET FREEDOM WHISPER IN MY EAR ... FREE TO FLY ... FLY AWAY ... HIGH AWAY ... BYE ... SOMEONE SHAVE ... Someone Shave ... someone shave my wife TONIGHT ... tonight ... :-) ... PUREHEART ... another INSTANT J.E.S.'er CLASSIC HIT ..! "MAKE IT COUNT 'son' ..!" ... WORD.
 
 ... SIMPLY WAY ABOVE ..! http://storge.pic2.me/c/1360x800/849/5fc2d9e094a496.54528015.jpg OVER THE TOP https://www.youtube.com/watch?v=iPoj2vSIIlM YOU BE LIKE THIS ANGEL AIANA JUAREZ MAKING EVERYONE'S SONGS BETTER SIMPLY ABSOLUTELY AMAZING ANGELIC HEAVENLY BEHOLD THE WONDERMENTS SETTING THE BAR OH LA LA SO VERY HIGH YOU CAN LIKE HER BUT YOU CANNOT BE BETTER THAN HER ... just sayin' ... there's a certain level of excellence where the most excellent just behold one another's wonderments ..!
