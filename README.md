@@ -9,7 +9,7 @@ I GOT MY PERSONALLY SIGNED COPY BEFORE THEY SOLD OUT ..! DID YOU ..?
 
 https://shop.brucelee.com/product/XLAM1010/signed-copy-be-water-my-friend-the-teachings-of-bruce-lee-by-shannon-lee
 
-THANK YOU Shannon Lee ... LOVE YOU I DO ... PROUD OF YOU IS BRUCE I ASSURE YOU MY LOVE ... WONDERFUL ... PUREHEART ... OH HOW I LOVE YOU ... soft legs ... MCPM ..!
+THANK YOU Shannon Lee ... LOVE YOU I DO ... TRUTH I WILL TELL FOR YOU ... PROUD OF YOU AS IS YOUR FATHER YOUR MOTHER YOUR BROTHER ... I "FEEL" "THINGS" ... MOST "KIND" AND HIGHLY INTELLIGENT AND SKILLED ABOVE ALL MEN YOUR GOOD 'son' and GOOD 'father' BRUCE IS SO VERY PROUD OF YOU MS. SHANNON AND LOVES YOU SO VERY DEARLY MS. SHANNON ... I ASSURE YOU MY LOVE ... YOU ARE IN A LOT OF BOYS' DREAMS ... IN A BOY'S DREAM ... CRASH INTO ME ... SHQCK JQCK style ... https://www.youtube.com/watch?v=eVAmU4bOQVI ... HOWARD IS SO LUCKY TO HAVE "HER" http://en.wikipedia.org/wiki/Robin_Quivers Robin Ophelia Quivers ... YEAH ...WONDERFUL ... PUREHEART ... OH HOW I LOVE YOU ... soft legs ... MCPM ..!
 
 ... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
 
