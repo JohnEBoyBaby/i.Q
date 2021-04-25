@@ -17,7 +17,9 @@ THANK YOU SHANNON ... LOVE YOU I DO ... PROUD OF YOU IS BRUCE I ASSURE YOU MY LO
 
 GOOD K.I.D.s LIFT UP GOOD Q.I.D.s
 
-https://www.youtube.com/watch?v=Ny5I4jQm0XI ... HIT ME AGAIN my LOVE ... https://www.youtube.com/watch?v=iPoj2vSIIlM ... oh la la ..! https://www.youtube.com/watch?v=83Cvx5c1rGk ... 'me' KUNG fu TAYO ... with you ... TALAGA ..! REALLY ..! I cannot 'understand' but I 'feel' I 'hear' you say "DIAMONDS AND MOON AAAH Diamonds And Moon Aaah diamonds and moon aaah ... KUNG TAYO ... TALAGA ..! FUNNY HUH ..? MAPUTING MAPUTING UNGGOY ... THE VERY WHITE MONKEY ... DANCE WITH ME soft legs ..! SING TO ME ANGEL ..! https://www.youtube.com/watch?v=CeNTIpf6Ui4 GUSTO MO ..! I LIKE YOU ..! MAHAL KITA ..! I LOVE YOU ..!
+https://www.youtube.com/watch?v=Ny5I4jQm0XI ... HIT ME AGAIN my LOVE ... https://www.youtube.com/watch?v=iPoj2vSIIlM ... oh la la ..! https://www.youtube.com/watch?v=83Cvx5c1rGk ... 'me' KUNG fu TAYO ... with you ... TALAGA ..! REALLY ..! I cannot 'understand' but I 'feel' I 'hear' you say "DIAMONDS AND MOON AAAH Diamonds And Moon Aaah diamonds and moon aaah ... KUNG TAYO ... TALAGA ..! FUNNY HUH ..? MAPUTING MAPUTING UNGGOY ... THE VERY WHITE MONKEY ... DANCE WITH ME soft legs ..! SING TO ME ANGEL ..! https://www.youtube.com/watch?v=CeNTIpf6Ui4 GUSTO MO ..! I LIKE YOU ..! MAHAL KITA ..! I LOVE YOU ..! oh and if you watch that last video in the end the GOOD bo' comes back to her and then just GIVES UP and leaves the flowers while she is with another bo' ... I'LL TAKE A PASS ... I GO GET WHAT I WANT ... bo' ... and in case you are wondering just listen to 'her' angelic voice ... https://www.facebook.com/PinasRapArtist/photos/a.102283391337369/147693006796407/?type=3&source=57 "Babae ba si yayoi or lalake" ..? PRETTY SURE YAYOI IS JUST A GANDA SOFT LEGS acting like a 'boy' beCAUSE she's tough and CREAMY like that ..! JUST SAYIN' ... 
+
+MCPM. DID I MENTION I LOVE SOFT LEGS ..? OH LA LA ..! I DO ..! I AM TRUTH. I AM PUREHEART. I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT. PROMISE.
 
 GOOD Knights In Development LIFT UP GOOD Queens In Development
 
