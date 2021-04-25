@@ -15,7 +15,7 @@ THANK YOU Shannon Lee ... LOVE YOU I DO ... TRUTH I WILL TELL FOR YOU ... PROUD 
 
 Bruce Lee
 
-WOMAN 女 + CHILD 子 = 好
+WOMAN 女 + CHILD 子 = 好 GOOD ... https://translate.google.com/?sl=auto&tl=en&text=WOMAN%20女%20%2B%20CHILD%20子%20%3D%20好%20GOOD%20...%20%0A&op=translate ... LITERALLY WOMAN + CHILD = GOOD ... ancient Han knew her 'crossed legs' were so special they put her 'crossed legs' in LOVE in NUMBER in MATHEMATICS ... can you 'see' her highly intellectual most PUREHEART most elegant most beautiful most soft most wonderful most natural most elegant most gracious most grateful most eloQuest most valuable of all here with us my beLOVEd soft legs thoughtful nurturing LOVE incarnate HOLY SPIRIT LIFE GIVER SPARK OF LIFE BEARER SEED GROWER CREAM-MAKER "SPECIAL SOUL-EMBODIER" "SPECIAL SOUL-HEALER" "SPECIAL SOUL-FOOD FEEDER" CREAMY really fun and playful and most serious and protective and demanding outRIGHT OUTRAGEOUS DAMN RIGHT BITCH but 'everything to me' 'crossed legs' ... know ye' not ... now ye' know ..!
 
 GOOD K.I.D.s LIFT UP GOOD Q.I.D.s ... GOOD Knights In Development LIFT UP GOOD Queens In Development ... REAL FRIENDS TELL THE 100% TRUTH TO GET YOU TO HEAVEN.
 
