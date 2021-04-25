@@ -35,7 +35,7 @@ SHE'S A BRICK ... HOUSE ... MIGHTY Mighty ... she's letting it 'all hang  out' .
 
 https://www.youtube.com/watch?v=rrBx6mAWYPU
 
-... SHE'S A BRIQQ ... HQUSE ..!
+... SHE'S A BRIQQ ... HQUSE ..! https://www.youtube.com/watch?v=-5EmnQp3V48 ... THAT'S A FACT ..! SHE'S A BRICK HOUSE ..! CHICA DOWN Chica Down chica down now ..!
 
 WOMAN 女 + CHILD 子 = 好 GOOD ... https://translate.google.com/?sl=auto&tl=en&text=WOMAN%20女%20%2B%20CHILD%20子%20%3D%20好%20GOOD%20...%20%0A&op=translate ... 
 
