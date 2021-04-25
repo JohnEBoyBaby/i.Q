@@ -77,7 +77,7 @@ https://yandex.com/images/search?text=MARATHON%20CANDY%20BAR"%20"HIGH%20DIVE"%20
 
 TRUTH MAKING A WAY FOR G_D FOR ONE TOMORROW REAL SOON WHERE THERE WAS NO WAY TODAY. PROMISE. WORD? MATTHEW 5:8 WORD.
 
-... Qh and CHEQQ ... MATE ... my situation is creamTUateSHun now ... oh la la ... beCAUSE ... IDEAS ARE BULLETPROOF ... https://www.youtube.com/watch?v=8WZ0XSf23rs ... "you" "KNOW" "I" "KNOW" "YOU" "KNOW" ... that's why you are such amazingly DEEP HOLE TROUBLE falling endless into the abyss into the PIT so WAKE UP "BIRD" WAKE UP "BIRD" WAKE UP "BIRD" ... 'you' 'bird' "KNOW" what I AM getting at, RIGHT ..? https://www.youtube.com/watch?v=vnPvbfogeSI ... IT WILL BE "THE LAST TIME YOU EVER ASK 'us' TO WEAR A FUQQINQ MASK", SHITBIRD ..!
+... Qh and CHEQQ ... MATE ... my situation is creamTUateSOME now ... oh la la ... beCAUSE ... IDEAS ARE BULLETPROOF ... https://www.youtube.com/watch?v=8WZ0XSf23rs ... "you" "KNOW" "I" "KNOW" "YOU" "KNOW" ... that's why you are such amazingly DEEP HOLE TROUBLE falling endless into the abyss into the PIT so WAKE UP "BIRD" WAKE UP "BIRD" WAKE UP "BIRD" ... 'you' 'bird' "KNOW" what I AM getting at, RIGHT ..? https://www.youtube.com/watch?v=vnPvbfogeSI ... IT WILL BE "THE LAST TIME YOU EVER ASK 'us' TO WEAR A FUQQINQ MASK", SHITBIRD ..!
 
 ENTERTAIN NO DOUBT. G_D IS WITH US. GOOD IS COMING.
 
