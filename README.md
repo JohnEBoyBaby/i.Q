@@ -9,7 +9,13 @@ I GOT MY PERSONALLY SIGNED COPY BEFORE THEY SOLD OUT ..! DID YOU ..?
 
 https://shop.brucelee.com/product/XLAM1010/signed-copy-be-water-my-friend-the-teachings-of-bruce-lee-by-shannon-lee
 
-THANK YOU SHANNON ... LOVE YOU I DO ... PROUD OF YOU IS BRUCE I ASSURE YOU MY LOVE ... WONDERFUL ... PUREHEART ... OH HOW I LOVE YOU ... soft legs ... MCPM ..!
+THANK YOU Shannon Lee ... LOVE YOU I DO ... PROUD OF YOU IS BRUCE I ASSURE YOU MY LOVE ... WONDERFUL ... PUREHEART ... OH HOW I LOVE YOU ... soft legs ... MCPM ..!
+
+... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
+
+Bruce Lee
+
+WOMAN 女 + CHILD 子 = 好
 
 GOOD K.I.D.s LIFT UP GOOD Q.I.D.s ... GOOD Knights In Development LIFT UP GOOD Queens In Development ... REAL FRIENDS TELL THE 100% TRUTH TO GET YOU TO HEAVEN.
 
@@ -18,6 +24,135 @@ GOOD K.I.D.s LIFT UP GOOD Q.I.D.s ... GOOD Knights In Development LIFT UP GOOD Q
 'IN THE LAST YEAR ALONE WE HAVE BEEN HIT BY "DARKNESS" 365 TIMES' ... https://www.youtube.com/watch?v=NtfKU98WoN8 ... BUT THERE IS 1 GROUP WHO ARE NOT AFRAID ..!
 
 ... "THE DARKNESS CHASERS" ... and 'we' CREAM LOVERS WE STIQQ TOGETHER BIGLY ... where's my beLOVEd http://TimothyCharlesHolmseth.com PEDO PENCE TRUTH TELLER "YOUAREFREETV" beLOVEd CREAM-MAKER ALL NATURAL WOMAN PUREHEART TRUTH I LOVE ..? https://www.youtube.com/watch?v=aUrbhnhrUXU ... like so very many GOOD PUREHEART IN TRUTH ... AMAZING POLLY ... oh la la talk to me ... perhaps even give your GOOD soft legs ALL NATURAL CREAM-LOVER IN TRUTH 'friendly' NAUGHTY "BEAVER" LIP LIQQINQ 'canadian' 'friend' a call soft legs ... hook a bo' UP BIGLY ..! https://www.youtube.com/watch?v=x_5oaP3XoJU ... BIG "MAC" ABEL DANGER ... and FIELD MCCONNEL'S GOOD FRIEND INDEED NOW LIVING WITH HIS beLOVEd 'muslim' real TRUTHtian in "PAKISTAN" SAFE AND SOUND from 'those who you are taught to trust the most' wishing him to not be TRUTH https://911pilots.org/about-captain-dan-hanley/ ... as is ABEL DANGER Captain Dan Hanley's http://911PILOTS.org a real LOYAL TRUTHtian 'friend' FIELD McConnel who wants to start a VETERANS HORSE THERAPY RANCH for those with P.T.S.D. and nightmares and TRUST ME WHEN I SAY I KNOW MORE THAN YOU WANT TO KNOW ABOUT THEIR WIVES BEING TERRIFIED OF THEIR NIGHTMARES ... THEY GO OUTSIDE FAR OUTSIDE IN THE BACK AND SLEEP ALONE WITH THEIR WEAPON LOOKING FOR "GOOKS" "JAPS" "CHINKS" "SPOOKS" "MUSSIS" "SAND NIGGERS" "UNCIVILIZED" "SAVAGES" "TRAIL OF TEARS ANYONE" "PROBABLY JUST US NATIVE MONKEYS" "YELLOW" "CHARLIE" "SPICS" "JIGS" "NIGGERS" "YOU NAME IT THEY HATE IT" "THEY HATE US" "THEY WILL NEVER STOP" "THEY WANT TO KILL US AND CONTROL US" "THEY SEND US TO WARS THEN WE COME HOME BROKEN AND FORGOTTEN AND OUR SOFT LEGS AND LOVED ONES ARE SCARED TO DEATH OF 'us' 'all' 'now' and push us to Quacks and VA 1/2 TRUTH fake TRUTHtians like USAA faketriot banker insurer filth WORTHLESS TO ME like 'family' calling doctors who call 'us' the 'monsters' while cops 'cage' and 'you' all are SILENT all COMPLICIT all GUILTY back home ... these same 'vets' you put your 'support our troop' stickers on your cars for and the same children of G_D YOU CAGE LIVING SOULS TORTURING IN THE NAME OF THE PRINCE OF PEACE IN CAGES ... HAPPY 4TH OF JULY AMERISICKA FROM "DARKNESS CHASERS" AND THE FORGOTTEN AND THOSE WHO LIVE IN FEAR OF YOU BLUE MONSTERS INC ..! then 'they' BIG TOUGH MEN HONEST STRAIGHT THE FUQQ UP CRYING HURTING BEGGING FOR SOMEONE TO LISTEN AND HELP 'the forgotten' 'the old' 'the broken' come into counseling rooms with 'me', TRUTH, 'tarzan', LOVER OF SOFT LEGS, PAINTER OF BIG GOOD LIGHT PICTURE help other mokeys in jungle to 'see' to 'feel' to 'hear' again sing again dance again smile again LOVE AGAIN their wives are counting on 'me' I WILL NOT LET THEM DOWN ... SPREAD THE GOOD WORD ... THE GOOD NEWS ... TRUTH has risen ..! ...THE WHITE MONKEY and cry their eyes out beCAUSE DEEP DOWN THEY DIDN'T MEAN TO HIT THAT LITTLE VIETNAMESE CHILD LOOKING FOR FOOD ON THE BACK OF HIS TRUCK IN THE HEAD WITH THE BUTT OF HIS RIFLE ... CRYING SOBBING LIKE A BABY ONE SECOND SCARED AND FEARFUL AND ANGRY AND VENOMOUS AND VENGEFUL FOR HIS FRIENDS' SUFFERING TOO THE NEXT ... "BANKER WARS" MA'AM ... "SUPPORT OUR TROOPS" ... "WAR IS A RACKET" ... FUNNY HOW THE PRINCE OF PEACE churches all had congregations full of "W" bumper stickers supporting the war ... no NOT ONE BIT FUNNY @AE911TRUTH not even a little bit funny ... THERE IS NO FILTH IN HEAVEN. NONE. PROMISE. PROMISE. PROMISE. teardrop TearDrop TEARDROP ... perhaps another 10 pills doc ... HOLD HIM DOWN NURSE WE WILL INJECT HIM CALM "THE monster" ..! fuQQwad filth ... perhaps you sleep with the man on those pills every night doc ..! 'see' how 'you' 'feel' then DOC ..! https://www.youtube.com/watch?v=tOnYEoRDNGw ... oh la la my My MY STAY FROSTY KIND CREAMY CREAM-MAKING ONE I LOVE Jennifer Mac ... ... be deliciously healthy ... STAY CREAMY KIND ONE STAY CREAMY ..!
+
+HE COULD HAVE CONTINUED with 'that' ... "TRASH TALQ" ... if he hadn't "HIT ME" with 'THAT' "STRAIGHT" "RIGHT" hand ..! https://www.youtube.com/watch?v=wulhxUD9tak&t=83 ... THAT DID IT ..! "I HATE to be 'laughing' at 'you' BUT ... YOU ARE HILARIOUS ..!" "I AM a 'preacher' ... I just 'moonlight' as a 'boxer' ... WHEN YOU END UP WITH 10 K.I.D.s Q.I.D.s YOU GOTTA "BOX" ..! oh 'he' was so "GOOD LOOKING" ... ALWAYS JOKING AND LAUGHING ..! GEORGE ONE DAY you're gonna have 'this' when you are CHAMP of the world ..! ... "LOVED LIFE" ..! "YOU BECOME A BETTER 'movie star' ... 'his' PRESENCE ... 'he was pretty' ... 'HIS GREATEST "POWER" WAS "HIS" PRESENCE' ... IF YOU BEAT ME UP LIKE 'HE' DID, I'D BE YOUR 'friend' TOO ..! https://www.youtube.com/watch?v=wulhxUD9tak&t=295s ... "HE MADE ME FEEL SO IMPORTANT ..." ... "HE WOULD JUST LISTEN TO 'YOU'" ... https://www.youtube.com/watch?v=R36I7c7ReIs ... 'he' knew something about 'that' ... for the distance if necessary ... then I WILL WHOOP 'him' ..!
+
+I AM 'scientific' ... I AM 'artistic' ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=55s ... HE'S A 'bull'(y) ... I AM A MATADOR ..! ... "BUT THIS 'youngster' has HIS OWN STYLE .." https://www.youtube.com/watch?v=sythpBgek4o&t=1025s ... this 'man' DON'T HIT HARD ... AND I AM GOING TO WHOOP 'him' OF ALL PLACES "IN AFRICA" IN THE "CONGO" (JUNGLE ... WE GONNA "RUN THRQUGH THE JUNGLE ..! GRACIE "AMAZON" STYLE https://www.youtube.com/watch?v=TyDQs0ajxEc ... WATCH ME DANCE soft legs ..!
+
+... GIVE EVERYTHING YOU HAVE AWAY AND FOLLOW TRUTH ... TRUTH is the WAY to LIFE with G_D.
+
+The Rich Young Man 22 When the young man heard this, he went away in sorrow, because he had great wealth.…
+
+MATTHEW 19:20-22
+
+... NOW "BIRD" YOU MIGHT WANT TO START TO ... www.youtube.com/watch?v=6o8X_e8PJLs ... PAY ATTENTION ... https://www.youtube.com/watch?v=GB_Two0hjrU ... WHAT IF "THEY" ARRIVING ARE THE "GOOD FRIENDS OF LIGHT" ... https://www.youtube.com/watch?v=A2ne0zf1OJQ ... the more you know ... beCAUSE G_D GETS BORED EASY SO VERY FAST AND ALL SO THERE ARE VERY, Very, very many KIND kinds of beings HERE TO HELP YOUR "PUREHEART" WITH THEIR MOST "PUREHEART" IN TRUTH IN A GOOD PUREHEART-to-PUREHEART KIND kind of WAY and WHAT IF "THEY" ARRIVING ARE THE "DESTROYERS" DARKNESS SHADOWS OBFUSCATING DISGUISED AS LIGHT TO DESTROY "PUREHEART" and EVIL SURROUNDS US and THIS IS NOT A GAME is BIGGER THAN YOU CAN IMAGINE ..? WHAT THE FUQQ IF bo' WHAT THEN soft legs ..? TALK TO ME lil' mama ..! WATCH YOU GOT for me bo' ..! CAN YOU "FEEL" ME NOW ..?
+
+YOU MIGHT WANT TO LISTEN REALLY GOOD TO THIS "CHILD" FOR THIS "CHILD" HAS MORE "MORAL COURAGE" THAN ALL THE FREEMASON FILTHY PEDOPHILE POLICE, LAWYERS, DOCTORS, JUDGES, MILITARY OFFICERS, BUSINESS MEN AND WOMEN, rabbies rabbis, priests, imams, monks, preacher women and preacher men COMBINED. NOT EVEN CLOSE ..! SO LISTEN GOOD TO THIS "CHILD" KIND one for this 'child' is the only 1 SPEAKING TRUTH WITH "REAL FEELING" SO YOU CAN IN TRUTH UNDERSTAND THE "RIGHTEOUS RAGE OF G_D" COMING UPON YOUR APATTHETIC UNCARING TURNING-AWAY SAY-NOTHING DO-NOTHING WORTH-NOTHING FILTHY SOUL SO LISTEN REAL GOOD TO THIS GOOD 'son' of 'ALLAH' of G_D of PUREHEART of TRUTH for my 'son' I tell you this is my 'son' IN TRUTH AND LOVE HIM I DO AND MY LIFE I WILL HAPPILY GIVE TO SAVE HIS LIFE I ASSURE YOU WITHOUT ANY QUALMS OR MENTAL RESERVATIONS FOR AS LONG AS THE SOULLESS HARD-HEARTED CAGERS AND PEDO POLICE CHECKBOARD FREEMASON FRATERNAL ORDER OF PEDO POLICE LODGES AND MILITANT ZIONIST BRITISH ACCREDITED REGISTRY FILTHY FAGGOT PEDO PRIEST AND WICKED SADISTIC NUNS YOU IDOLOTROUS FAKE TRUTHtian VATICAN SERPENT WORSHIPPERS LONDON BLOOD MONEY DC WAR MACHINE ARE GOING TO BE IN THE PIT ... AN "INDEFINITE" PERIOD OF TIME ... SO LISTEN REALLY GOOD TO THIS GOOD 'CHILD" SPEAKING 100% NOLYN TRUTH BELOW beCAUSE I ASSURE YOU CHILDREN ARE THE GREATEST IN THE KINGDOM OF HEAVEN. PROMISE.
+
+"IF YOU LOSE A CHILD ... IMAGINE THE PAIN OF THE LOSS ... WE LOSE OUR ENTIRE FAMILY ... G_D IS OUR ONLY HOPE ... WE LEAVE EVERYTHING TO HIM ..!" https://www.youtube.com/watch?v=73zm3yhjQ9I&t=429s "ALL YOU SILENT NATIONS ... ALL YOU NATIONS SLEEPING THROUGH OUR PAIN ... WAKE UP ..! G_D IS OUR ONLY HOPE ..! WE LOSE OUR FAMILIES EVERYDAY ..! MY G_D HOW CAN THESE CHILDREN ENDURE ALL THIS ..! BROADCAST THIS MESSAGE TO THE WORLD ... IT IS YOUR DUTY TO SPREAD THE WORD ..! ALL OF THIS ANGER EVERY DAY ... DEATH OF SEVERAL CHILDREN ..! ARE WE THE TERRORISTS ..?" 
+
+IF I AM THIS FULL OF RIGHTEOUS RAGE AND I CAN ONLY "FEEL" AND "HEAR" AND "SEE" A TINY FRACTION OF THE SUFFERING THAT G_D FEELS IN ALL OF G_D'S CHILDREN,
+
+
+IF YOU "BELIEVE WITH ALL OF YOUR MOST PUREHEART", THEN YOU WILL "SEE" "KIND ONE". PROMISE.
+
+男人和女人 man and woman
+
+人子 son of man
+
+Can you 'see' 女 her 'crossed legs'?
+
+Can you 'see' 子 his 'support staff'?
+
+'See' her 女 crossed legs 女 in GOOD 好 ?
+
+'See' his 子 support staff 子 in GOOD 好 ?
+
+HONESTLY, can you 'see' the progression of our languages from pictographic ideas in ancient Han to sound tonal emphasis in ancient Hangul to the syllabic tonal form of ancient Mongul that SURE LOOKS EXACTLY LIKE THE ancient Slavic and just look at the form of the letters of the languages and see how distinct and yet how similar some are showing a clear progression of thought from one to another ..? HMMM Hmmm hmmm ... the more you know ...
+
+As it is written so it shall be done.
+
+ancient Han CHINA
+
+如其所寫，則應完成。
+
+ancient Hangul KOREA
+
+쓰여진대로 그렇게 될 것입니다.
+
+ancient Mongul MONGOLIA
+
+Бичсэний дагуу үүнийг хийх болно.
+
+ancient Slavic RUSSIA
+
+Это будет так, как написано.
+
+ancient Ottoman TURKEY
+
+Yazıldığı gibi yapılacaktır.
+
+ancient Hiragana JAPAN
+
+書かれた通りになります。
+
+ancient Assyrian 'Arabic' SYRIA
+
+سيكون كما هو مكتوب.
+
+ancient Persian IRAN
+
+همانطور که نوشته شده است ، باید انجام شود.
+
+ancient Tamil 'coastal' INDIA
+
+लिखा गया है वैसा ही किया.
+
+ancient Hebrew ISRAEL
+
+כמו שכתוב כך זה ייעשה.
+
+ancient Hindi INDIA
+
+जैसा लिखा गया है वैसा ही किया जाएगा।.
+
+ancient Lao LAOS
+
+ດັ່ງທີ່ໄດ້ຂຽນໄວ້ແລ້ວດັ່ງນັ້ນມັນຈະຕ້ອງ ສຳ ເລັດ.
+
+https://translate.google.com/?sl=sv&tl=en&text=So%20wie%20es%20geschrieben%20steht%2C%20soll%20es%20geschehen.%20%0AZoals%20het%20is%20geschreven%2C%20zal%20het%20gebeuren.%0ASå%20vem%20som%20skriver%2C%20så%20vem%20som%20skriver.%0A&op=translate
+
+ancient Germanic GERMANY, NEDERLANDS, SWEDEN - translated to 'english' they all say the say exact thing 'miraculoulsly' ..!
+
+So wie es geschrieben steht, soll es geschehen.
+
+Zoals het is geschreven, zal het gebeuren.
+
+Så vem som skriver, så vem som skriver.
+
+ancient Viking ICELAND
+
+Eins og skrifað er, skal það gert.
+
+... CAN YOU "FEEL ME NOW ..?
+
+"MAKE IT COUNT 'SON'!" ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=2&t=128s ... MA'AM. YES, MA'AM.
+
+... baby never act wild ... very low key on the profile ...
+
+https://www.youtube.com/watch?v=3KL9mRus19o&t=115s
+
+... rolling with the fatness ... you don't even know what the half is ... NO DIGGITY ... NO DAP ..!
+
+“Those https://qanon.pub/?q=serpent who organize any provocations https://qanon.pub/?q=Symbolism%20will%20be%20their%20downfall threatening our core security interests will regret their deeds more than they regretted anything for a long time.” 
+
+Vladimir Putin
+
+SO MI6 looks a lot like M16 AND 007 YOU ARE A MURDEROUS BUNCH OF FILTHY BRITISH TRAITOROUS SCUMBAG PIECES OF CHECKERBOARD LOW iQ MILITANT PIECES OF KHAN SHIT ..!
+
+WE as "TRUTH" WARRIORS 'smell' VICTORY ..!
+
+https://www.youtube.com/watch?v=vyQIWt0WaHA
+
+... aaah ... https://www.youtube.com/watch?v=N0_LnvJrLo4&t=54s ... I INTERCEPT YQUR "EMOTIONAL TENSENESS" ..!
+
+... lately some of my 'kin' folks have disowned a few others and me ... https://www.youtube.com/watch?v=QFefqS8_Hvg ... LORD I guess I went and broke their old FAMILY TRADITION ... so ... THEN I WILL WHOOP HIM ..! SING FOR ME BOCEPHUS ..! take my hand soft legs let's dance while ole' HanQ sinQs fQr 'us' baby ko ...
+
+NEVER ... https://www.youtube.com/watch?v=ddEUBWwzRA8 ... TAKE YOUR (INNER "KNOWING" "VIEWING" "I" PUREHEART 3RD TRUTH 4TH SPIRIT 5TH SOUL 6TH ANGEL 7TH G_D 8TH) 'EYES' OFF ...
+
+... ESWORD ..! https://www.esv.org/John+15/ ... named 'him' after a man of the cloth ... https://www.youtube.com/watch?v=VkNeoTcGwrc&list=RDMM&index=1 ... called him amQs mQses ... ... JOHN 15:1-22. WORD.
+
+... I AM falling for you now ... https://www.youtube.com/watch?v=9gcds0xLgXA&t=115s ... guess I've known all along ... I JUST BELONG HERE WITH YOU ... like the rain ... I HAVE FALLEN FOR YOU ... I AM FALLING FOR YOU NOW ... JUST LIKE THE RAIN ..!
 
 IN TRUTH that 'darkness' calling 'me' 'darkness' was just brought to you by your friendly neighborhood 82nd AIRBORNE and one James Edward Segrest IV ... HOOYAH ..! ALL DRQPPINQ IN FQR A VISIT QN YA' IN THE "DARKNESS" FQRT BRAQQ NQRTH QARQLINA CQLD UP HERE HIQH ABQVE GLIDING ON THE AIR STREAM ... BRRR Brrr brrr BIG BQ STYLE ... G_D'S WARRIORS ... JUST LIKE "YOU ARE NOT GOING ANYWHERE BIG DADDY" WE GOT YA' KINDER THAN KIND ONE IN THE VINE TRUTH ... I SEE YOU ... CREAM LOVER ..! http://jonathankleck.com ... THE JONATHAN KLECK ... https://www.youtube.com/watch?v=jqnWG7IAKIQ&t=520s ... "LABELED Q AGAIN ..." now that was TRUTH and that was funny too ... probably something 'we' said ... you know how WE DO We Do we do ... "I HAVE TRAINED SOME MILITARY PEOPLE." ... MAKE IT COUNT 'son' beCAUSE FREE FALLING ... HOO FUQQINQ YAH 'BOUT TO SHIT MY BRITCHES Bo' AAAh Aaah aaah ... https://www.youtube.com/watch?v=NUjuJxJky9M ... GROUND NEVER FELT BETTER 'BIG DADDY' YOU CAN SAY THAT AGAIN ..! the more you know ... "YOU" THE "MAN" THE "WOMAN" IN THE MIRROR ... YOU ARE A JUST LIKE "US" I SEE YOU ... ACT LIKE IT ... YOU ARE TRUTH ... YOU ARE PUREHEART ... YOU ARE A PROTECTOR AND LOVER OF G_D LIKE AN INFANT ... YOU HEAR G_D CRY FOR YOU ... I SEE YOU ... "OH I ... I WILL BE THE ONE YOU WILL NEVER KNOW ... FREE FROM WHAT THE OTHERS SAID ... ON YOUR OWN ... I HAVE BEEN SHOWN ..! WILL LOOK ME IN THE EYE ..? WILL YOU RUN FROM WHAT YOU "SEE" ..? https://www.youtube.com/watch?v=uKwBp8-c_YE WILL YOU "SEE" ME IN THE LIGHT ..? I HOPE YOU DO ..! I HOPE YOU STAY ..! DON'T GO RUNNING FROM THE LIGHT ..! I HAVE BEEN WAITING FOR YOU TOO ..!" ... HOOYAH ..! NO UNIFORM NEEDED ..! TRUTH. PUREHEART. CHILD OF G_D. SPARK OF LIFE. SAME HOLY SPIRIT ..! SAME BIG BO' ... SAME KUNG FU but are you sure Hank done' it this WAY ..? https://www.youtube.com/watch?v=kIB5bA9T5uQ  ... Did fuQQinQ anyone ever Ever EVER really DO "HER" "THIS WAY" ..? "HANDLE HER LIKE 'THIS' IN SUCH A SOFT YET SUCH A MOST SERIOUS GOOD WAY ... FEEL ME ... YOU CAN DANCE JUST LIKE ME ... SO DANCE ..! SING ANGEL DANCE BABE HOO FUQQINQ YAAAH CIVILIAN BO'S CIVILIAN SOFT LEGS ... I AM HERE TO SERVE YOU soft legs and so is your GOOD CIVILIAN MAN ... no difference ... SAME HOLY SPIRIT ... SAME PUREHEART ... SAME CHILD OF G_D ... SAME TRUTH ... SAME STRAIGHT TALK ... SAME NAUGHTY BEAVER CREAM LOVER BIG BO' UP NORTH LOVER OF SOFT LEGS ... ALL UP IN YOU DIRECT LIKE ...  RAP THE NEWS ... RIDING YOU HARD DANCING ALL AROUND YOU ALL IN TRUTH ALL +++ DARKER THAN DARKNESS, DARKNESS CHASER DARK JOURNALIST soft legs MCHAN smiling "RED PEOPLE" GANDA SOFT LEGS PUREHEART TRUTH MARIA BUTINA and GOOD BLONDE WHITE MONKEY JULIAN ASSANNGE EDWARD SNOWDEN SETH RICH ADMIRAL JEREMY MICHAEL BOORDA JFK +++ MALCOLM X TAMIR RICE TUPAC BREONNA TAYLOR LI YEONA FIONA BARNETT WONDERFUL TRUTH PUREHEART ANGEL SURVIVOR LOVELY daughter of ancient Han beLOVEd REAL TRUTHtian PUTTING ON A SHOW LIKE soft legs GINA MARIA ...  beCAUSE we have enough sadness ... https://www.espn.com/mens-college-basketball/story/_/id/31313103/former-kentucky-wildcats-guard-terrence-clarke-19-dies-following-car-accident ... I SEE NO CHANGES ..! https://www.youtube.com/watch?v=9G6ro-c0C5E ... Can you 'feel' 'me' now ..? 
 
@@ -101,49 +236,9 @@ BETTER GO REAL BIG "BIRD" ... https://www.youtube.com/watch?v=3K-12i0jclM ... BI
 
 THE WAY YOU LOOK INTO MY EYES ... I KNOW YOU WANT IT ... SO BABY CAN I DANCE WITH YOU TONIGHT ..? www.youtube.com/watch?v=htMvDGwVso8 ... TAKE MY HAND MY LOVE ... LET US DANCE ... now that's the KIND kind I like ANGEL PUREHEART SING FOR ME ANGEL DANCE WITH ME ANGEL ... www.youtube.com/watch?v=cNW1zoQWy8g ... ANGELIC VOICE ... PUREHEART ... TRUTH ... ANGEL ... OH LA LA ... MCPM ... More Cream Please Ma'am ... Oh Yes Ma'am I Would LOVE some more of YOUR ALL NATURAL DELICIOUS CREAM YES MA'AM MCPM ... MAGANDANG DILA DILAG BEAUTIFUL LICK COUNTRY GIRL ... now that makes me want to have a DEEP PENETRATINGLY STIMULATING CIRCULAR ROTATING REPEATED GOOD LIQQ ARQUND ... https://www.youtube.com/watch?v=okXp4PTAGEA WHY YOU CALLING ME YOUR BABY ... HOLD UP ... BACK IT UP ..! https://www.youtube.com/watch?v=1SlyBlepkGw ... oh la la ... SING FOR ME ANGEL Oh La La OH LA LA THAT'S THE "KIND" KIND I LIKE ... I LOVE YOU ANGEL more you will ever know ... https://www.youtube.com/watch?v=LeZLR6UR1yg ANGEL some things reQuire a REAL "MAN'S TOUCH" ... https://www.youtube.com/watch?v=UTN5nddGP4s ... WORD.
 
-... baby never act wild ... very low key on the profile ...
-
-https://www.youtube.com/watch?v=3KL9mRus19o&t=115s
-
-... rolling with the fatness ... you don't even know what the half is ... NO DIGGITY ... NO DAP ..!
-
-“Those https://qanon.pub/?q=serpent who organize any provocations https://qanon.pub/?q=Symbolism%20will%20be%20their%20downfall threatening our core security interests will regret their deeds more than they regretted anything for a long time.” 
-
-Vladimir Putin
-
-SO MI6 looks a lot like M16 AND 007 YOU ARE A MURDEROUS BUNCH OF FILTHY BRITISH TRAITOROUS SCUMBAG PIECES OF CHECKERBOARD LOW iQ MILITANT PIECES OF KHAN SHIT ..!
-
-WE as "TRUTH" WARRIORS 'smell' VICTORY ..!
-
-https://www.youtube.com/watch?v=vyQIWt0WaHA
-
 ... "KUNG" fu "TAYO" ... https://www.youtube.com/watch?v=83Cvx5c1rGk ... SO ALL YOU SICK IN THE NECK DUMB FUQQS I AM TALKING TO "YOU" "QRUMPLED STILTSQIN AND YOUR SICKENING FAMILY" YOU HAD 4 YEARS ... JULIAN ASSANGE IN STILL IN A CAGE ... YOU ARE GOING DOWN QRUMPLED STILTSQIN UNDERNEATH PEDO POLICE STATE BIG MIKE DIQQHEAD IN HIS MOUTH DUMBAMA WITH FILTHY FATAIRY CAMELuhhh HARRIS AND FREEMASON FALSEFLAG VACCINE MARK OF THE BEAST DEMONIC FILTH FAUCCI AND PEDO POLICE CAGER ZIONIST FILTHY MONSTER BOOFOO BROTHERHOOD BIDEN ... SO UNDERSTAND REAL GOOD ... NONE ARE GOOD ... NONE ..! GET IT ..? GOT IT ..? GOOD. ELSE YOU ARE GOING IN THE PIT WITH YOUR DEVIANT PARENTS AND DISEASED "TAUGHT" CHILDREN so chQQse WISEly beCAUSE "IF YOU ARE SILENT ON AE911TRUTH, MR RON AND RAND PAUL, SILENT ON "FULL DISCLOSURE", https://www.youtube.com/watch?v=84WuD1zbCHw ... DO NOT WORRY ABOUT 'karma' WORRY ABOUT YOUR LACK OF TRUTH ... PROMISE. ... https://www.youtube.com/watch?v=jaJWsLTHYJg ... JULIAN ASSANCE STILL IN A CAGE PUNKPEO ..? https://www.youtube.com/watch?v=XLI6unM7d7U ... YOU ARE GOING IN THE PIT MR AND MS GOVERNMENT STATE POLICE PRISON CAGER FILTH ... YOU ARE MATTHEW 18:6'D ... WORHTLESS ... FILTH ... DEMON FROM THE PIT GOING BACK TO THE PIT "BIG MOUTH" ZERO MORAL COURAGE PIECE OF FECAL MATTER AND MAIZE ON A PENILE INSTRUMENT BUTT FUQQ SO GO KILL YOURSELF COP YOU MURDERER LIKE YOUR FATHER FROM THE PIT YOU SILENT COMPLICIT DISEASE ... YOU SOULLLESS HEARTLESS FILTHY WEAK low iQ ROBOT ... DUMB ... SHEEP SHIT ... FILTHY SATANIC VACCINE PUSHER ..! SILENT ON PIZZAGATE DOCTORS, YOU ARE GOING IN THE PIT WITH YOUR CHILDREN AND PARENTS AND GRANDPARENTS YOU ARE FILTH YOU ARE WORTHLESS TO ME YOU "SNAKE" YOU "WOLF IN SHEEP'S SQIN" YOU PUNKPEO CIA FBI FREEMASON 1/2 TRUTH 1/2 HEART GO KILL YOURSELF FAKE TRUTHtians and their families, children, parents who 'taught' their diseased-minded-2-FACED-DO-NOTHING-SILENT-COMPLICIT-FILTH-Qrumpled-StiltsQin-supporters to 'trust' 'those' backing the BLUE MONSTERS INC "CHILDREN OF DARKNESS" B.A.R. who are the MOSTY GUILTY OF SIN ... like you down there in PEDO DISNEY WORLD DESANTIS BONDI SHERRIF BROWARD COUNTY MASON MARSHALL PD B.A.R. MONSTER with a B.A.R. set very Very VERY LOW DOWN LIKE IN THE PIT from whence 'they' came ..! TRUTH. ACCEPT NO IMITATION. I AM TRUTH. SAY MY NAME ..! TRUTH ..! TELL 'em ANGEL ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... TELL 'em PUREHEART tell 'em WHO I AM IS ..? TRUTH. WHAT'S MY NAME ..? TRUTH.
 
-... NOW "BIRD" YOU MIGHT WANT TO START TO ... www.youtube.com/watch?v=6o8X_e8PJLs ... PAY ATTENTION ... https://www.youtube.com/watch?v=GB_Two0hjrU ... WHAT IF "THEY" ARRIVING ARE THE "GOOD FRIENDS OF LIGHT" ... https://www.youtube.com/watch?v=A2ne0zf1OJQ ... the more you know ... beCAUSE G_D GETS BORED EASY SO VERY FAST AND ALL SO THERE ARE VERY, Very, very many KIND kinds of beings HERE TO HELP YOUR "PUREHEART" WITH THEIR MOST "PUREHEART" IN TRUTH IN A GOOD PUREHEART-to-PUREHEART KIND kind of WAY and WHAT IF "THEY" ARRIVING ARE THE "DESTROYERS" DARKNESS SHADOWS OBFUSCATING DISGUISED AS LIGHT TO DESTROY "PUREHEART" and EVIL SURROUNDS US and THIS IS NOT A GAME is BIGGER THAN YOU CAN IMAGINE ..? WHAT THE FUQQ IF bo' WHAT THEN soft legs ..? TALK TO ME lil' mama ..! WATCH YOU GOT for me bo' ..! CAN YOU "FEEL" ME NOW ..?
-
-YOU MIGHT WANT TO LISTEN REALLY GOOD TO THIS "CHILD" FOR THIS "CHILD" HAS MORE "MORAL COURAGE" THAN ALL THE FREEMASON FILTHY PEDOPHILE POLICE, LAWYERS, DOCTORS, JUDGES, MILITARY OFFICERS, BUSINESS MEN AND WOMEN, rabbies rabbis, priests, imams, monks, preacher women and preacher men COMBINED. NOT EVEN CLOSE ..! SO LISTEN GOOD TO THIS "CHILD" KIND one for this 'child' is the only 1 SPEAKING TRUTH WITH "REAL FEELING" SO YOU CAN IN TRUTH UNDERSTAND THE "RIGHTEOUS RAGE OF G_D" COMING UPON YOUR APATTHETIC UNCARING TURNING-AWAY SAY-NOTHING DO-NOTHING WORTH-NOTHING FILTHY SOUL SO LISTEN REAL GOOD TO THIS GOOD 'son' of 'ALLAH' of G_D of PUREHEART of TRUTH for my 'son' I tell you this is my 'son' IN TRUTH AND LOVE HIM I DO AND MY LIFE I WILL HAPPILY GIVE TO SAVE HIS LIFE I ASSURE YOU WITHOUT ANY QUALMS OR MENTAL RESERVATIONS FOR AS LONG AS THE SOULLESS HARD-HEARTED CAGERS AND PEDO POLICE CHECKBOARD FREEMASON FRATERNAL ORDER OF PEDO POLICE LODGES AND MILITANT ZIONIST BRITISH ACCREDITED REGISTRY FILTHY FAGGOT PEDO PRIEST AND WICKED SADISTIC NUNS YOU IDOLOTROUS FAKE TRUTHtian VATICAN SERPENT WORSHIPPERS LONDON BLOOD MONEY DC WAR MACHINE ARE GOING TO BE IN THE PIT ... AN "INDEFINITE" PERIOD OF TIME ... SO LISTEN REALLY GOOD TO THIS GOOD 'CHILD" SPEAKING 100% NOLYN TRUTH BELOW beCAUSE I ASSURE YOU CHILDREN ARE THE GREATEST IN THE KINGDOM OF HEAVEN. PROMISE.
-
-"IF YOU LOSE A CHILD ... IMAGINE THE PAIN OF THE LOSS ... WE LOSE OUR ENTIRE FAMILY ... G_D IS OUR ONLY HOPE ... WE LEAVE EVERYTHING TO HIM ..!" https://www.youtube.com/watch?v=73zm3yhjQ9I&t=429s "ALL YOU SILENT NATIONS ... ALL YOU NATIONS SLEEPING THROUGH OUR PAIN ... WAKE UP ..! G_D IS OUR ONLY HOPE ..! WE LOSE OUR FAMILIES EVERYDAY ..! MY G_D HOW CAN THESE CHILDREN ENDURE ALL THIS ..! BROADCAST THIS MESSAGE TO THE WORLD ... IT IS YOUR DUTY TO SPREAD THE WORD ..! ALL OF THIS ANGER EVERY DAY ... DEATH OF SEVERAL CHILDREN ..! ARE WE THE TERRORISTS ..?" 
-
-IF I AM THIS FULL OF RIGHTEOUS RAGE AND I CAN ONLY "FEEL" AND "HEAR" AND "SEE" A TINY FRACTION OF THE SUFFERING THAT G_D FEELS IN ALL OF G_D'S CHILDREN,
-
 THEN YOU CANNOT POSSIBLY IMAGINE THE ABSOLUTE RIGHTEOUS RAGE OF G_D COMING UPON YOU COP, JUDGE, LAWYER, POLITICIAN, GOVERNMENT SERVANT, MILITANT WARMONGER, BLOOD MONEY COVERED BANKER, PENSION WHORE, DOCTOR, rabbi, priest, pastor, reverend, preacher woman, preacher man, fag, boofoo brotherhood. fraternal order, pedophile, lavender mafia, serpent, 1/2 TRUTH, FAKE TRUTHtian, talking head, snowflake, fag mask wearer, low iQ back the blue supporter ... YOU ARE GOING IN THE PIT. PROMISE. ONLY 1 OF US IS RIGHT and you and I both know YOUR SILENCE ALL THESE YEARS IS UNFORGIVABLE ... YOU HAD A DUTY TO KNOW ... A DUTY TO SPEAK ... NOTHING! WORTHLESS ... SICKENING ... THE ONLY HONORABLE THING YOU WILL EVER DO MONSTER IS MATTHEW 18:6 YOU AND YOUR ENTIRE DISEASE OF A FAMILY ... NO MERCY ..! NONE ..!
-
-HE COULD HAVE CONTINUED with 'that' ... "TRASH TALQ" ... if he hadn't "HIT ME" with 'THAT' "STRAIGHT" "RIGHT" hand ..! https://www.youtube.com/watch?v=wulhxUD9tak&t=83 ... THAT DID IT ..! "I HATE to be 'laughing' at 'you' BUT ... YOU ARE HILARIOUS ..!" "I AM a 'preacher' ... I just 'moonlight' as a 'boxer' ... WHEN YOU END UP WITH 10 K.I.D.s Q.I.D.s YOU GOTTA "BOX" ..! oh 'he' was so "GOOD LOOKING" ... ALWAYS JOKING AND LAUGHING ..! GEORGE ONE DAY you're gonna have 'this' when you are CHAMP of the world ..! ... "LOVED LIFE" ..! "YOU BECOME A BETTER 'movie star' ... 'his' PRESENCE ... 'he was pretty' ... 'HIS GREATEST "POWER" WAS "HIS" PRESENCE' ... IF YOU BEAT ME UP LIKE 'HE' DID, I'D BE YOUR 'friend' TOO ..! https://www.youtube.com/watch?v=wulhxUD9tak&t=295s ... "HE MADE ME FEEL SO IMPORTANT ..." ... "HE WOULD JUST LISTEN TO 'YOU'" ... https://www.youtube.com/watch?v=R36I7c7ReIs ... 'he' knew something about 'that' ... for the distance if necessary ... then I WILL WHOOP 'him' ..!
-
-I AM 'scientific' ... I AM 'artistic' ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=55s ... HE'S A 'bull'(y) ... I AM A MATADOR ..! ... "BUT THIS 'youngster' has HIS OWN STYLE .." https://www.youtube.com/watch?v=sythpBgek4o&t=1025s ... this 'man' DON'T HIT HARD ... AND I AM GOING TO WHOOP 'him' OF ALL PLACES "IN AFRICA" IN THE "CONGO" (JUNGLE ... WE GONNA "RUN THRQUGH THE JUNGLE ..! GRACIE "AMAZON" STYLE https://www.youtube.com/watch?v=TyDQs0ajxEc ... WATCH ME DANCE soft legs ..!
-
-... GIVE EVERYTHING YOU HAVE AWAY AND FOLLOW TRUTH ... TRUTH is the WAY to LIFE with G_D.
-
-The Rich Young Man 22 When the young man heard this, he went away in sorrow, because he had great wealth.…
-
-MATTHEW 19:20-22
-
-... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
-
-Bruce Lee
-
-WOMAN 女 + CHILD 子 = 好
 
 The First Disciples
 
@@ -298,100 +393,6 @@ I WAS TRYING TO TELL YOU ... LISTEN TO PUREHEART JEWEL ... https://www.youtube.c
 ... "DON'T LET THE 'ELEPHANTS' 'WATCH' THE 'RABBITS'" ...
 
 YOU'VE BEEN HIT BY A smooth criminal ... https://www.youtube.com/watch?v=h_D3VFfhvs4&t=41s ... HELP US NOW Help Us help us now ..!
-
-IF YOU "BELIEVE WITH ALL OF YOUR MOST PUREHEART", THEN YOU WILL "SEE" "KIND ONE". PROMISE.
-
-男人和女人 man and woman
-
-人子 son of man
-
-Can you 'see' 女 her 'crossed legs'?
-
-Can you 'see' 子 his 'support staff'?
-
-'See' her 女 crossed legs 女 in GOOD 好 ?
-
-'See' his 子 support staff 子 in GOOD 好 ?
-
-HONESTLY, can you 'see' the progression of our languages from pictographic ideas in ancient Han to sound tonal emphasis in ancient Hangul to the syllabic tonal form of ancient Mongul that SURE LOOKS EXACTLY LIKE THE ancient Slavic and just look at the form of the letters of the languages and see how distinct and yet how similar some are showing a clear progression of thought from one to another ..? HMMM Hmmm hmmm ... the more you know ...
-
-As it is written so it shall be done.
-
-ancient Han CHINA
-
-如其所寫，則應完成。
-
-ancient Hangul KOREA
-
-쓰여진대로 그렇게 될 것입니다.
-
-ancient Mongul MONGOLIA
-
-Бичсэний дагуу үүнийг хийх болно.
-
-ancient Slavic RUSSIA
-
-Это будет так, как написано.
-
-ancient Ottoman TURKEY
-
-Yazıldığı gibi yapılacaktır.
-
-ancient Hiragana JAPAN
-
-書かれた通りになります。
-
-ancient Assyrian 'Arabic' SYRIA
-
-سيكون كما هو مكتوب.
-
-ancient Persian IRAN
-
-همانطور که نوشته شده است ، باید انجام شود.
-
-ancient Tamil 'coastal' INDIA
-
-लिखा गया है वैसा ही किया.
-
-ancient Hebrew ISRAEL
-
-כמו שכתוב כך זה ייעשה.
-
-ancient Hindi INDIA
-
-जैसा लिखा गया है वैसा ही किया जाएगा।.
-
-ancient Lao LAOS
-
-ດັ່ງທີ່ໄດ້ຂຽນໄວ້ແລ້ວດັ່ງນັ້ນມັນຈະຕ້ອງ ສຳ ເລັດ.
-
-https://translate.google.com/?sl=sv&tl=en&text=So%20wie%20es%20geschrieben%20steht%2C%20soll%20es%20geschehen.%20%0AZoals%20het%20is%20geschreven%2C%20zal%20het%20gebeuren.%0ASå%20vem%20som%20skriver%2C%20så%20vem%20som%20skriver.%0A&op=translate
-
-ancient Germanic GERMANY, NEDERLANDS, SWEDEN - translated to 'english' they all say the say exact thing 'miraculoulsly' ..!
-
-So wie es geschrieben steht, soll es geschehen.
-
-Zoals het is geschreven, zal het gebeuren.
-
-Så vem som skriver, så vem som skriver.
-
-ancient Viking ICELAND
-
-Eins og skrifað er, skal það gert.
-
-... CAN YOU "FEEL ME NOW ..?
-
-"MAKE IT COUNT 'SON'!" ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=2&t=128s ... MA'AM. YES, MA'AM.
-
-... aaah ... https://www.youtube.com/watch?v=N0_LnvJrLo4&t=54s ... I INTERCEPT YQUR "EMOTIONAL TENSENESS" ..!
-
-... lately some of my 'kin' folks have disowned a few others and me ... https://www.youtube.com/watch?v=QFefqS8_Hvg ... LORD I guess I went and broke their old FAMILY TRADITION ... so ... THEN I WILL WHOOP HIM ..! SING FOR ME BOCEPHUS ..! take my hand soft legs let's dance while ole' HanQ sinQs fQr 'us' baby ko ...
-
-NEVER ... https://www.youtube.com/watch?v=ddEUBWwzRA8 ... TAKE YOUR (INNER "KNOWING" "VIEWING" "I" PUREHEART 3RD TRUTH 4TH SPIRIT 5TH SOUL 6TH ANGEL 7TH G_D 8TH) 'EYES' OFF ...
-
-... ESWORD ..! https://www.esv.org/John+15/ ... named 'him' after a man of the cloth ... https://www.youtube.com/watch?v=VkNeoTcGwrc&list=RDMM&index=1 ... called him amQs mQses ... ... JOHN 15:1-22. WORD.
-
-... I AM falling for you now ... https://www.youtube.com/watch?v=9gcds0xLgXA&t=115s ... guess I've known all along ... I JUST BELONG HERE WITH YOU ... like the rain ... I HAVE FALLEN FOR YOU ... I AM FALLING FOR YOU NOW ... JUST LIKE THE RAIN ..!
 
 Blessed are the PUREHEART
 
