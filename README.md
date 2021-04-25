@@ -7,7 +7,21 @@ Cassius Marcellus Clay, Muhammad Ali
 
 'IN THE LAST YEAR ALONE WE HAVE BEEN HIT BY "DARKNESS" 365 TIMES' ... https://www.youtube.com/watch?v=NtfKU98WoN8 ... BUT THERE IS 1 GROUP WHO ARE NOT AFRAID ..!
 
-... "THE DARKNESS CHASERS" ... you know what I AM getting at, RIGHT ..?
+... "THE DARKNESS CHASERS" ... IN TRUTH that 'darkness' calling 'me' 'darkness' was just brought to you by your friendly neighborhood 82nd AIRBORNE and one James Edward Segrest IV ... HOOYAH ..! ALL DRQPPINQ IN FQR A VISIT QN YA' IN THE "DARKNESS" FQRT BRAQQ NQRTH QARQLINA CQLD UP HERE HIQH ABQVE GLIDING ON THE AIR STREAM ... BRRR Brrr brrr BIG BQ STYLE ... G_D'S WARRIORS ... JUST LIKE THE JONATHAN KLECK ... https://www.youtube.com/watch?v=jqnWG7IAKIQ&t=520s ... "I HAVE TRAINED SOME MILITARY PEOPLE." ... MAKE IT COUNT 'son' beCAUSE 'son' YOU CAN SAY THAT AGAIN ..! SAME SPIRIT ... SAME BIG BO' ... SAME KUNG FU ... SAME TRUTH ... STRAIGHT TALK ... NAUGHTY BEAVER ... ALL UP IN YOU DIRECT LIKE RAP THE NEWS PUTTING ON A SHOW LIKE soft legs GINA MARIA ... can you 'feel' 'me' now ..? 
+
+You know what THE JONATHAN KLECK IS getting at, RIGHT ..?
+
+NO GREATER LOVE
+
+12 This is my commandment, that you LOVE one another as I have LOVEd you.
+
+13 Greater LOVE has no one than this, that she or he lay down her or his LIFE for her or his friends.
+
+14 You are my friends if you do what I command you: SOFTEN YOUR HEART, BECOME LIKE CHILD, INNOCENT AS A GOOD "DOVE" "BIRD". PUREHEART. TRUTH. LOVE ONE ANOTHER.
+
+John 15:12-14
+
+https://biblehub.com/john/15-13.htm
 
 I GOT MY PERSONALLY SIGNED COPY BEFORE THEY SOLD OUT ..! DID YOU ..?
 
