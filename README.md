@@ -17,7 +17,7 @@ THANK YOU SHANNON ... LOVE YOU I DO ... PROUD OF YOU IS BRUCE I ASSURE YOU MY LO
 
 GOOD K.I.D.s LIFT UP GOOD Q.I.D.s
 
-https://www.youtube.com/watch?v=Ny5I4jQm0XI ... HIT ME AGAIN my LOVE ... https://www.youtube.com/watch?v=iPoj2vSIIlM ... oh la la ..! https://www.youtube.com/watch?v=83Cvx5c1rGk ... 'me' KUNG fu TAYO ... with you ... TALAGA ..! REALLY ..! I cannot 'understand' but I 'feel' I 'hear' you say "DIAMONDS AND MOON AAAH Diamonds And Moon Aaah diamonds and moon aaah ... KUNG TAYO ... TALAGA ..! FUNNY HUH ..? MAPUTING MAPUTING UNGGOY ... THE VERY WHITE MONKEY ... DANCE WITH ME soft legs ..! SING TO ME ANGEL ..!
+https://www.youtube.com/watch?v=Ny5I4jQm0XI ... HIT ME AGAIN my LOVE ... https://www.youtube.com/watch?v=iPoj2vSIIlM ... oh la la ..! https://www.youtube.com/watch?v=83Cvx5c1rGk ... 'me' KUNG fu TAYO ... with you ... TALAGA ..! REALLY ..! I cannot 'understand' but I 'feel' I 'hear' you say "DIAMONDS AND MOON AAAH Diamonds And Moon Aaah diamonds and moon aaah ... KUNG TAYO ... TALAGA ..! FUNNY HUH ..? MAPUTING MAPUTING UNGGOY ... THE VERY WHITE MONKEY ... DANCE WITH ME soft legs ..! SING TO ME ANGEL ..! https://www.youtube.com/watch?v=CeNTIpf6Ui4 GUSTO MO ..! I LIKE YOU ..! MAHAL KITA ..! I LOVE YOU ..!
 
 GOOD Knights In Development LIFT UP GOOD Queens In Development
 
