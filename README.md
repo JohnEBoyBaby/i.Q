@@ -13,7 +13,7 @@ THANK YOU SHANNON ... LOVE YOU I DO ... PROUD OF YOU IS BRUCE I ASSURE YOU MY LO
 
 GOOD K.I.D.s LIFT UP GOOD Q.I.D.s
 
-https://www.youtube.com/watch?v=Ny5I4jQm0XI
+https://www.youtube.com/watch?v=Ny5I4jQm0XI ... HIT ME AGAIN my LOVE ... https://www.youtube.com/watch?v=iPoj2vSIIlM ... oh la la ..! SING TO ME ANGEL ..!
 
 GOOD Knights In Development LIFT UP GOOD Queens In Development
 
