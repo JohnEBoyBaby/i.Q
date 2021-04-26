@@ -19,6 +19,8 @@ WHY YOU TELLING ALL THOSE FELLAS ... ARE YOU CRAZY ..? https://www.youtube.com/w
 
 "THE NEGROES TOOK OUR DATES ..!" https://www.youtube.com/watch?v=js4aeH47pGw&t=98 ... WHOOLY BULLY WHQQLY BOOLY ... LAY IT DOWN ..! WE'RE OUT ..!
 
+PARDQN ME, DQ YQU HAVE ANY QREY PQUPQN ..? https://www.youtube.com/watch?v=IN5EZwanClY ... "THIS IS UNBELIEVABLE ..!" ... IF YOU WANT TO RIDE WITH 'me' RIDE WITH 'me' ..! "WTFO "WOULD YOU" NO "DO YOU" ..." shQrt little attentiQn span ... sQft in the middle ... https://www.youtube.com/watch?v=bUIQJ26Ew3E ... "PARDON ME DO YOU HAVE ANY GREY POUPON'..? https://www.youtube.com/watch?v=GsyJVv-9ygM&t=191s ... 'WHERE ARE WE GOING' ..?
+
 MOM MAKE HIM STOP ..! NO I WILL NEVER STOP ..! DAD PLEASE MAKE HIM STOP ..! NO I WILL NEVER EVER Ever ever stop EVER ..! PLEASE SOMEONE MAKE HIM STOP Make Him Stop make him stop ..! NO I WILL NEVER STOP ..! EVER.
 
 ... someone shave ... Someone Shave ... SOMEONE SHAVE ... https://www.youtube.com/watch?v=vaux40k6jYk ... MY WIFE TONIGHT ... tongiht ... SOMEONE SHAVE MY WIFE TONIGHT ... Tonight ... YOU REALLY HAD ME ROPED AND TIED ... HYPNOTIZED ... SWEET FREEDOM WHISPER IN MY EAR ... FREE TO FLY ... FLY AWAY ... HIGH AWAY ... BYE ... SOMEONE SHAVE ... Someone Shave ... someone shave my wife TONIGHT ... tonight ... :-) ... PUREHEART ... another INSTANT J.E.S.'er CLASSIC HIT ..! "MAKE IT COUNT 'son' ..!" ... WORD.
