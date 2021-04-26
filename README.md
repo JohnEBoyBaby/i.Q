@@ -5,15 +5,9 @@ IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.
 
 Cassius Marcellus Clay, Muhammad Ali
 
-NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
+... OUT OF THE DARKNESS AND INTO THE LIGHT ... darkness ... Darkness ... DARKNESS ... surely 'darkness' you jest ... G_D WINS ... SPIRITUAL WARFARE ... WORD.
 
-WHAT IS GOOD ENOUGH FOR THE "GOOD" IS GOOD ENOUGH FOR THE 'gander' ... CARE TO TAKE A "GANDER" 'gander' ..! WORD.
-
-... soon ... you will 'see' ... no 'doctor' will give a 'prescription' to a 'patient' without THE DOCTOR ALSO GOING HOME TO LIVE WITH THAT 'patient's 'family' a LONG, Long, long while WHILE ALSO TAKING THAT SAME 'PRESCRIPTION' to 'MAKE REAL SURE THAT EVERYTHING IS GOING ALONG JUST FINE AND ALL WITH THEIR MOST PUREHEART MOST DESERVING MOST beLOVEd' 'patient' ... that's the new 1st line of your oath 'doc' ... still practicing 'medicine', 'dcc' ..?
-
-... also Quite sQQn ... you will 'hear' ... no judge will 'sentence' any 'real' 'criminal' 'MONSTER' RAPING CHILDREN to a 'cage' instead of MATTHEW 18:6 and LOVE being "HUMANE" and ALL AND LOVE DOING THE SAME "CAGING" THING TO OTHERS TOO RIGHT "JULIAN ASSANGE" ..? SO 'delusional' 'black-robed wearing SHITSTAIN LIPSHITS FAKE 'jew' freemasonic filthy butthole baby FATARY beYACHTch I HAVE GOT SOME NEWS FOR YOU SICKOS that NO SENTENCE WILL BE ISSUED BY YOUR COURT OR ANY COURT QUITE SOON WITHOUT YOU JUDGE YOU LAWYER YOU COP YOU COURT REPORTER YOU SOCIAL WORKER YOU COUNSELOR YOU DOCTOR YOU SHITBIRDS YOU 1/2 TRUTH YOU SILENT COMPLICIT THREATENING UNCARING PATHETIC APETHETIC SOULLESS 'law enFORCEment professionals' in GOOD 'standing' with the TRAITOROUS MI6/007/M16 WARMONGERING 2-FACED TONY BLAIR AND "W" AND DARTH VADER CHENEY AND SATANYAHU WAY YAHOO DUMBER THAN DUMB ... "I AM NOT KIDDING. YOU A BIG DUMMY ..!" ... "GET LOST DUMMY ..!" "FOR EVERY DUMMY THERE IS A DUMMY ..! DUMMY ..! DUMMY INCORPORATED ..! YOU BIG UGLY DUMMY ..! https://www.youtube.com/watch?v=moYdbNXBwvk ... "YOU BIG COLD-BLOODED DUMMY" ..! ... "the only reaSON I call you a DUMMY is beCAUSE I call 'THEM' as I 'see' 'them' DUMMY.' ... BEwARE 'THE HUNTER HAS BECOME THE HUNTED' ... BLUE MONSTERS EVIL SURROUNDS US ... TRUTH. ACCEPT NO IMITATION.
-
-DO NOT EVEN THINK ABOUT ... I AM TOO MUCH ..! https://www.youtube.com/watch?v=pSPECzpKn4U ... SWALLOW Swallow ... BREATHE DEEP ... SUCK IT UP Suck It Up suck it up SUQQ IT UP ... baby ... MY HUNGER KEEPS ON GROWING ... GOT TO GET "IT" SOMEWHERE ... I MEAN ... YOU NEVER KNOW ..! AND I MEAN MORE ... GONNA TAKE MORE FROM YOU ..! LETTER BY LETTER ..! TOO MUCH ..!
+... HATE FOR YOU TO GET A FUQQIN' BAD SUNBURN ..!7Q 'IN THE LAST YEAR ALONE WE HAVE BEEN HIT BY "DARKNESS" 365 TIMES' ... https://www.youtube.com/watch?v=NtfKU98WoN8 ... BUT THERE IS 1 GROUP WHO ARE NOT AFRAID ..! MONKEY SEE MONKEY DO ..! Monkey See Monkey Do ..! monQey see ..! monQey dQ do Do DO DO DO ..!
 
 I GOT MY PERSONALLY SIGNED COPY BEFORE THEY SOLD OUT ..! DID YOU ..?
 
@@ -24,6 +18,17 @@ THANK YOU Shannon Lee ... LOVE YOU I DO ... TRUTH I WILL TELL FOR YOU ... PROUD 
 ... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
 
 Bruce Lee
+
+
+NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
+
+WHAT IS GOOD ENOUGH FOR THE "GOOD" IS GOOD ENOUGH FOR THE 'gander' ... CARE TO TAKE A "GANDER" 'gander' ..! WORD.
+
+... soon ... you will 'see' ... no 'doctor' will give a 'prescription' to a 'patient' without THE DOCTOR ALSO GOING HOME TO LIVE WITH THAT 'patient's 'family' a LONG, Long, long while WHILE ALSO TAKING THAT SAME 'PRESCRIPTION' to 'MAKE REAL SURE THAT EVERYTHING IS GOING ALONG JUST FINE AND ALL WITH THEIR MOST PUREHEART MOST DESERVING MOST beLOVEd' 'patient' ... that's the new 1st line of your oath 'doc' ... still practicing 'medicine', 'dcc' ..?
+
+... also Quite sQQn ... you will 'hear' ... no judge will 'sentence' any 'real' 'criminal' 'MONSTER' RAPING CHILDREN to a 'cage' instead of MATTHEW 18:6 and LOVE being "HUMANE" and ALL AND LOVE DOING THE SAME "CAGING" THING TO OTHERS TOO RIGHT "JULIAN ASSANGE" ..? SO 'delusional' 'black-robed wearing SHITSTAIN LIPSHITS FAKE 'jew' freemasonic filthy butthole baby FATARY beYACHTch I HAVE GOT SOME NEWS FOR YOU SICKOS that NO SENTENCE WILL BE ISSUED BY YOUR COURT OR ANY COURT QUITE SOON WITHOUT YOU JUDGE YOU LAWYER YOU COP YOU COURT REPORTER YOU SOCIAL WORKER YOU COUNSELOR YOU DOCTOR YOU SHITBIRDS YOU 1/2 TRUTH YOU SILENT COMPLICIT THREATENING UNCARING PATHETIC APETHETIC SOULLESS 'law enFORCEment professionals' in GOOD 'standing' with the TRAITOROUS MI6/007/M16 WARMONGERING 2-FACED TONY BLAIR AND "W" AND DARTH VADER CHENEY AND SATANYAHU WAY YAHOO DUMBER THAN DUMB ... "I AM NOT KIDDING. YOU A BIG DUMMY ..!" ... "GET LOST DUMMY ..!" "FOR EVERY DUMMY THERE IS A DUMMY ..! DUMMY ..! DUMMY INCORPORATED ..! YOU BIG UGLY DUMMY ..! https://www.youtube.com/watch?v=moYdbNXBwvk ... "YOU BIG COLD-BLOODED DUMMY" ..! ... "the only reaSON I call you a DUMMY is beCAUSE I call 'THEM' as I 'see' 'them' DUMMY.' ... BEwARE 'THE HUNTER HAS BECOME THE HUNTED' ... BLUE MONSTERS EVIL SURROUNDS US ... TRUTH. ACCEPT NO IMITATION.
+
+DO NOT EVEN THINK ABOUT ... I AM TOO MUCH ..! https://www.youtube.com/watch?v=pSPECzpKn4U ... SWALLOW Swallow ... BREATHE DEEP ... SUCK IT UP Suck It Up suck it up SUQQ IT UP ... baby ... MY HUNGER KEEPS ON GROWING ... GOT TO GET "IT" SOMEWHERE ... I MEAN ... YOU NEVER KNOW ..! AND I MEAN MORE ... GONNA TAKE MORE FROM YOU ..! LETTER BY LETTER ..! TOO MUCH ..!
 
 BATTER UP ..! YOUNG GRASSHOPPER 'you' WOULD BE WISE TO REMEMBER ... YOU GET JUST 1 STRIKE BATTER ... NO FOUL TIPS ... NO BALLS JUST 1 PITCH AND YOU BETTER BE A HITTER ... SWING BATTER Batter batter swing batter ..!
 
@@ -47,7 +52,7 @@ LITERALLY WOMAN + CHILD = GOOD ... ancient Han knew her 'crossed legs' were so s
 
 GOOD K.I.D.s LIFT UP GOOD Q.I.D.s ... GOOD Knights In Development LIFT UP GOOD Queens In Development ... REAL FRIENDS TELL THE 100% TRUTH TO GET YOU TO HEAVEN.
 
-... OUT OF THE DARKNESS AND INTO THE LIGHT ... darkness ... Darkness ... DARKNESS ... surely 'darkness' you jest ... G_D WINS ... SPIRITUAL WARFARE ... WORD.
+I SAY AGAIN ..! OUT OF THE DARKNESS AND INTO THE LIGHT ... darkness ... Darkness ... DARKNESS ... surely 'darkness' you jest ... G_D WINS ... SPIRITUAL WARFARE ... WORD.
 
 I SAY AGAIN ..! REPEATBACKS ..! RepeatBacks ..! repeatbaQQs ..! GOT BE READY FOR "REAL THING" AT ANY TIME ..! PRACTICE YOUR REPEATBACKS NOW "SAILOR" ... "LEARN OUR COMMS" ... HATE FOR YOU TO GET A FUQQIN' BAD SUNBURN ..!7Q 'IN THE LAST YEAR ALONE WE HAVE BEEN HIT BY "DARKNESS" 365 TIMES' ... https://www.youtube.com/watch?v=NtfKU98WoN8 ... BUT THERE IS 1 GROUP WHO ARE NOT AFRAID ..! MONKEY SEE MONKEY DO ..! Monkey See Monkey Do ..! monQey see ..! monQey dQ do Do DO DO DO ..!
 
