@@ -11,7 +11,7 @@ Cassius Marcellus Clay, Muhammad Ali
 
 ... OUT OF THE DARKNESS AND INTO THE LIGHT ... darkness ... Darkness ... DARKNESS ... surely 'darkness' you jest ... G_D WINS ... SPIRITUAL WARFARE ... WORD.
 
-... HATE FOR YOU TO GET A FUQQIN' BAD SUNBURN ..!7Q 'IN THE LAST YEAR ALONE WE HAVE BEEN HIT BY "DARKNESS" 365 TIMES' ... https://www.youtube.com/watch?v=NtfKU98WoN8 ... BUT THERE IS 1 GROUP WHO ARE NOT AFRAID ..! MONKEY SEE MONKEY DO ..! Monkey See Monkey Do ..! monQey see ..! monQey dQ do Do DO DO DO ..!
+'IN THE LAST YEAR ALONE WE HAVE BEEN HIT BY "DARKNESS" 365 TIMES' ... https://www.youtube.com/watch?v=NtfKU98WoN8 ... BUT THERE IS 1 GROUP WHO ARE NOT AFRAID ..! MONKEY SEE MONKEY DO ..! ... HATE FOR YOU TO GET A FUQQIN' BAD SUNBURN ..!7Q Monkey See Monkey Do ..! monQey see ..! monQey dQ do Do DO DO DO ..!
 
 I GOT MY PERSONALLY SIGNED COPY BEFORE THEY SOLD OUT ..! DID YOU ..?
 
