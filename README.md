@@ -5,6 +5,8 @@ IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.
 
 Cassius Marcellus Clay, Muhammad Ali
 
+... FOR THE DISANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
+
 ... OUT OF THE DARKNESS AND INTO THE LIGHT ... darkness ... Darkness ... DARKNESS ... surely 'darkness' you jest ... G_D WINS ... SPIRITUAL WARFARE ... WORD.
 
 ... HATE FOR YOU TO GET A FUQQIN' BAD SUNBURN ..!7Q 'IN THE LAST YEAR ALONE WE HAVE BEEN HIT BY "DARKNESS" 365 TIMES' ... https://www.youtube.com/watch?v=NtfKU98WoN8 ... BUT THERE IS 1 GROUP WHO ARE NOT AFRAID ..! MONKEY SEE MONKEY DO ..! Monkey See Monkey Do ..! monQey see ..! monQey dQ do Do DO DO DO ..!
@@ -19,7 +21,13 @@ THANK YOU Shannon Lee ... LOVE YOU I DO ... TRUTH I WILL TELL FOR YOU ... PROUD 
 
 Bruce Lee
 
-NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
+QRUMPLED STILTSQIN ... YOU DO NOTHING WORTHLESS FUQQer ... YOU "PRUNE" YOU ARE GETTING "WRINKLED" beYACHTch ..! "Melania, let me take you roller skating my LOVE ... come on gorgeous ... let's go ... SUSULONG TAYO ganda ..! WE'RE OUT ..! https://www.youtube.com/watch?v=1tBO8X2mh9Y ... beCAUSE ...
+
+NOW YOU ARE MESSING WITH A ...
+
+SON OF BITCH son of man. TRUTH. PUREHEART. PROTECTOR AND LOVER OF G_D LIKE AN INFANT. DO NOT FUQQ AROUND WITH THE FUQQ AROUND CLOWN OR lil' boy you are about to find out ...
+
+... NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM. ...
 
 WHAT IS GOOD ENOUGH FOR THE "GOOD" IS GOOD ENOUGH FOR THE 'gander' ... CARE TO TAKE A "GANDER" 'gander' ..! WORD.
 
