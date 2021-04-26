@@ -11,6 +11,10 @@ NADARANG ..! https://www.youtube.com/watch?v=iPoj2vSIIlM ... sing for me ANGEL A
 
 'IN THE LAST YEAR ALONE WE HAVE BEEN HIT BY "DARKNESS" 365 TIMES' ... https://www.youtube.com/watch?v=NtfKU98WoN8 ... BUT THERE IS 1 GROUP WHO ARE NOT AFRAID ..!
 
+QRUMPLED STILTSQIN ... I HOPE  YOU ARE READY lil' boy beCAUSE ... your 1/2 TRUTH just met 100% NOLYN TRUTH ..! I AM TRUTH ..! NOT you Qrumpled StiltsQin ... SAY MY NAME ..! TRUTH ..! WHAT's MY NAME ..? TRUTH ..! NOW YOU ARE MESSING WITH A SON OF BITCH ..! http://www.youtube.com/watch?v=1tBO8X2mh9Y YOU SHOULD HAVE BEEN "HOT" OR "COLD" but beCAUSE YOU IGNORE ME choosing neither YES HOT I LOVE YOU TRUTH or NO COLD I HATE YOU TRUTH and instead you simply DO NOT CARE you IGNORE me you APETHETIC PATHETIC PIECE OF SHIT ... https://www.youtube.com/results?search_query=a+zit+get+it ... "YOU" "KNOW" what I AM getting at, RIGHT ..? 
+
+NOW YOU ARE MESSIN' WITH A SON OF BITCH ..!
+
 "THE NEGROES TOOK OUR DATES ..!" https://www.youtube.com/watch?v=js4aeH47pGw&t=98 ... WHOOLY BULLY WHQQLY BOOLY ... LAY IT DOWN ..! WE'RE OUT ..!
 
 MOM MAKE HIM STOP ..! NO I WILL NEVER STOP ..! DAD PLEASE MAKE HIM STOP ..! NO I WILL NEVER EVER Ever ever stop EVER ..! PLEASE SOMEONE MAKE HIM STOP Make Him Stop make him stop ..! NO I WILL NEVER STOP ..! EVER.
