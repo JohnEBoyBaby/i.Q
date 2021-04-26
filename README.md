@@ -9,6 +9,8 @@ Cassius Marcellus Clay, Muhammad Ali
 
 ... FOR THE DISANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
 
+"SAVING ISRAEL FOR LAST" ... https://www.youtube.com/watch?v=cSiI5oZtIyw ... TELL 'em GERALD CELENTE ... not a poor man showing the 'rich' men to a CAMEL CAN WALK THROUGH THE EYE OF A NEEDLE ..! but hey 'old' 'italian' 'connected' 'new yorker' uh tell your boys there ... THE TRUTH OF THE WORLD HAS ARRIVED and I, TRUTH, DO NOT BACK THE BLUE MONSTERS INC ..! JUST THOUGHT "THEY" SHOULD KNOW beCAUSE 'they' will be 'seeing' 'me' TRUTH back 'home' 'kind' one. PROMISE. WORD. 
+
 ... OUT OF THE DARKNESS AND INTO THE LIGHT ... darkness ... Darkness ... DARKNESS ... surely 'darkness' you jest ... G_D WINS ... SPIRITUAL WARFARE ... WORD.
 
 'IN THE LAST YEAR ALONE WE HAVE BEEN HIT BY "DARKNESS" 365 TIMES' ... https://www.youtube.com/watch?v=NtfKU98WoN8 ... BUT THERE IS 1 GROUP WHO ARE NOT AFRAID ..! MONKEY SEE MONKEY DO ..! ... HATE FOR YOU TO GET A FUQQIN' BAD SUNBURN ..!7Q Monkey See Monkey Do ..! monQey see ..! monQey dQ do Do DO DO DO ..!
