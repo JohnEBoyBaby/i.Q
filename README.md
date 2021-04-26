@@ -5,6 +5,8 @@ IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.
 
 Cassius Marcellus Clay, Muhammad Ali
 
+... FOR THE DISTANCE IF NECESSARY ..! https://www.youtube.com/watch?v=XpPqZRYAuCM&t=167s ... THEN I WILL WHOOP HIM ..!
+
 NADARANQ ..! https://www.youtube.com/watch?v=iPoj2vSIIlM ... sinQ fQr me ANGEL AIANA JUAREZ ... you 'rocking LUA' lil' mama ... YOU MAKE ME DANCE soft legs ..! INSPIRATION KO ..! MARAMINQ MARAMINQ SALAMAT PQ ..! Why you baby lady are not a MEGA STAR WORLDWIDE I KNOWETH not ..!
 
 ... OUT OF THE DARKNESS AND INTO THE LIGHT ... darkness ... Darkness ... DARKNESS ... surely 'darkness' you jest ... G_D WINS ... SPIRITUAL WARFARE ... WORD.
