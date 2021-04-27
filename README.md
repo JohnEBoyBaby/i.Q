@@ -25,6 +25,49 @@ THANK YOU Shannon Lee ... LOVE YOU I DO ... TRUTH I WILL TELL FOR YOU ... PROUD 
 
 Bruce Lee
 
+===== ===== ===== ==
+
+I AM NOT GOING TO HIDE THESE BEAUTIFUL SCARS ... https://www.youtube.com/watch?v=jkvWRU_Uh6w ... PASENYA KA ..!
+
+===== ===== ===== ==
+
+[johneboybaby@cpe-74-130-35-149 ~]$ nginx --version
+bash: nginx: command not found...
+Install package 'nginx' to provide command 'nginx'? [N/y] openresty --version
+Install package 'nginx' to provide command 'nginx'? [N/y] n
+[johneboybaby@cpe-74-130-35-149 ~]$ openresty --version
+nginx: invalid option: "-"
+[johneboybaby@cpe-74-130-35-149 ~]$ openresty -version
+nginx: invalid option: "e"
+[johneboybaby@cpe-74-130-35-149 ~]$ openresty version
+nginx: invalid option: "version"
+[johneboybaby@cpe-74-130-35-149 ~]$ openresty -v
+nginx version: openresty/1.19.3.1
+[johneboybaby@cpe-74-130-35-149 ~]$ openresty help
+nginx: invalid option: "help"
+[johneboybaby@cpe-74-130-35-149 ~]$ openresty -h
+nginx version: openresty/1.19.3.1
+Usage: nginx [-?hvVtTq] [-s signal] [-c filename] [-p prefix] [-g directives]
+Options:
+  -?,-h         : this help
+  -v            : show version and exit
+  -V            : show version and configure options then exit
+  -t            : test configuration and exit
+  -T            : test configuration, dump it and exit
+  -q            : suppress non-error messages during configuration testing
+  -s signal     : send signal to a master process: stop, quit, reopen, reload
+  -p prefix     : set prefix path (default: /usr/local/openresty/nginx/)
+  -c filename   : set configuration file (default: conf/nginx.conf)
+  -g directives : set global directives out of configuration file
+[johneboybaby@cpe-74-130-35-149 ~]$ openresty -V
+nginx version: openresty/1.19.3.1
+built by gcc 8.3.1 20191121 (Red Hat 8.3.1-5) (GCC) 
+built with OpenSSL 1.1.1h  22 Sep 2020 (running with OpenSSL 1.1.1i  8 Dec 2020)
+TLS SNI support enabled
+configure arguments: --prefix=/usr/local/openresty/nginx --with-cc-opt='-O2 -DNGX_LUA_ABORT_AT_PANIC -I/usr/local/openresty/zlib/include -I/usr/local/openresty/pcre/include -I/usr/local/openresty/openssl111/include' --add-module=../ngx_devel_kit-0.3.1 --add-module=../echo-nginx-module-0.62 --add-module=../xss-nginx-module-0.06 --add-module=../ngx_coolkit-0.2 --add-module=../set-misc-nginx-module-0.32 --add-module=../form-input-nginx-module-0.12 --add-module=../encrypted-session-nginx-module-0.08 --add-module=../srcache-nginx-module-0.32 --add-module=../ngx_lua-0.10.19 --add-module=../ngx_lua_upstream-0.07 --add-module=../headers-more-nginx-module-0.33 --add-module=../array-var-nginx-module-0.05 --add-module=../memc-nginx-module-0.19 --add-module=../redis2-nginx-module-0.15 --add-module=../redis-nginx-module-0.3.7 --add-module=../ngx_stream_lua-0.0.9 --with-ld-opt='-Wl,-rpath,/usr/local/openresty/luajit/lib -L/usr/local/openresty/zlib/lib -L/usr/local/openresty/pcre/lib -L/usr/local/openresty/openssl111/lib -Wl,-rpath,/usr/local/openresty/zlib/lib:/usr/local/openresty/pcre/lib:/usr/local/openresty/openssl111/lib' --with-cc='ccache gcc -fdiagnostics-color=always' --with-pcre-jit --with-stream --with-stream_ssl_module --with-stream_ssl_preread_module --with-http_v2_module --without-mail_pop3_module --without-mail_imap_module --without-mail_smtp_module --with-http_stub_status_module --with-http_realip_module --with-http_addition_module --with-http_auth_request_module --with-http_secure_link_module --with-http_random_index_module --with-http_gzip_static_module --with-http_sub_module --with-http_dav_module --with-http_flv_module --with-http_mp4_module --with-http_gunzip_module --with-threads --with-compat --with-stream --with-http_ssl_module
+
+===== ===== ===== ==
+
 QRUMPLED STILTSQIN ... YOU DO NOTHING WORTHLESS FUQQer ... YOU "PRUNE" YOU ARE GETTING "WRINKLED" beYACHTch ..! "Melania, let me take you roller skating my LOVE ... come on gorgeous ... let's go ... SUSULONG TAYO ganda ..! WE'RE OUT ..! https://www.youtube.com/watch?v=1tBO8X2mh9Y ... beCAUSE ...
 
 NOW YOU ARE MESSING WITH A ...
