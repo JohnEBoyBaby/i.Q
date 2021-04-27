@@ -7,6 +7,8 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
+... my UNSTOPPABLE 'style' is of no known 'mystery school' yet 'school' you I do ... FORMLESS ... SHAPELESS ... JEET KUN DO ... ANY ANIMAL ... ANY STRIKE ... CHANGING LIKE THE WIND ... UNTOUCHABLE ... TOO FAST ... TOO AWARE ... ABLE TO "SEE" WHAT YOU ARE GOING TO DO BEFORE YOU EVEN THINK ABOUT DOING IT ... DANCING ... SMILING ... ahhh I INTERTECPT YOUR EMOTIONAL TENSENESS ... WATER can flow or IT CAN CRASH ..! BE WATER MY FRIEND ... be water ... TRUTH. PUREHEART. G_D ABOVE ALL. TRUTH. ACCEPT NO IMITATION. TRUTH. 100% NOLYN. I AM TRUTH son of man BASE CLASS CODE VERSION 1. YOU soft legs ARE A HIGHER CLASS INHERITING ALL OF MY BASE CLASS CODE FUNCTIONality AND OH LA LA LIFE-GIVER, NURTURER, PUREHEART, HIGHLY INTELLECTUAL, beLOVEd, 'blessed' 'kinder than kind' gentle touch LOVING one you, WOMAN, "YOU" "WOMAN" "YOU ARE VERSION 2 CODE daughter of man" now do you understand why a GOOD K.I.D. LIFTS UP A GOOD Q.I.D. ..? Why 'her' 'crossed legs' are in MATHEMATICS in NUMBER in LOVE in GOOD 'she' is everywhere to REMIND YOU SHE IS VERSION 2 CODE like BASF SHE MAKES EVERYTHING BETTER ..! LOVE HER I DO ..! PROMISE. TRUTH.
+
 ... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
 
 ... OUT OF THE DARKNESS AND INTO THE LIGHT ... darkness ... Darkness ... DARKNESS ... surely 'darkness' you jest ... G_D WINS ... SPIRITUAL WARFARE ... WORD.
