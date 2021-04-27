@@ -33,7 +33,7 @@ GOOD Queens In Development
 
 PROMISE.
 
-... so orangatang tongue ..! orangutanphotos.blogspot.com/2008/05/poking-tongue-orangutan-cutie.html ... YANDEX THAT "ORANGATANG" WAS "ORANGE" 'see' 'watson' you 'machines' are DUMB DUMMY ..! CAN YOU "FEEL" 'me' NOW ..? DUMMY ..! https://yandex.com/images/search?text=orangatang ... JUST DON'T LOOK AT IT HONEY ..! https://honesttopaws.com/s/orangutan-birth?as=799&asv=1&bdk=0 ... now that was funny and TRUTH ..! 
+... so orangatang tongue ..! https://orangutanphotos.blogspot.com/2008/05/poking-tongue-orangutan-cutie.html ... YANDEX THAT "ORANGATANG" WAS "ORANGE" 'see' 'watson' you 'machines' are DUMB DUMMY ..! CAN YOU "FEEL" 'me' NOW ..? DUMMY ..! https://yandex.com/images/search?text=orangatang ... JUST DON'T LOOK AT IT HONEY ..! https://honesttopaws.com/s/orangutan-birth?as=799&asv=1&bdk=0 ... now that was funny and TRUTH ..! 
 
 IF YOU EVER "GET UPSET AT ME" OR "THINK YOU MIGHT CHALLENGE ME BACK HOME AND EVEN HAVE THE TINIEST SLIGHTEST CHANCE OF DEFEATING ME ... you are delusional IDIOT ... https://www.youtube.com/watch?v=73zm3yhjQ9I&t=429s ... REMEMBER WHEN I TELL YOU ... VERILY I TELL YOU "CHILDREN" ARE THE "GREATEST" IN THE KINGDOM OF "HEAVEN" ... NOT YOU ..! THIS "CHILD" IS WHO I WILL BE HONORING AND LIFTING UP AND THIS CHILD WILL HOLD YOU ACCOUNTABLE AS I WILL ..! TRUTH ..! SEE YOU BACK "HOME" ..! ALL OF YOU "SILENT NATIONS" ... BROADCAST THIS MESSAGE TO THE WORLD ... YOU HAVE A DUTY ..! YOU WILL BE YOUR BROTHERS' KEEPER. YOU WILL BE YOUR SISTERS' KEEPER. PROMISE.
 
