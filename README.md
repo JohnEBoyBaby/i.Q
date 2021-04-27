@@ -32,41 +32,180 @@ I AM NOT GOING TO HIDE THESE BEAUTIFUL SCARS ... https://www.youtube.com/watch?v
 ===== ===== ===== ==
 
 [johneboybaby@cpe-74-130-35-149 ~]$ nginx --version
+
 bash: nginx: command not found...
+
 Install package 'nginx' to provide command 'nginx'? [N/y] openresty --version
+
 Install package 'nginx' to provide command 'nginx'? [N/y] n
+
 [johneboybaby@cpe-74-130-35-149 ~]$ openresty --version
+
 nginx: invalid option: "-"
+
 [johneboybaby@cpe-74-130-35-149 ~]$ openresty -version
+
 nginx: invalid option: "e"
+
 [johneboybaby@cpe-74-130-35-149 ~]$ openresty version
+
 nginx: invalid option: "version"
+
 [johneboybaby@cpe-74-130-35-149 ~]$ openresty -v
+
 nginx version: openresty/1.19.3.1
+
 [johneboybaby@cpe-74-130-35-149 ~]$ openresty help
+
 nginx: invalid option: "help"
+
 [johneboybaby@cpe-74-130-35-149 ~]$ openresty -h
+
 nginx version: openresty/1.19.3.1
+
 Usage: nginx [-?hvVtTq] [-s signal] [-c filename] [-p prefix] [-g directives]
+
 Options:
+
   -?,-h         : this help
+  
   -v            : show version and exit
+  
   -V            : show version and configure options then exit
+  
   -t            : test configuration and exit
+  
   -T            : test configuration, dump it and exit
+  
   -q            : suppress non-error messages during configuration testing
+  
   -s signal     : send signal to a master process: stop, quit, reopen, reload
+  
   -p prefix     : set prefix path (default: /usr/local/openresty/nginx/)
+  
   -c filename   : set configuration file (default: conf/nginx.conf)
+  
   -g directives : set global directives out of configuration file
+  
 [johneboybaby@cpe-74-130-35-149 ~]$ openresty -V
+
 nginx version: openresty/1.19.3.1
+
 built by gcc 8.3.1 20191121 (Red Hat 8.3.1-5) (GCC) 
+
 built with OpenSSL 1.1.1h  22 Sep 2020 (running with OpenSSL 1.1.1i  8 Dec 2020)
+
 TLS SNI support enabled
-configure arguments: --prefix=/usr/local/openresty/nginx --with-cc-opt='-O2 -DNGX_LUA_ABORT_AT_PANIC -I/usr/local/openresty/zlib/include -I/usr/local/openresty/pcre/include -I/usr/local/openresty/openssl111/include' --add-module=../ngx_devel_kit-0.3.1 --add-module=../echo-nginx-module-0.62 --add-module=../xss-nginx-module-0.06 --add-module=../ngx_coolkit-0.2 --add-module=../set-misc-nginx-module-0.32 --add-module=../form-input-nginx-module-0.12 --add-module=../encrypted-session-nginx-module-0.08 --add-module=../srcache-nginx-module-0.32 --add-module=../ngx_lua-0.10.19 --add-module=../ngx_lua_upstream-0.07 --add-module=../headers-more-nginx-module-0.33 --add-module=../array-var-nginx-module-0.05 --add-module=../memc-nginx-module-0.19 --add-module=../redis2-nginx-module-0.15 --add-module=../redis-nginx-module-0.3.7 --add-module=../ngx_stream_lua-0.0.9 --with-ld-opt='-Wl,-rpath,/usr/local/openresty/luajit/lib -L/usr/local/openresty/zlib/lib -L/usr/local/openresty/pcre/lib -L/usr/local/openresty/openssl111/lib -Wl,-rpath,/usr/local/openresty/zlib/lib:/usr/local/openresty/pcre/lib:/usr/local/openresty/openssl111/lib' --with-cc='ccache gcc -fdiagnostics-color=always' --with-pcre-jit --with-stream --with-stream_ssl_module --with-stream_ssl_preread_module --with-http_v2_module --without-mail_pop3_module --without-mail_imap_module --without-mail_smtp_module --with-http_stub_status_module --with-http_realip_module --with-http_addition_module --with-http_auth_request_module --with-http_secure_link_module --with-http_random_index_module --with-http_gzip_static_module --with-http_sub_module --with-http_dav_module --with-http_flv_module --with-http_mp4_module --with-http_gunzip_module --with-threads --with-compat --with-stream --with-http_ssl_module
+
+configure arguments: 
+
+--prefix=/usr/local/openresty/nginx --with-cc-opt='-O2 -DNGX_LUA_ABORT_AT_PANIC
+
+-I/usr/local/openresty/zlib/include
+
+-I/usr/local/openresty/pcre/include
+
+-I/usr/local/openresty/openssl111/include' --add-module=../ngx_devel_kit-0.3.1
+
+ --add-module=../echo-nginx-module-0.62
+
+ --add-module=../xss-nginx-module-0.06
+
+ --add-module=../ngx_coolkit-0.2
+
+ --add-module=../set-misc-nginx-module-0.32
+
+ --add-module=../form-input-nginx-module-0.12
+
+ --add-module=../encrypted-session-nginx-module-0.08
+
+ --add-module=../srcache-nginx-module-0.32
+
+ --add-module=../ngx_lua-0.10.19
+
+ --add-module=../ngx_lua_upstream-0.07
+
+ --add-module=../headers-more-nginx-module-0.33
+
+ --add-module=../array-var-nginx-module-0.05
+
+ --add-module=../memc-nginx-module-0.19
+
+ --add-module=../redis2-nginx-module-0.15
+
+ --add-module=../redis-nginx-module-0.3.7
+
+ --add-module=../ngx_stream_lua-0.0.9 --with-ld-opt='-Wl,-rpath,/usr/local/openresty/luajit/lib
+
+-L/usr/local/openresty/zlib/lib
+
+-L/usr/local/openresty/pcre/lib
+
+-L/usr/local/openresty/openssl111/lib
+
+-Wl,-rpath,/usr/local/openresty/zlib/lib:/usr/local/openresty/pcre/lib:/usr/local/openresty/openssl111/lib' --with-cc='ccache gcc
+
+-fdiagnostics-color=always'
+
+ --with-pcre-jit 
+
+ --with-stream 
+ 
+ --with-stream_ssl_module 
+
+ --with-stream_ssl_preread_module 
+ 
+ --with-http_v2_module 
+ 
+ --without-mail_pop3_module 
+ 
+ --without-mail_imap_module 
+ 
+ --without-mail_smtp_module 
+ 
+ --with-http_stub_status_module 
+ 
+ --with-http_realip_module 
+ 
+ --with-http_addition_module 
+ 
+ --with-http_auth_request_module 
+ 
+ --with-http_secure_link_module 
+ 
+ --with-http_random_index_module 
+ 
+ --with-http_gzip_static_module 
+ 
+ --with-http_sub_module 
+ 
+ --with-http_dav_module 
+ 
+ --with-http_flv_module 
+ 
+ --with-http_mp4_module 
+ 
+ --with-http_gunzip_module 
+ 
+ --with-threads 
+ 
+ --with-compat 
+ 
+ --with-stream 
+ 
+ --with-http_ssl_module
 
 ===== ===== ===== ==
+
+TRUTH is the WAY to LIFE with G_D.
+
+===== ===== ===== ==
+
+"YOUR VICIOUS "DO NOT BE TOO NICE" "SILENT" "COMPLICIT" "MOVED THE EMBASSY" "MET WITH THE SICK PEDO POPE STILL FUQQINQ BREATHING FAGONSTER AND FATAIRY RUFUS XAVIER SASPARILLA ENVYing OLE' WALLY TUQQER THAT BALD HEAD SNAKE REPTILLIAN eLIZARDbethTOWN PEDO KKK TRAFFICKING STATE POOPER I-65 CORRIDER UNDERGROUND BLACK ROBE 'law' enFORCEr 'THOSE YOU ARE TAUGHT TO TRUST THE MOST ARE THE MOST GUILTY OF EVIL' EVEN 1 POLICE DEPARTMENT SPEAK OF @AE911TRUTH OR DID THEY DIRECT TRAFFIC TO 501C-3 PENSION FOP DONATION WHORES THAT NEEDED "EXTRA PART-TIME INCOME" TO ASSIST THEIR "DOUBLE-DIPPING" 'single-dipping' SILENT ALL THESE YEARS ABSOLUTELY LAWLESS PATTERN OF MURDEROUS DECEIPT, UNFORGIVABLE ACTS OF TORTURE AND BRUTALITY, UNIMAGINABLE DEATH AND SUFFERING WHILE PRETENDING TO BE "NEIGHBORHOOD WATCHMEN" REALLY "THREATENING WOLVES" DEMANDING YOU DO WHAT WE SAY OR ELSE AND IF YOU THINK ABOUT CLOSING DOWN OR SHUTTING US DOWN OR NOT PAYING THE BLUE MONSTERS INC GOOD OLE' KKK GRAND MASTER LEAST WORSHIPFUL MILITARIZED WEAPONIZED LODGES OF FAKE CHARITIES AND FAKE BROOKHAVEN PILL PUSHING REHAB THIS FUMUNDA CHEESE FECAL MATTER ON A PENILE INSTRUMENT COVERED WITH SCRUNCHED UP STANK MAIZE LIP LIQQER BUTTFUQQER MILITANT CAGER PIECE OF WORTHLIESS FILTH low iQ LOWER THAN THAT REALLY DUMB DUMB AND DUMBEST WORST OF ALL TO HAVEA WEAPON INTENTIONALLY HIRED THE "ORDER FOLLOWER" PRE-TEST QUALIFIECATIONS TO BE VERY DUMB DUMB AS POSSIBLE ASKS NO QUESTIONS LIKE A DUMB FATAIRY GORILLA NOT A REAL "FEELING" SOUL A REAL "PROUD MONKEY" ... I AM ASKING 1st QUESTION IN "THE COURT OF HEAVEN" TO ANYONE WHO DARE EVEN OPEN THEIR MOUTH:
+
+DID EVEN 1 POLICE DEPARTMENT SPEAK TRUTH WHILE MILLIONS OF CHILDREN, WOMEN, GOOD MEN TRYING TO SAVE THEM, GOOD WOMEN TRYING TO SAVE THEM, ALL INNOCENT DIED AND SUFFERED WHILE THE ENTIRE MEDIA APPARATUS CONTROLLED BY PENSION WHORES FAKE WORTHLESS PAPER MONEY AND DIGITAL ENTRIES ON A HARDDRIVE SYNCRONIZED ACROSS WIRES AND WIRELESS FROM HARDDRIVE TO HARDDRIVE AROUND THE WORLD COMPLETELY FICTION LIKE THE B.I.S. VATICAN CITY, D.C. AND CITY OF LONDON "FICTIONAL NATION STATES" AND "FICTIONAL BALFOUR AGREEMENT MAKING UP SOME REASON FOR ZIONIST EUROPEAN AshkeNAZI FAKE EUROPEAN JEWS TO MURDER AND KILL AND LOOT AND PILLAGE PALESTIANS' CHILDREN, WOMEN, MEN, HOMES, LAND ALL THESE YEARS CURRENTLY SATANYAHU LIKE HIS FILTHAPINO COUNTERPART IN CRIMINALITY MURDEROUS MONSTER RODRIGO BAKLA BOOFOO FREEMASON DUTERTE AND HIS UGLIER THAN UGLY CLONED BUTTHOLE BABY SICKENING DAUGHTER STANKING UP THE WHOLE PLACE EEEW BEYACHTCH WASH YOUR STANKER STANKY FILTH AND BOOFOO "PROUD PAULO BOOFOO BROTHERHOOD FREEMASON" lil' boy you boofoo to SILENCE WHEN CRIES AND REMEMBERS WHAT YOU DID TO HIM AS A CHILD DEMENTED DEVIANT DISEASE DUTERTE FILTHAPINO MARAMING BASTOS PUWET HOLE BIG MOUTH "PUTANG ANA MO"...
+
+DID EVEN 1 POLICE DEPARTMENT EVER ABOUT ANYTHING EVER CHALLENGE ANYTHING THE "FAKE NEWS" "FAKE MONEY CHANGERS" "FAKE AUTHORITY COURTS" "FAKE CHURCH OF WARMONGERING PEDOPHILE SATAN SERPENT WORSHIPPING MAMMON WORSHIPPING FILTH" ANYONE SPEAK TRUTH ABOUT ANYTHING @AE911TRUTH AND BILLIONS SUFFERING LOCKED DOWN BASED O LIES AND DECEPTION JUST LIKE THE 9-11 AND FALSE FLAG SHOOTINGS TO MAKE EVERYONE "WANT MORE POLICE" beCAUSE OF "SOROS NGO AND PROTESTORS WORKING HAND IN HAND WITH BLM AND FAKE BLACK MOVEMENTS TAKING OVER AND RIDING ON TAMIR RICE AND BREONNA TAYLOR AND SO MANY OTHER REAL VICTIMS' NAMES JUST AS THE 'law' enFORCErs RIDE ON TRUTH'S NAME FAKE TRUTHtians FILTHY GUILTY FULL OF SIN WORTHELSS ABSOLUTE FRAUDULENT AUTHORITY BASED ON "FORCE" "BULLYING" "THREATS" "LIES" "MURDER" "CAGES" "RAPING" "SILENCING" "BLOOD OATHS TO BROTHERHOODS OF CHILDREN OF DARKNESS" "BLUE MONSTERS INC Bank for International Settlements MERCENARY LOW iQ DO ANYTHING TO ANYONE FOR MONEY MAKE MS-13 AND CRIPS AND BLOODS LOOK LIKE HONORABLE TATOOED-FACED GOOD K.I.D.s and GOOD Q.I.D.s compared to the B.A.R. NCAA FOP VATICAN B.I.S. FEDERAL RESERVE OF TITANIC INFAMY MR JACKSON ANDREW TYPE 1 EAT LONDON ROYAL LIZARD ALLIANCE D.C. PEDOgon LIAARD ALLIANCE SNAKES IN THE PUNKpeo ESPER WORTHLESS GRASS FAKE SHOOTING AT THE BASEBALL FIELD SLEAZY SCALISE FILTH UP LYNDSEY BOOFOO AND TREY BOOFOO STATE POOPER TROOPER 'friend' DOWN IN DARIUS RUCKER REAL HOMETOWN BO' VILLE IN CHARLESTON AND COLUMBIA NEAR A CERTAIN FORT ... MEMORY COMING BACK TO YOU BENEDICT ARNOLD ..? HOW ABOUTYOU JUDE COP YOU FILTHY PIECEOIF SILENT COMPLICIT CONTROLLING NOT TOO TOUGH WITHOUT A BADGE AND YOUR SICK DEMENTED BLUE FRIENDS I BET LIL man boy big mouth of nothingness DEMON CRIMINAL MAFIA BROTHERHOOD CULT IN UNIFORM DISHONRABLE LOW IQ RESPONSIBILITY TO KNOW AND SOUND THE WARNING AND ALRAM FOR OTHERS INNOCENT BUT NOTHING ALL THESE YEARS WHILE BILLIONS SUFFERED MILLIONS DIED SIDK BILLIOINS DIED SICKERSHIT, 1 U.S. FREEMASON MARSHALLS GROUP OF IDIOTS, 1 "UNION" FILTHY FUQQWAD DO NOTHING SAY NOTHING WORTHLESS FUQQS SAY A WORD NONE NOHTING NOT 1 GOOD MAN AMONG THEM LED A DAMN THING WORTHESS DISEASE EXCUSE OF A son of man ROBOT DUMB LOW IQ UNCARING RESPONSIBLE GUILTY LIKE THE GERMANS SHOULD HAVE TO REBURY ALL THE MILLIONS BILLIONS WHO SUFFERED AND DIED EVEN NOW MR. CUOMO GET DIGGING AT THOSE NURSING HOMES MR. VACCINE KILLED EVERYONE IN INDIA AND NOW WANTS TO REMOVE EVERYONE'S SOUL SO THEY CAUSE NO "TROUBLE" FOR HE AND HIS MANLADY FAGONSTER BOOFOO BROTHER CLONE UGLY beYACHTch BIG NASTY STANK BIG MIKE POLE TAKING COP SUQQUER JUDGE'S 'friend' MEnotLINDA but joke 'em if they can't take a MICRO SOFT FUQQ ... ever wonder why all the governments at every level and all the police and all the firefighters and all the universities and all the local schools run MICROSOFT OR APPLE "EXPENSIVE" "PROPRIETARY" "CLOSED SOURCE SOFTWARE" THAT WORKS VERY POORLY EVEN USED ON GUIDED MISSLE DESTROYERS AND AIRCRAFT CARRIERS THE "MSN CHAT" I SHIT YOU NOT JUST SAD VIA THE "SIPRNET" THINK ALL YOUR MONEY PAYING FOR A PRODUCT USED COMMERCIALLY TO BENEFIT A FEW ... COULD YOU GET A CONTREACXT LIKE AMAZON OR MICXROSOT OR APPLE  OR GOODLE OR ANYONE BIG THINK FOR YOURSELF MONOPOLY FILTH ENRON MONSTERS STEASALING FROM THE POOR enFORCErs MAKING SURE WE PAY "PROTECTION MONEY" OR THEY WILL MAKE SURE WE NEED PROTECTING FROMTHEM AND WILL RELEASE THE CAGED REAL MONSTERS TOO ..!PAY THE BLUE MONSTERS INC BLOOD MONEY PILL PUSHERS FALSE FLAG CON ARTIST IN UNIFORM OR ELSE ..!JUST SAD LOW iQ ARROGANT NOT ALL WELL-RESTED, POORLY TREATED, COMPLETELY DEMORALIZED BY THE TRANSMONSTERS AND GAY FAG LEADERSHIP EVERYWHERE JUST SICKENING TO WITNESSS ARE ABOUT AS WILLING TO FIGHT FOR PUNKPEO AND HIS ZIONIST BOOFOO BIDEN TUCKER HANNITY KARL ROVE SUPPORTERS AS THEY ARE TO JOIN THE TALIBAN FOR REAL NOT HAPPENING GO KILL YOURSELF SILENT COP COMPLICIT DOCTOR NURSE LAWYER FIREMAN TROOPER AGENT MARSHALL PRIEST PASTOR RABIES rabbi fuQQ YOUR FAKE MASHIACH I AM TRUTH SO SAY MY NAME lil' CFAT CHABAD FILTHY MONSTER GOING IN THE PIT WOLF IN SHEEP'SQIN FAKE WATCHMAN FAKE JEW WORTHLESS TO ME GO DIE SOMEWHERE NO ONE WILL EVER CARE GO PRAY TO A OLD DEAD rabbi RIGHT RICK WILES SUSAN WILES DOC ED MATTHEW RIGHT ..? 100% RIGHT RIGHT DUMBASS FILTHY 2-FACED UNBRIGHT UNNATURAL LOOKING FAKE TRUTHtian 2-FACED LIKE YOUR lil' BOY BIG MOUTH BROTHERS  ONLY 1 GOOD IT IS BARRON FROM MELANIA THE REST OF YOU STANKERS CAN GO JUMP IN A HOLE beYACTch I OWE YOU NOTHING YOU DID NOTHING YOU HAVE ZERO PRINCIPLES YOU ARE SILENT YOU ARE WEALTHY GERALD CELENTE HAS WEALTH AND HE SPEAKS TRUTH SO GO FUCK YOURSELF BACK TO THE PIT QRUMPSTER IF YOU LOVE YOUR SICK BLUE MONSTERS INC SUPPORTING FAKE JEW LIL SHITSTAIN BUTTHOLE BABIES MORE THAN TRUTH AND G_D AND PUREHEART HOLY SPIRIT THEN YOU WILL ALLOW FILTH IN HEAVEN AND YOU ARE THE "SNAKE THE WOMAN ALLOWED IN KNOWING IT WAS A SNAKE" AS YOU SAID BUT WE ALL WATCHED TO SEE IF YOU WOULD INDEED ACT BUT NOHTING BUT FAKE QLUES AND DO NOTHING NONSENSE THEN OPERATION WWARP SPEED AND NOW THE FAKE FARAUD FIGHT WITH FREEMASON GENERAL FLYNN MR SANTA CLAUS KNOWS THESE PEOPLE ARE SICK IVANKA AND "666 ... AVE" BUYING KUSHNER YOU SNAKE YOU ARE GOING IN THER PIT ...PIECE OF "GARBAGE" FILTHY ENSLAVING THE REAL JEWS ..!, EVEN 1 STATE LOCAL OR FEDERAL B.A.R. ASSOCIATION, EVEN 1 FIRE DEPARTMENT, EVEN 1 HOSPITAL, EVEN 1 GROUP OF ANYBODIES THAT COULD "BRING THE WHOLE BEAST MACHINE BY AS A GROUP UNITIING AND REFUSING TO WORK UNTIL WE GET 100% FULL DISCLOSURE 100% NOLYN TRUTH @AE911TRUTH JULIAN ASSANGE TRUTH PEDOGATE PIZZAGATE HILLARY HUMA SKINNING THE FACE OFF A LITTLE CHILD HANGING UP AND THEN DANCING IN FRONT OF HER WITH OWN FACE ON THEIR FACE TO MOCK HER THEN CUTTING OPEN THE BACK OF HER LITTLE DYING INNOCENT HEAD TERRIFIED EXCRETING MASSIVE AMOUNTS OF TURKISH TELEVISION MAINSTREAM TV FEATURED BY THE OTTOMAN EMPIRE AND SOON-TO-BE-EX-NATQ MEMBER ERDQQAN ... you underestimate the POWER OF THE TRUTH young jedi your use of the dark side grows ever weaker ... MATE ... just ask PEDO HUNTER BIDEN's 'friend' TUCKER CARLSON AND HIS CIA BOWTIE CREW MEMBER NYPD BOOFOO FREEMASON FILTHY ZIONIST SILENCER OF @AE911TRUTH "JUST PULL IT" ... Boss The Plane DOWN GOES WTC TOWER 1 Boss Boss The Plane The Plane  TUCKERCAGING 1/2 TRUTH FAKE AUTHORITY ADMIRALTY un'free'masons of FILTH and OATHS OT BLUE BROTHERS' SPILLED BLOOD CRIES OUT TO ME ... Qrumlpled StiltsQin ..!
 
 QRUMPLED STILTSQIN ... YOU DO NOTHING WORTHLESS FUQQer ... YOU "PRUNE" YOU ARE GETTING "WRINKLED" beYACHTch ..! "Melania, let me take you roller skating my LOVE ... come on gorgeous ... let's go ... SUSULONG TAYO ganda ..! WE'RE OUT ..! https://www.youtube.com/watch?v=1tBO8X2mh9Y ... beCAUSE ...
 
