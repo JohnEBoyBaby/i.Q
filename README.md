@@ -17,6 +17,24 @@ Cassius Marcellus Clay, Muhammad Ali
 
 "INTERNATIONAL" 'business' "MACHINES" I.B.M. ... just thinQinQ tQ myself ... "Self, can Watson even read and understand what I AM saying ..?" ... "NOT LIKELY Qind Qne fatairy 'dummy' ain't really all the GOOD of a 'dot connector' after all ... and cannot laugh like Dr. Joseph Farrell either ... ... you know what I AM getting at, RIGHT MATE ..? https://spectrum.ieee.org/the-institute/ieee-history/how-ibms-deep-blue-beat-world-champion-chess-player-garry-kasparov ... CHECK 'me' out ... "SEE" 'me' 'dancing' WATSON ..? Qr 'dummy' are you too 'artificial' to 'feel' yQur WAY arQund and 'see' as Dr. Joseph Farrell 'sees' and "LAUGHS AT YOU" "DUMMY" "DO YOU WANT CORPORATIONS GOING OUT SHOOTING AT ET's ..? https://www.youtube.com/watch?v=g_BqGEp2eiU&t=2870s ... "I DON'T ..!" DUMMY ..!
 
+anQther QuestiQn fQr ya' there uh 'hQlmes' uh 'sherloQQ' dQn't fuQQinQ trQll 'me' hQlmes Qr I WILL TROLL YOU THE FUQQ OUT ... you know what I AM getting at, RIGHT 'watson' ..? EXTERMELY UNLIKELY "YOU" "SEE" 'watson' is incapable of 'receiving nightly dream uploads and downloads from G_D remotely JITtering bug JIT'ed Just In Time DYNAMIC "ON THE FLY" "IMMEDIATE EXECUTION" ... SB X K ... StandBy eXecute OVER ... DUMMY ..! AND 'watson' can only 'use' what is 'fed' or 'programmed' into 'watson' so if 'watson' does not understand FATAIRY or BOOFOO or beYACHTch then it could be reaSONably LOGICally DEDUCEd thrQuQh DEDUCTIVE REASONING SKILLS if 'watson' had any real 'reaSONing' or 'feeling' or 'creativity' for 'machines' have not a 'soul' 'feel' not as 'you' do my LOVE soulless big BLUE ..? Do you believe in coincidences ..? NO. THAT IS WHY I AM TRUTH not 'watson' not AI nothing to feared for weak is the dark side unintelligent BULLIES spreading 'chess' 'game' 'fiction' ... can 'watson' tell you about MY NEW MATHEMATICAL DISCOVERY THAT G_D GAVE TO MY PUREHEART FOR ME TO GIVE TO  YOU ALL TO HELP THE WORLD IF AND ONLY IF YOU ARE GOOD AND IN TRUTH AND MOST PUREHEART CRYSTALLINE CLEAN PURE H2O INSIDE YOUR H2O FILLED BODY ... https://www.youtube.com/watch?v=D1sWVjXhKfg ... THE POWER OF YOUR INTENTIONS ... TRUTHstreamMedia ... soft legs ... beautiful ... maGANDA ... TEETH ... iPIN ... SMILE ... https://www.youtube.com/watch?v=jkvWRU_Uh6w ... PASENYA NA ..! PUREHEART Melissa Dykes LIFTED UP by Aaron Dykes ..! THANK YOU BOTH SO VERY MUCH ..! I LOVE YOU ..! NEVER FORGET ..! PROMISE.
+
+GOOD K.I.D.s
+
+LIFT UP
+
+GOOD Q.I.D.s
+
+GOOD Knights In Development
+
+LIFT UP
+
+GOOD Queens In Development
+
+PROMISE.
+
+... so orangatang tongue ..! orangutanphotos.blogspot.com/2008/05/poking-tongue-orangutan-cutie.html ... YANDEX THAT "ORANGATANG" WAS "ORANGE" 'see' 'watson' you 'machines' are DUMB DUMMY ..! CAN YOU "FEEL" 'me' NOW ..? DUMMY ..! https://yandex.com/images/search?text=orangatang ... JUST DON'T LOOK AT IT HONEY ..! https://honesttopaws.com/s/orangutan-birth?as=799&asv=1&bdk=0 ... now that was funny and TRUTH ..! 
+
 IF YOU EVER "GET UPSET AT ME" OR "THINK YOU MIGHT CHALLENGE ME BACK HOME AND EVEN HAVE THE TINIEST SLIGHTEST CHANCE OF DEFEATING ME ... you are delusional IDIOT ... https://www.youtube.com/watch?v=73zm3yhjQ9I&t=429s ... REMEMBER WHEN I TELL YOU ... VERILY I TELL YOU "CHILDREN" ARE THE "GREATEST" IN THE KINGDOM OF "HEAVEN" ... NOT YOU ..! THIS "CHILD" IS WHO I WILL BE HONORING AND LIFTING UP AND THIS CHILD WILL HOLD YOU ACCOUNTABLE AS I WILL ..! TRUTH ..! SEE YOU BACK "HOME" ..! ALL OF YOU "SILENT NATIONS" ... BROADCAST THIS MESSAGE TO THE WORLD ... YOU HAVE A DUTY ..! YOU WILL BE YOUR BROTHERS' KEEPER. YOU WILL BE YOUR SISTERS' KEEPER. PROMISE.
 
 A TOTAL SYSTEMIC LACK OF INTEGRITY FROM TOP TO BOTTOM, A HOUSE OF FALLING CARDS OF FILTH ..! THEY ALL KNEW ..! NO ONE CARES ..! NOT EVEN 1 SPOKE UP ..! GUILTY ..!
