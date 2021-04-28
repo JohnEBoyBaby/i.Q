@@ -11,6 +11,8 @@ Cassius Marcellus Clay, Muhammad Ali
 
 ... "IT" IS JUST SO FUQQINQ FUNNY ... YOU CAN'T STOP "IT" ..! UN FUQQINQ STOPPABLE ..! AND YOU FUQQING KNOW IT ..! NOW THAT IS TRUTH ..! AND THAT IS FUNNY ..!
 
+CECI EST PARFAIT, LES JAMBES SOUPLES ..! LA PERFECTION MON AMOUR ..!
+
 MAMA AND PAPA were laying in bed ... MAMA rolled over and this is what 'she' said: "GIVE ME SOME ..! P.T. ..! GOOD FOR YOU ..! GOOD FOR ME ..! GIVE ME SOME ..! P. T. (PHYSICAL TRAINING) ..! GOOD FOR YOU ..! GOOD FOR ME ..!
 
 THAT ANGELIC MAN'S TOUCH ..! DANCE WITH YOU TONIGHT ... KAYUmanGI 'style' ..! https://www.youtube.com/watch?v=rGJTcd3JHWw ... courtesy of the PANTY DROPPAZ LEAGUE ..!  ,,, DANCE WITH ME TONIGHT ... oh la la SING FOR ME ANGEL DANCE WITH ME BABE ..! https://www.youtube.com/watch?v=htMvDGwVso8 OH DO WHAT YOU DO HOW YOU DO ANGEL PUREHEART OH LA LA ..!
