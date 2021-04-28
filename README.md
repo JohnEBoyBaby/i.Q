@@ -19,6 +19,8 @@ MAMA AND PAPA were laying in bed ... MAMA rolled over and this is what 'she' sai
 
 THAT ANGELIC MAN'S TOUCH ..! DANCE WITH YOU TONIGHT ... KAYUmanGI 'style' ..! https://www.youtube.com/watch?v=rGJTcd3JHWw ... courtesy of the PANTY DROPPAZ LEAGUE ..!  ,,, DANCE WITH ME TONIGHT ... oh la la SING FOR ME ANGEL DANCE WITH ME BABE ..! https://www.youtube.com/watch?v=htMvDGwVso8 OH DO WHAT YOU DO HOW YOU DO ANGEL PUREHEART OH LA LA ..!
 
+... GOOD MORNING ameriQa ... how are you ..? DON'T YOU KNOW ME ..? I AM YOUR NATIVE SON ..! I AM THE TRUTH TRAIN ..! I LOVE YOU ALL soft legs and my GOOD bo's ..! https://www.youtube.com/watch?v=dHIXFKrrUhA ... just out here waiting on the 'next' IMMACULATE RECEPTION ..! CAN YOU "FEEL" ME NOW ..?
+
 ... to make your own LIGHT WATER-BASED AIR FRESHENER 'MIST' ... fill a smaller any plastic bottle will do with a 'mist' sprayer full about 99% to the top WITH WATER AND ADD 1% OF ANY FRAGRANCE ... any aftershave or perfume or body spray will do ... YOU'LL SMELL BETTER ... SAVE LOTS OF MONEY ... AND "FEEL" LIKE YOU "DESERVE" YOU AN ANGEL ... DANCE WITH ME ... come on ... I WANT TO ... DANCE WITH YOU TONIGHT ... www.youtube.com/watch?v=htMvDGwVso8 ... DANCE WITH YOU TONIGHT ... https://www.youtube.com/watch?v=rGJTcd3JHWw ... PUREHEART PILIPINA MAGANDA BABAE AT POGI LALAKIS MALAKAS UNGGOY 'style' na lang ..!
 
 ... OUT OF THE DARKNESS AND INTO THE LIGHT ... darkness ... Darkness ... DARKNESS ... surely 'darkness' you jest ... G_D WINS ... SPIRITUAL WARFARE ... WORD.
