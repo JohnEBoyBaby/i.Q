@@ -9,6 +9,8 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
+... to make your own LIGHT WATER-BASED AIR FRESHENER 'MIST' ... fill a smaller any plastic bottle will do with a 'mist' sprayer full about 99% to the top WITH WATER AND ADD 1% OF ANY FRAGRANCE ... any aftershave or perfume or body spray will do ... YOU'LL SMELL BETTER ... SAVE LOTS OF MONEY ... AND "FEEL" LIKE YOU "DESERVE" YOU AN ANGEL ... DANCE WITH ME ... come on ... I WANT TO ... DANCE WITH YOU TONIGHT ... www.youtube.com/watch?v=htMvDGwVso8 ... DANCE WITH YOU TONIGHT ... https://www.youtube.com/watch?v=rGJTcd3JHWw ... PUREHEART PILIPINA MAGANDA BABAE AT POGI LALAKIS MALAKAS UNGGOY 'style' na lang ..!
+
 ... OUT OF THE DARKNESS AND INTO THE LIGHT ... darkness ... Darkness ... DARKNESS ... surely 'darkness' you jest ... G_D WINS ... SPIRITUAL WARFARE ... WORD.
 
 'IN THE LAST YEAR ALONE WE HAVE BEEN HIT BY "DARKNESS" 365 TIMES' ... https://www.youtube.com/watch?v=NtfKU98WoN8 ... BUT THERE IS 1 GROUP WHO ARE NOT AFRAID ..! MONKEY SEE MONKEY DO ..! ... HATE FOR YOU TO GET A FUQQIN' BAD SUNBURN ..!7Q Monkey See Monkey Do ..! monQey see ..! monQey dQ do Do DO DO DO ..!
