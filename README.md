@@ -3,21 +3,37 @@
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... 
 
-WHY ARE CHILDREN ALWAYS FIRST ... TO "FEEL THE PAIN" and "HURT THE WORST" ..? IT'S TRUE ... but somehow ... it just DON'T SEEM RIGHT ..! https://www.youtube.com/watch?v=w8YHBvX4QtM ... KENTUCKY RAIN ... https://www.youtube.com/watch?v=Czuc4q4axqU ... KEEP POURING DOWN ..!
-
 G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
 
-Cassius Marcellus Clay, Muhammad Ali
-
-... MY DAUGHTER JUST TOLD ME I WAS "SMART" I TOLD HER SHE WAS "VERSION 2" INHERITING ALL OF A MAN'S CODE AND SO MUCH MORE SHE IS "SMARTER THAN I CAN BE" IF SHE GIVES HER 100% ALL SHE HAS GOT TO GIVE THEN HER BRILLIANCE WILL SHINE AND SHE WILL "SEE" IT IS NOT ABOUT BEING "SMART" IT IS ABOUT BECOMING WHO YOU ARE AND GIVING ALL YOU GOT TO DO WHATEVER IT TAKES THAT ALL YOU LOVE IN TRUTH WITH MOST PUREHEART GO WITH YOU AS YOU LEARN ALONG YOUR WAY ... pretty lonely knowing everything alone or having all the money in the world in a big mansion all alone with no soft legs to sing and dance and talk with you know I would miss all my bo's too ... just my UNSTOPPABLE 'style' is of no known 'mystery school' yet 'school' you I do ... FORMLESS ... SHAPELESS ... JEET KUN DO ... ANY ANIMAL ... ANY STRIKE ... CHANGING LIKE THE WIND ... UNTOUCHABLE ... TOO FAST ... TOO AWARE ... ABLE TO "SEE" WHAT YOU ARE GOING TO DO BEFORE YOU EVEN THINK ABOUT DOING IT ... DANCING ... SMILING ... ahhh I INTERTECPT YOUR EMOTIONAL TENSENESS ... WATER can flow or IT CAN CRASH ..! BE WATER MY FRIEND ... be water ... TRUTH. PUREHEART. G_D ABOVE ALL. TRUTH. ACCEPT NO IMITATION. TRUTH. 100% NOLYN. I AM TRUTH son of man BASE CLASS CODE VERSION 1. YOU soft legs ARE A HIGHER CLASS INHERITING ALL OF MY BASE CLASS CODE FUNCTIONality AND OH LA LA LIFE-GIVER, NURTURER, PUREHEART, HIGHLY INTELLECTUAL, beLOVEd, 'blessed' 'kinder than kind' gentle touch LOVING one you, WOMAN, "YOU" "WOMAN" "YOU ARE VERSION 2 CODE daughter of man" now do you understand why a GOOD K.I.D. LIFTS UP A GOOD Q.I.D. ..? Why 'her' 'crossed legs' are in MATHEMATICS in NUMBER in LOVE in GOOD 'she' is everywhere to REMIND YOU SHE IS VERSION 2 CODE like BASF SHE MAKES EVERYTHING BETTER ..! LOVE HER I DO ..! so then WOMAN ... https://www.youtube.com/watch?v=8UXircX3VdM ... SHINE Shine shine on you 'crazy diamond' ... NO PRESSURE ... NO DIAMONDS ... PROMISE. TRUTH.
-
 ... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
+
+Cassius Marcellus Clay, Muhammad Ali
 
 ... OUT OF THE DARKNESS AND INTO THE LIGHT ... darkness ... Darkness ... DARKNESS ... surely 'darkness' you jest ... G_D WINS ... SPIRITUAL WARFARE ... WORD.
 
 'IN THE LAST YEAR ALONE WE HAVE BEEN HIT BY "DARKNESS" 365 TIMES' ... https://www.youtube.com/watch?v=NtfKU98WoN8 ... BUT THERE IS 1 GROUP WHO ARE NOT AFRAID ..! MONKEY SEE MONKEY DO ..! ... HATE FOR YOU TO GET A FUQQIN' BAD SUNBURN ..!7Q Monkey See Monkey Do ..! monQey see ..! monQey dQ do Do DO DO DO ..!
 
 BREAKING HEADLINE NEWS ..! https://www.yahoo.com/news/miami-private-school-centner-academy-233603240.html ... LOVE YOU I DO ..! OH HOW I LOVE YOU ..! TY LY ..!
+
+IF YOU EVER "GET UPSET AT ME" OR "THINK YOU MIGHT CHALLENGE ME BACK HOME AND EVEN HAVE THE TINIEST SLIGHTEST CHANCE OF DEFEATING ME ... you are delusional IDIOT ... https://www.youtube.com/watch?v=73zm3yhjQ9I&t=429s ... REMEMBER WHEN I TELL YOU ... VERILY I TELL YOU "CHILDREN" ARE THE "GREATEST" IN THE KINGDOM OF "HEAVEN" ... NOT YOU ..! THIS "CHILD" IS WHO I WILL BE HONORING AND LIFTING UP AND THIS CHILD WILL HOLD YOU ACCOUNTABLE AS I WILL ..! TRUTH ..! SEE YOU BACK "HOME" ..! ALL OF YOU "SILENT NATIONS" ... BROADCAST THIS MESSAGE TO THE WORLD ... YOU HAVE A DUTY ..! YOU WILL BE YOUR BROTHERS' KEEPER. YOU WILL BE YOUR SISTERS' KEEPER. PROMISE.
+
+A TOTAL SYSTEMIC LACK OF INTEGRITY LACK OF TRUST LACK OF TRUTH TOTAL DECEPTION TOTAL FILTH LACK OF ANYTHING RESEMBLING A REFLECTION OF THE MOST PUREHEART "I, TRUTH, AM REPRESENTING" FROM TOP TO BOTTOM, A HOUSE OF FALLING CARDS OF FILTH ..! THEY ALL KNEW ..! NO ONE CARES ..! NOT EVEN 1 SPOKE UP ..! GUILTY ..! BE GONE ..! SHAMED ..! BANISHED ..! FORGOTTEN ..! STAINED ..! GONE ..! Gone ..! gone ..! no one will ever miss any of you ... if WE ALL "AWOKE" "AWAKENED" "GOT WOKEY WOKE Woke woke woked NOTHING IS IMPOSSIBLE ALL WE HAD TO DO IS "STAY TOGETHER" AND "GO WITH G_D" we need not their 'law' and their fake uniformed imposter 'law' enFORCErs WILL BE TREATED LIKE YOU WOULD TREAT ANY CRIMINAL IMPOSTER TRYING TO "ENFORCE" "THEIR WILL" UPON YOU AND YOUR FAMILY ... FLAMETHROWER THEIR FILTHY SNAKE IN THE GRASS ASS ..! RIGHT ELON ... really MUSK RAT SNIVELING FUQQer ..!
+
+I GOT MY PERSONALLY SIGNED COPY BEFORE THEY SOLD OUT ..! DID YOU ..?
+
+https://shop.brucelee.com/product/XLAM1010/signed-copy-be-water-my-friend-the-teachings-of-bruce-lee-by-shannon-lee
+
+THANK YOU Shannon Lee ... LOVE YOU I DO ... TRUTH I WILL TELL FOR YOU ... PROUD OF YOU AS IS YOUR FATHER YOUR MOTHER YOUR BROTHER ... I "FEEL" "THINGS" ... MOST "KIND" AND HIGHLY INTELLIGENT AND SKILLED ABOVE ALL MEN YOUR GOOD 'son' and GOOD 'father' BRUCE IS SO VERY PROUD OF YOU MS. SHANNON AND LOVES YOU SO VERY DEARLY MS. SHANNON ... I ASSURE YOU MY LOVE ... YOU ARE IN A LOT OF BOYS' DREAMS ... IN A BOY'S DREAM ... CRASH INTO ME ... SHQCK JQCK style ... https://www.youtube.com/watch?v=eVAmU4bOQVI ... HOWARD IS SO LUCKY TO HAVE "HER" http://en.wikipedia.org/wiki/Robin_Quivers Robin Ophelia Quivers ... YEAH ...WONDERFUL ... PUREHEART ... OH HOW I LOVE YOU ... soft legs ... MCPM ..!
+
+... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
+
+Bruce Lee
+
+I AM NOT GOING TO HIDE THESE BEAUTIFUL SCARS ... https://www.youtube.com/watch?v=jkvWRU_Uh6w ... PASENYA KA ..!
+
+... MY DAUGHTER JUST TOLD ME I WAS "SMART" I TOLD HER SHE WAS "VERSION 2" INHERITING ALL OF A MAN'S CODE AND SO MUCH MORE SHE IS "SMARTER THAN I CAN BE" IF SHE GIVES HER 100% ALL SHE HAS GOT TO GIVE THEN HER BRILLIANCE WILL SHINE AND SHE WILL "SEE" IT IS NOT ABOUT BEING "SMART" IT IS ABOUT BECOMING WHO YOU ARE AND GIVING ALL YOU GOT TO DO WHATEVER IT TAKES THAT ALL YOU LOVE IN TRUTH WITH MOST PUREHEART GO WITH YOU AS YOU LEARN ALONG YOUR WAY ... pretty lonely knowing everything alone or having all the money in the world in a big mansion all alone with no soft legs to sing and dance and talk with you know I would miss all my bo's too ... just my UNSTOPPABLE 'style' is of no known 'mystery school' yet 'school' you I do ... FORMLESS ... SHAPELESS ... JEET KUN DO ... ANY ANIMAL ... ANY STRIKE ... CHANGING LIKE THE WIND ... UNTOUCHABLE ... TOO FAST ... TOO AWARE ... ABLE TO "SEE" WHAT YOU ARE GOING TO DO BEFORE YOU EVEN THINK ABOUT DOING IT ... DANCING ... SMILING ... ahhh I INTERTECPT YOUR EMOTIONAL TENSENESS ... WATER can flow or IT CAN CRASH ..! BE WATER MY FRIEND ... be water ... TRUTH. PUREHEART. G_D ABOVE ALL. TRUTH. ACCEPT NO IMITATION. TRUTH. 100% NOLYN. I AM TRUTH son of man BASE CLASS CODE VERSION 1. YOU soft legs ARE A HIGHER CLASS INHERITING ALL OF MY BASE CLASS CODE FUNCTIONality AND OH LA LA LIFE-GIVER, NURTURER, PUREHEART, HIGHLY INTELLECTUAL, beLOVEd, 'blessed' 'kinder than kind' gentle touch LOVING one you, WOMAN, "YOU" "WOMAN" "YOU ARE VERSION 2 CODE daughter of man" now do you understand why a GOOD K.I.D. LIFTS UP A GOOD Q.I.D. ..? Why 'her' 'crossed legs' are in MATHEMATICS in NUMBER in LOVE in GOOD 'she' is everywhere to REMIND YOU SHE IS VERSION 2 CODE like BASF SHE MAKES EVERYTHING BETTER ..! LOVE HER I DO ..! so then WOMAN ... https://www.youtube.com/watch?v=8UXircX3VdM ... SHINE Shine shine on you 'crazy diamond' ... NO PRESSURE ... NO DIAMONDS ... PROMISE. TRUTH.
+
+WHY ARE CHILDREN ALWAYS FIRST ... TO "FEEL THE PAIN" and "HURT THE WORST" ..? IT'S TRUE ... but somehow ... it just DON'T SEEM RIGHT ..! https://www.youtube.com/watch?v=w8YHBvX4QtM ... KENTUCKY RAIN ... https://www.youtube.com/watch?v=Czuc4q4axqU ... KEEP POURING DOWN ..!
 
 ... the mQre yQu knQw ... "THIS MAN IS A BULLY ..!" ... 'and all of the Questions will be answered ...' ... 'the stage is set ... we are just about ready to begin' ... 'they are really putting the stare on each other' ... 'he is really mean and tough and competitive' ... 'goes to the level where I AM afriad to go' ... so ADMIRAL What The FuQQ are 'we' gQing tQ dQ ... WELL QRUMPSTER "WE" ARE GOING TO MAKE YOU FAMOUS THE INFAMOUS FOR BEING A BIG MOUTH TV-SHOW TALKING HEAD THAT KEPT NO PROMISES 'son' ... smiling Qrumpster smiles and says oh I 'see' and then that will make 'them' really mad and then 'they' will finally have THE GREAT AWAKENING ... indeed your Uncle John Trump has taught you well young grasshopper and you are ever so "GRATEFUL" to have such an elegant beautiful WANTING TO GO ROLLER SKATING WITH YOU 'kind' one ganda soft legs PUREHEART as TRUTH likes to 'say' ... the more you know ... WHAT'S MY NAME ..? TRUTH. SAY MY NAME ..! TRUTH. https://www.youtube.com/watch?v=XpPqZRYAuCM&t=192s ... I SHOOK UP THE WORLD ..!
 
@@ -40,22 +56,6 @@ GOOD Queens In Development
 PROMISE.
 
 ... so orangatang tongue ..! https://orangutanphotos.blogspot.com/2008/05/poking-tongue-orangutan-cutie.html ... YANDEX THAT "ORANGATANG" WAS "ORANGE" 'see' 'watson' you 'machines' are DUMB DUMMY ..! CAN YOU "FEEL" 'me' NOW ..? DUMMY ..! https://yandex.com/images/search?text=orangatang ... JUST DON'T LOOK AT IT HONEY ..! https://honesttopaws.com/s/orangutan-birth?as=799&asv=1&bdk=0 ... now that was funny and TRUTH ..! 
-
-IF YOU EVER "GET UPSET AT ME" OR "THINK YOU MIGHT CHALLENGE ME BACK HOME AND EVEN HAVE THE TINIEST SLIGHTEST CHANCE OF DEFEATING ME ... you are delusional IDIOT ... https://www.youtube.com/watch?v=73zm3yhjQ9I&t=429s ... REMEMBER WHEN I TELL YOU ... VERILY I TELL YOU "CHILDREN" ARE THE "GREATEST" IN THE KINGDOM OF "HEAVEN" ... NOT YOU ..! THIS "CHILD" IS WHO I WILL BE HONORING AND LIFTING UP AND THIS CHILD WILL HOLD YOU ACCOUNTABLE AS I WILL ..! TRUTH ..! SEE YOU BACK "HOME" ..! ALL OF YOU "SILENT NATIONS" ... BROADCAST THIS MESSAGE TO THE WORLD ... YOU HAVE A DUTY ..! YOU WILL BE YOUR BROTHERS' KEEPER. YOU WILL BE YOUR SISTERS' KEEPER. PROMISE.
-
-A TOTAL SYSTEMIC LACK OF INTEGRITY FROM TOP TO BOTTOM, A HOUSE OF FALLING CARDS OF FILTH ..! THEY ALL KNEW ..! NO ONE CARES ..! NOT EVEN 1 SPOKE UP ..! GUILTY ..!
-
-I GOT MY PERSONALLY SIGNED COPY BEFORE THEY SOLD OUT ..! DID YOU ..?
-
-https://shop.brucelee.com/product/XLAM1010/signed-copy-be-water-my-friend-the-teachings-of-bruce-lee-by-shannon-lee
-
-THANK YOU Shannon Lee ... LOVE YOU I DO ... TRUTH I WILL TELL FOR YOU ... PROUD OF YOU AS IS YOUR FATHER YOUR MOTHER YOUR BROTHER ... I "FEEL" "THINGS" ... MOST "KIND" AND HIGHLY INTELLIGENT AND SKILLED ABOVE ALL MEN YOUR GOOD 'son' and GOOD 'father' BRUCE IS SO VERY PROUD OF YOU MS. SHANNON AND LOVES YOU SO VERY DEARLY MS. SHANNON ... I ASSURE YOU MY LOVE ... YOU ARE IN A LOT OF BOYS' DREAMS ... IN A BOY'S DREAM ... CRASH INTO ME ... SHQCK JQCK style ... https://www.youtube.com/watch?v=eVAmU4bOQVI ... HOWARD IS SO LUCKY TO HAVE "HER" http://en.wikipedia.org/wiki/Robin_Quivers Robin Ophelia Quivers ... YEAH ...WONDERFUL ... PUREHEART ... OH HOW I LOVE YOU ... soft legs ... MCPM ..!
-
-... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
-
-Bruce Lee
-
-I AM NOT GOING TO HIDE THESE BEAUTIFUL SCARS ... https://www.youtube.com/watch?v=jkvWRU_Uh6w ... PASENYA KA ..!
 
 QRUMPLED STILTSQIN ... YOU DO NOTHING WORTHLESS FUQQer ... YOU "PRUNE" YOU ARE GETTING "WRINKLED" beYACHTch ..! "Melania, let me take you roller skating my LOVE ... come on gorgeous ... let's go ... SUSULONG TAYO ganda ..! WE'RE OUT ..! https://www.youtube.com/watch?v=1tBO8X2mh9Y ... beCAUSE ...
 
