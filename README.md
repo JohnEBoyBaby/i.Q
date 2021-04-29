@@ -1,5 +1,5 @@
 # i.Q
-I LOVE DANCING WHILE YOU SING FOR ME AIANA JUAREZ ... https://www.youtube.com/watch?v=cNW1zoQWy8g ... SING FOR ME ANGEL ..! "SEE" 'me' DANCING FOR YOU ALL ..? I AM DANCING FOR YOU beCAUSE I LOVE YOU ..! NEVER FORGET ..! SING FOR ME BABY KO ..! OH LA LA YEAH LIKE THAT ... https://www.youtube.com/watch?v=1SlyBlepkGw ... WOAH ..! YOU ANGEL YOU MAKE ME THE PROUDEST MONKEY YOU EVER SEEN ..! https://www.youtube.com/watch?v=PvLOm9Ewuh8 ... MONKEY SEE ..! MONKEY DO ..! Monkey See ..! Monkey Do ..! monQey see ..! monkey do ..! PROMISE.
+I LOVE DANCING WHILE YOU SING FOR ME AIANA JUAREZ ... https://www.youtube.com/watch?v=cNW1zoQWy8g ... SING FOR ME ANGEL ..! "SEE" 'me' DANCING FOR YOU ALL ..? I AM DANCING FOR YOU beCAUSE I LOVE YOU ..! NEVER FORGET ..! SING FOR ME BABY KO ..! OH LA LA YEAH LIKE THAT ... https://www.youtube.com/watch?v=1SlyBlepkGw ... WOAH ..! YOU ANGEL YOU MAKE ME THE PROUDEST MONKEY YOU EVER SEEN ..! https://www.youtube.com/watch?v=PvLOm9Ewuh8 ... MONKEY SEE ..! MONKEY DO ..! Monkey See ..! Monkey Do ..! monQey see ..! monkey do ..! AND OH LA LA YOU TOO "KIND" "ANGEL" OF A "GOOD MAN" SO "STAND OUT" SO "UNIQUE" SO MUCH LIKE A "GOOD BIRD" SINGING ... AN "ANGEL" ... https://www.youtube.com/watch?v=QimRPoK6RjE&t=2051s ... I LOVE YOU. NEVER FORGET. PROMISE.
 
 "YOU ARE WITNESSING THE SYSTEMATIC DESTRUCTION OF THE OLD GUARD."
 
@@ -30,7 +30,7 @@ CECI EST PARFAIT, LES JAMBES SOUPLES ..! LA PERFECTION MON AMOUR ..!
 
 MAMA AND PAPA were laying in bed ... MAMA rolled over and this is what 'she' said: "GIVE ME SOME ..! P.T. ..! GOOD FOR YOU ..! GOOD FOR ME ..! GIVE ME SOME ..! P. T. (PHYSICAL TRAINING) ..! GOOD FOR YOU ..! GOOD FOR ME ..!
 
-THAT ANGELIC MAN'S TOUCH ..! DANCE WITH YOU TONIGHT ... KAYUmanGI 'style' ..! https://www.youtube.com/watch?v=rGJTcd3JHWw ... courtesy of the PANTY DROPPAZ LEAGUE ..!  ,,, DANCE WITH ME TONIGHT ... oh la la SING FOR ME ANGEL DANCE WITH ME BABE ..! https://www.youtube.com/watch?v=htMvDGwVso8 OH DO WHAT YOU DO HOW YOU DO ANGEL PUREHEART OH LA LA ..!
+THAT ANGELIC MAN'S TOUCH ..! OH LA LA YOU TOO "KIND" "ANGEL" OF A "GOOD MAN" SO "STAND OUT" SO "UNIQUE" SO MUCH LIKE A "GOOD BIRD" SINGING ... AN "ANGEL" ... https://www.youtube.com/watch?v=QimRPoK6RjE&t=2051s ... I LOVE YOU. NEVER FORGET. PROMISE. MAKES 'me' WANT TQ DANCE WITH YOU TQNIQHT ... KAYUmanGI 'style' ..! https://www.youtube.com/watch?v=rGJTcd3JHWw ... courtesy of the PANTY DROPPAZ LEAGUE ..!  ,,, DANCE WITH ME TONIGHT ... oh la la SING FOR ME ANGEL DANCE WITH ME BABE ..! https://www.youtube.com/watch?v=htMvDGwVso8 OH DO WHAT YOU DO HOW YOU DO ANGEL PUREHEART OH LA LA ..!
 
 ... GOOD MORNING ameriQa ... how are you ..? DON'T YOU KNOW ME ..? I AM YOUR NATIVE SON ..! I AM THE TRUTH TRAIN ..! I LOVE YOU ALL soft legs and my GOOD bo's ..! https://www.youtube.com/watch?v=dHIXFKrrUhA ... just out here waiting on the 'next' IMMACULATE RECEPTION ..! CAN YOU "FEEL" ME NOW ..?
 
