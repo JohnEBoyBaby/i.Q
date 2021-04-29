@@ -17,8 +17,7 @@ Cassius Marcellus Clay, Muhammad Ali
 
 ... "IT" IS JUST SO FUQQINQ TRUE beCAUSE I AM TRUTH ... TRUTH ... 100% "FEELING" SISTERS' KEEPER BROTHERS' KEEPER ..! 100% NO SHAME ..! 100% NOLYN ..! YOU CAN'T STOP "IT" ..! UN FUQQINQ STOPPABLE ..! AND YOU FUQQING KNOW IT ..! NOW THAT IS TRUTH ..! AND THAT IS FUNNY ..!
 
-
-I AM not sorry Ms. Cantano ... NEVER MEANT TO MAKE YOUR DAUGHTER WHINE AND CRY ... HER 'HIP' PO' CRITic https://www.youtube.com/watch?v=XnV0ZgjgXcg CRITTER LIES ... NOT A DAMN BIT SORRY MS. CANTANO ... I AM FOR REAL ...! 'You're killing 'me' 'smalls' ...' WORD.
+I AM not sorry Ms. Cantano ... NEVER MEANT TO MAKE YOUR DAUGHTER WHINE AND CRY ..! https://www.youtube.com/watch?v=MYxAiK6VnXw ... HEAR HER 'HIP' PO' CRITic https://www.youtube.com/watch?v=XnV0ZgjgXcg CRITTER LIES ..! NOT A DAMN BIT SORRY MS. CANTANO ..! I AM FOR REAL ...! 'You're killing 'me' 'smalls' ...' WORD.
 
 ... SOMEone SHAVE ... SomeOne Shave ... https://www.youtube.com/watch?v=2TfuRv4Wa_g ... someone shave my wife tonight ... Tonight ... TQNIQHT ..!
 
