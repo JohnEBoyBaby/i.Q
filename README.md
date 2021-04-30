@@ -19,7 +19,7 @@ FREE JULIAN ASSANGE MR. Mc CREEDY ..! I AM TRUTH ..! COME AND CRUCIFY ME little 
 
 BREAKING HEADLINE NEWS ..! https://www.yahoo.com/news/miami-private-school-centner-academy-233603240.html ... LOVE YOU I DO ..! OH HOW I LOVE YOU ..! TY LY ..!
 
-... 'you' 'bout to "FEEL" the WRATH OF A MENACE ..!
+... 'you' 'bout to "FEEL" the WRATH OF A MENACE ..! SMELLY ASS HAIR BLANKET STANKer YOU "ASS HAIR BIG BAD BLUE RABBIT BASKET WEAVING WICKENEDNESS WEAVER" FOR YOUR ROTTEN EGGS ... that ought to be STANKY STICKY Sick TU ATE SOME situation FOR YOU BLUE BOOFOO BROTHERHOOD PENILE INSTRUMENT WITH FECAL MATTER AND MAIZE LIP LIQQINQ CQP SUQQERS ..! FILTHY ..! MONSTERS ..! TRUTH ..! ACCEPT NO IMITATION. TRUTH. WHAT'S MY NAME ..? TRUTH ... and then I WILL WHOOP 'him' ..!
 
 "KUNG" fu "TAYO" "WE" you know how We Do we do KUNG FU ... https://www.youtube.com/watch?v=83Cvx5c1rGk ... "TALAGA ..!" REALLY ..!
 
