@@ -9,15 +9,15 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
+FREE JULIAN ASSANGE MR. Mc CREEDY ..! I AM TRUTH ..! COME AND CRUCIFY ME little 'man' ..! HE IS BUT MY MESSENGER ..! IT IS I "TRUTH" YOU WANT TO "KILL" COME AND "KILL ME" "CRUCIFY ME" ... DIDN'T YOU LEARN LAST TIME DUMMY ..? YOU CAN KILL ME AND CRUCIFY ME OVER And Over and over ..! I AM UNSTOPPABLE ..! I AM TRUTH ..! I AM PUREHEART ..! I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT ..! UNDEFEATED ..! WHAT'S MY NAME ..? TRUTH. SAY MY NAME ..! TRUTH ..! WHO I AM IS ..? TRUTH.
+
+"JOKE' em IF THEY CAN'T TAKE A FUQQ" ... "THAT'S WHY I FUQQED YOUR WIFE ..! YOU FAT MOTHER FUQQER ..!" ... ya'll ... ain't even on my level ... https://www.youtube.com/watch?v=41qC3w3UUkU ... I HIT 'em UP ..! the more you know ... I WILL "SEE" 'you' back "HOME". PROMISE. TRUTH.
+
 ... OUT OF THE DARKNESS AND INTO THE LIGHT ... darkness ... Darkness ... DARKNESS ... surely 'darkness' you jest ... G_D WINS ... SPIRITUAL WARFARE ... WORD.
 
 'IN THE LAST YEAR ALONE WE HAVE BEEN HIT BY "DARKNESS" 365 TIMES' ... https://www.youtube.com/watch?v=NtfKU98WoN8 ... BUT THERE IS 1 GROUP WHO ARE NOT AFRAID ..! MONKEY SEE MONKEY DO ..! ... HATE FOR YOU TO GET A FUQQIN' BAD SUNBURN ..!7Q Monkey See Monkey Do ..! monQey see ..! monQey dQ do Do DO DO DO ..!
 
 BREAKING HEADLINE NEWS ..! https://www.yahoo.com/news/miami-private-school-centner-academy-233603240.html ... LOVE YOU I DO ..! OH HOW I LOVE YOU ..! TY LY ..!
-
-GOT GAME ..? "GET TO WORK "SAILOR" ..!" YES, MA'AM ... but ASS HAIR WEAVING ..! INSTANT CLASSIC HIT ..!
-
-I LOVE DANCING WHILE YOU SING FOR ME AIANA JUAREZ ... https://www.youtube.com/watch?v=cNW1zoQWy8g ... SING FOR ME ANGEL ..! https://www.youtube.com/watch?v=iPoj2vSIIlM ... "SEE" 'me' DANCING FOR YOU ALL ..? I AM DANCING FOR YOU beCAUSE I LOVE YOU ..! NEVER FORGET ..! SING FOR ME BABY KO ..! OH LA LA YEAH LIKE THAT ... https://www.youtube.com/watch?v=1SlyBlepkGw ... WOAH ..! YOU ANGEL YOU MAKE ME THE PROUDEST MONKEY YOU EVER SEEN ..! https://www.youtube.com/watch?v=PvLOm9Ewuh8 ... MONKEY SEE ..! MONKEY DO ..! Monkey See ..! Monkey Do ..! monQey see ..! monkey do ..! AND OH LA LA YOU TOO "KIND" "ANGEL" OF A "GOOD MAN" SO "STAND OUT" SO "UNIQUE" SO MUCH LIKE A "GOOD BIRD" SINGING ... AN "ANGEL" OPENING YOUR MIND TRANSCENDING YOUR IMAGINATION SHOWING YOU THE WAY MY beLOVEd an 'angel' like 'you' soft legs ... 'you' too there handsome fella ... not you "otis' and 'fatairy' or you either Ken and Karen Mc GREEDY CREEDY ..! https://www.youtube.com/watch?v=QimRPoK6RjE&t=2051s ... SING FOR ME ANGEL SING FOR ALL THE "GOOD BIRDS" MY LOVE ... LOVE YOU I DO ... OH HOW I LOVE YOU ... IMAGINE WALKING THROUGH THE GROCERY WITH OUR "ANGEL" THAT WOULD BE "FUN" ... I LOVE YOU. NEVER FORGET. PROMISE.
 
 ... 'you' 'bout to "FEEL" the WRATH OF A MENACE ..!
 
@@ -26,6 +26,10 @@ I LOVE DANCING WHILE YOU SING FOR ME AIANA JUAREZ ... https://www.youtube.com/wa
 ELIMINATE THIS MONSTER ..! https://www.yahoo.com/news/philippines-extends-limits-movement-gatherings-165430493.html ... NOW ..!
 
 IF YOU WANT TO "RIDE WITH ME" ... https://www.youtube.com/watch?v=GsyJVv-9ygM ... THEN "RIDE WITH ME" ..!
+
+GOT GAME ..? "GET TO WORK "SAILOR" ..!" YES, MA'AM ... but ASS HAIR WEAVING ..! INSTANT CLASSIC HIT ..!
+
+I LOVE DANCING WHILE YOU SING FOR ME AIANA JUAREZ ... https://www.youtube.com/watch?v=cNW1zoQWy8g ... SING FOR ME ANGEL ..! https://www.youtube.com/watch?v=iPoj2vSIIlM ... "SEE" 'me' DANCING FOR YOU ALL ..? I AM DANCING FOR YOU beCAUSE I LOVE YOU ..! NEVER FORGET ..! SING FOR ME BABY KO ..! OH LA LA YEAH LIKE THAT ... https://www.youtube.com/watch?v=1SlyBlepkGw ... WOAH ..! YOU ANGEL YOU MAKE ME THE PROUDEST MONKEY YOU EVER SEEN ..! https://www.youtube.com/watch?v=PvLOm9Ewuh8 ... MONKEY SEE ..! MONKEY DO ..! Monkey See ..! Monkey Do ..! monQey see ..! monkey do ..! AND OH LA LA YOU TOO "KIND" "ANGEL" OF A "GOOD MAN" SO "STAND OUT" SO "UNIQUE" SO MUCH LIKE A "GOOD BIRD" SINGING ... AN "ANGEL" OPENING YOUR MIND TRANSCENDING YOUR IMAGINATION SHOWING YOU THE WAY MY beLOVEd an 'angel' like 'you' soft legs ... 'you' too there handsome fella ... not you "otis' and 'fatairy' or you either Ken and Karen Mc GREEDY CREEDY ..! https://www.youtube.com/watch?v=QimRPoK6RjE&t=2051s ... SING FOR ME ANGEL SING FOR ALL THE "GOOD BIRDS" MY LOVE ... LOVE YOU I DO ... OH HOW I LOVE YOU ... IMAGINE WALKING THROUGH THE GROCERY WITH OUR "ANGEL" THAT WOULD BE "FUN" ... I LOVE YOU. NEVER FORGET. PROMISE.
 
 I GOT MY PERSONALLY SIGNED COPY BEFORE THEY SOLD OUT ..! DID YOU ..?
 
