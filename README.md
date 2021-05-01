@@ -1,4 +1,6 @@
 # i.Q
+IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..! 
+
 WATCH THIS 17 TIMES ..! AND I MEAN IT ..! LISTEN GOOD ..! REALLY GOOD MANY TIMES OVER AND OVER AND OVER UNTIL YOU "WAKE UP" YOU BIG DUMMY ..! YOU LOST SHEEP ..!
 
 https://www.youtube.com/watch?v=cRkfG7EYKA8
@@ -7,13 +9,13 @@ LISTEN GOOD ..!
 
 "YOU ARE WITNESSING THE SYSTEMATIC DESTRUCTION OF THE OLD GUARD."
 
-IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ... 
-
 G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
 
 ... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
 
 Cassius Marcellus Clay, Muhammad Ali
+
+I KNOW 'they' don't 'like' me ... https://www.youtube.com/watch?v=IGInsosP0Ac ... I JUST WANT TO BE MYSELF ... I CAN'T BE SOMEONE ELSE ... 'they' YELL ... 'they' PREACH ... I'VE HEARD IT ALL BEFORE ..! STAND OUT don't 'fit in' ..! STAND OUT ..!
 
 ... 25 YEARS AGO ... what the hell happened ..? some they fell down ... and some they got back up ... and fought back against the meltdown ..! 'you' might as walking on the sun ... https://www.youtube.com/watch?v=LQj--Kjn0z8&t=70 ... TRUTH. ACCEPT NO IMITATION ..! TRUTH.
 
