@@ -15,6 +15,8 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
+I AM "LEGION" ..! I DO NOT FORGIVE ..! I DO NOT FORGET ..! "V" FOR "VENGEANCE" ..!
+
 I KNOW 'they' don't 'like' me ... https://www.youtube.com/watch?v=IGInsosP0Ac ... I JUST WANT TO BE MYSELF ... I CAN'T BE SOMEONE ELSE ... 'they' YELL ... 'they' PREACH ... I'VE HEARD IT ALL BEFORE ..! STAND OUT don't 'fit in' ..! STAND OUT ..!
 
 ... 25 YEARS AGO ... what the hell happened ..? some they fell down ... and some they got back up ... and fought back against the meltdown ..! 'you' might as walking on the sun ... https://www.youtube.com/watch?v=LQj--Kjn0z8&t=70 ... TRUTH. ACCEPT NO IMITATION ..! TRUTH.
