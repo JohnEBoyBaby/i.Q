@@ -17,6 +17,12 @@ Cassius Marcellus Clay, Muhammad Ali
 
 I AM TRUTH. I AM PUREHEART. I AM A PROTECTOR AND LOVER OF G_D MOST ATTENTIVE FOR G_D TO CRY FOR 'me' ..!
 
+BOB DYLAN YOU "SELLOUT" FREEMASON FILTH it was I ... TRUTH ... I MARRIED "ISIS" ON 5TH DAY OF MAY ..! 
+
+https://www.youtube.com/watch?v=INilAY6aJTc
+
+... FOR THE WILD UNKNOWN COUNTRY ... where I could not go wrong ... I CAME TO A HIGH PLACE ... of darnkess and LIGHT ... the "DIVIDING LINE" ran through the CENTER of TOWN ... I went into the 'laundry' "TO WASH" my 'clothes' DOWN ..!
+
 REMEMBER WHAT 'we' ARE WILLING TO DIE FIGHTING FOR ..! REMEMBER WHO'S FUTURE MEANS SO MUCH TO 'us' ..! https://www.youtube.com/watch?v=gyhlWzLjEy0 ... PUREHEART.
 
 MANGO "MANGA" "FARM" IN RESORT TOWN "PANGASINAN" ONLY $7.17 "USD" GOOD CENTS 350 PILIPINAS PESOS "PHP" PER 'sQuare' meter ... https://www.carousell.ph/p/mango-farm-lot-for-sale-1082822112/?t-id=ZBqCsxmzNF_1619908824680&t-product_id=1082822112&t-referrer_browse_type=item_item_rec&t-referrer_product_id=1080630854&t-referrer_request_id=o1SpqvVyKYRiQL7T&t-referrer_source=listing_page&t-tap_index=0 ... DANG 'bout to MOVE ..!
