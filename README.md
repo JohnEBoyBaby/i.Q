@@ -15,7 +15,7 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
-SEE ME "DANCING" ..? I AM 'dancing' all around these 'clowns' ... SCARED OF WHAT ..? A BUNCH OF LOW DOWN BLUE SHITBIRDS PLAYING ON A "COURT" WITH A "RACKET" ..? 
+... take 'my hand' MY LOVE ..! LET US DANCE ... I WANT DANCE WITH "YOU" TONIGHT ..! SEE ME "DANCING" ..? I AM 'dancing' all around these 'clowns' ... SCARED OF WHAT ..? A BUNCH OF LOW DOWN BLUE SHITBIRDS PLAYING ON A "COURT" WITH A "RACKET" ..? 'my hand' take it ... let us dance ..! DANCE WITH ME MY LOVE LET'S DANCE ..!
 
 CELEBRATE 'we' WILL ..! https://www.youtube.com/watch?v=NTC__g12xPs ... LIFE IS SHORT BUT SWEET FOR CERTAIN ..! THINGS "WE CAN CHANGE" ..!
 
