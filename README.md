@@ -21,7 +21,7 @@ BOB DYLAN YOU "SELLOUT" FREEMASON FILTH it was I ... TRUTH ... I MARRIED "ISIS" 
 
 https://www.youtube.com/watch?v=INilAY6aJTc
 
-... FOR THE WILD UNKNOWN COUNTRY ... where I could not go wrong ... I CAME TO A HIGH PLACE ... of darnkess and LIGHT ... the "DIVIDING LINE" ran through the CENTER of TOWN ... I went into the 'laundry' "TO WASH" my 'clothes' DOWN ..!
+... FOR THE WILD UNKNOWN COUNTRY ... where I could not go wrong ... I CAME TO A HIGH PLACE ... of darnkess and LIGHT ... the "DIVIDING LINE" ran through the CENTER of TOWN ... I went into the 'laundry' "TO WASH" my 'clothes' DOWN ..! I SAID "THAT'S THE BEST NEWS THAT I'VE EVER HEARD" ..! AND THINGS WOULD BE "DIFFERENT" THE "NEXT TIME" we 'wed' ... I STILL CAN'T REMEMBER ALL THE BEST THINGS 'she' said ..!
 
 REMEMBER WHAT 'we' ARE WILLING TO DIE FIGHTING FOR ..! REMEMBER WHO'S FUTURE MEANS SO MUCH TO 'us' ..! https://www.youtube.com/watch?v=gyhlWzLjEy0 ... PUREHEART.
 
