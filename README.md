@@ -7,7 +7,7 @@ https://www.youtube.com/watch?v=cRkfG7EYKA8
 
 LISTEN GOOD ..! "LEARN OUR COMMS" ... 
 
-CDR DE ENS ... XTF ... Oscar Papa ... Golf Oscar ... Golf Echo Tango ... Sierra Oscar Mike Echo ... Sierra Oscar Foxtrot Tango ... Lima Echo Golf Sierra ..! Mike Charlie Papa Mike SB ... X K ..!
+CDR DE ENS ... XTF ... Oscar Papa ... Golf Oscar ... Golf Echo Tango ... Sierra Oscar Mike Echo ... Sierra Oscar Foxtrot Tango ... Lima Echo Golf Sierra ..! Mike Charlie Papa Mike ..! SB ... X K ..!
 
 "YOU ARE WITNESSING THE SYSTEMATIC DESTRUCTION OF THE OLD GUARD."
 
