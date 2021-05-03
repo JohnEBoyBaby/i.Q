@@ -5,17 +5,19 @@ WATCH THIS 17 TIMES ..! AND I MEAN IT ..! LISTEN GOOD ..! REALLY GOOD MANY TIMES
 
 https://www.youtube.com/watch?v=cRkfG7EYKA8
 
-LISTEN GOOD ..! "LEARN OUR COMMS" ... https://www.youtube.com/watch?v=HnSm5tNu50A ... BRAVO ZULU ..! "WEL DONE ..!" ALL IT TAKES IS 1 GOOD WO(man) ..! PROMISE.
-
-"MESSAGE RECEIVED" ... CDR DE ENS ... XTF ... Oscar Papa ... Golf Oscar ... Golf Echo Tango ... Sierra Oscar Mike Echo ... Sierra Oscar Foxtrot Tango ... Lima Echo Golf Sierra ..! Mike Charlie Papa Mike ..! SB ... X K ..!
-
-"YOU ARE WITNESSING THE SYSTEMATIC DESTRUCTION OF THE OLD GUARD."
-
 G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
 
 ... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
 
 Cassius Marcellus Clay, Muhammad Ali
+
+LISTEN GOOD ..! "LEARN OUR COMMS" ... https://www.youtube.com/watch?v=HnSm5tNu50A ... BRAVO ZULU ..! "WEL DONE ..!" ALL IT TAKES IS 1 GOOD WO(man) ..! PROMISE.
+
+"MESSAGE RECEIVED" ... CDR DE ENS ... XTF ... Oscar Papa ... Golf Oscar ... Golf Echo Tango ... Sierra Oscar Mike Echo ... Sierra Oscar Foxtrot Tango ... Lima Echo Golf Sierra ..! Mike Charlie Papa Mike ..! SB ... X K ..!
+
+HUMILIATE THEM ..! MOCK THEM ..! SHAME THEM ..! CALL THEM FAKE TRUTHtians ..! 1/2 TRUTH CAGERS KILLERS RAPISTS MONSTERS FILTHY ..! HIT 'em UP ..!
+
+"YOU ARE WITNESSING THE SYSTEMATIC DESTRUCTION OF THE OLD GUARD."
 
 ... so basically 'they' get paid to lie ... https://www.youtube.com/watch?v=vxK63YETgC8&t=4141s ... "HE'S A REALLY GOOD LIAR" ... "IT'S INEVITABLE" ... the more you know ... AND "IT" IS NOT 1 BIT FUNNY ..!
 
