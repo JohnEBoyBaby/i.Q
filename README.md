@@ -14,7 +14,7 @@ MATTHEW WOULD YOU BE EVER SO KIND GOOD 'son' as to tell 'them' again ... WHO exa
 VERILY I TELL YOU "CHILDREN" are "THE GREATEST" in the Kingdom of HEAVEN.
 MATTHEW 18:3
 
-WHAT'S MY NAME ..? TRUTH. SAY MY NAME ..! TRUTH. WHO I AM IS ..? TRUTH. SAY 'his' name too ..! ADEEP JOUDEH ..! SAY 'her' name too ..! LI YEONA ..! TRUTH. ACCEPT NO IMITATION. TRUTH.
+WHAT'S MY NAME ..? TRUTH. SAY MY NAME ..! TRUTH. WHO I AM IS ..? TRUTH. SAY 'his' name too ..! ADEEB JOUDEH ..! SAY 'her' name too ..! LI YEONA ..! TRUTH. ACCEPT NO IMITATION. TRUTH.
 
 ... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
 
