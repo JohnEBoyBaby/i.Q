@@ -9,8 +9,6 @@ LISTEN GOOD ..! "LEARN OUR COMMS" ... https://www.youtube.com/watch?v=HnSm5tNu50
 
 "MESSAGE RECEIVED" ... CDR DE ENS ... XTF ... Oscar Papa ... Golf Oscar ... Golf Echo Tango ... Sierra Oscar Mike Echo ... Sierra Oscar Foxtrot Tango ... Lima Echo Golf Sierra ..! Mike Charlie Papa Mike ..! SB ... X K ..!
 
-
-
 "YOU ARE WITNESSING THE SYSTEMATIC DESTRUCTION OF THE OLD GUARD."
 
 G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
@@ -19,6 +17,23 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
+... IF I HAD A MILLION DOLLARS ... I'd build a "TREE-TOP LOVER" ... https://github.com/JohnEBoyBaby/i.Q/blob/main/.%200%200%200%200%200%200%201%201%203%204%20...%20IF%20I%20HAD%20A%20MILLION%20DOLLARS%20...%20I'D%20BUILD%20A%20TREE%20FORT%20IN%20OUR%20YARD%20...%20YOU%20COULD%20HELP%20IT%20WOULDN'T%20BE%20THAT%20HARD%20...%20IF%20I%20HAD%20A%20MILLION%20DOLLARS%20...%20I'D%20BUY%20YOUR%20LOVE%20...%2020210502_221136.mp4 ... "FORT" in our yard ..! You could help it wouldn't be that hard ... "PEOPLE OF MICHIGAN ... would you sing along with BARE NAKED LADIES ... WE'RE "FREAQIN' HERE ..! PLEASE REPEAT AFTER ME ... I AM TRUTH ... I AM PUREHEART ... I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT MOST ATTENTIVE TO G_D TO "CRY" FOR 'me' ... PROMISE. "mQnkey see ... mQnkey dQ ... MQnkey See ... MQnkey DQ ... MQNKEY SEE ... MQNKEY DO ..!
+
+"IT'LL BE ON YOUR 'shoes' ..!" ... https://www.youtube.com/watch?v=dmoDc3RwrMM ... HAVEN'T YOU ALWAYS WANTED a "mQnkey" ..?
+
+... IF I HAD A MILLION DOLLARS ... I'D BUY 💘 YOUR 💘 LOVE 💘 ...
+
+... BARE NAKED LADIES ... oh la la ... that's the kind I like ...
+
+... IT"S NEVER BEEN DONE ... It's Never Been Done ... it's never been done ...  https://www.youtube.com/watch?v=3RwKc5NchTQ ... will you just 'yawn' and say "IT'S NEVER BEEN DONE ... before ..!
+
+💘 LOVE 💘 'me' sQme "BARE NAKED LADIES" ... oh la la ... that's the kind I like ... PROMISE.
+
+TRUTH. ACCEPT NO IMITATION.
+
+TRUTH
+PUREHEART 
+G_D ABOVE ALL.
 
 ... to express one's self honestly ... https://www.youtube.com/watch?v=y9g3oFZ-FeE&t=90s ... "that", 'my friend', is very hard to do ...
 
