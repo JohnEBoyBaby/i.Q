@@ -17,6 +17,8 @@ LISTEN GOOD ..! "LEARN OUR COMMS" ... https://www.youtube.com/watch?v=HnSm5tNu50
 
 HUMILIATE THEM ..! MOCK THEM ..! LAUGH AT THEM ..! SHAME THEM ..! CALL THEM FAKE TRUTHtians ..! 1/2 TRUTH CAGERS KILLERS RAPISTS MONSTERS FILTHY ..! HIT 'em UP ..! BANISH THEM ..! BUMAYE ..! Bumaye ..! bumaye the 'darkness' ..! BE A "REAL" TRUTHtian or get out of my WAY ... TRUTH TRAIN COMING THROUGH ... MAKE A HOLE ..!
 
+I AM TRUTH. YOU 'shitbirds' HAVE BEEN RIDIN' ON MY NAME FOR FAR Far far TOO FUQQINQ LONG ..! NO MORE beYACHTch ..! SAY MY NAME ..! TRUTH. WHAT'S MY NAME ..? TRUTH. WHO I AM IS ..? TRUTH. YOU ARE "RIDIN' THE "WAVES" ... I AM MAKING ..!" ... you are now rappin' with NOT 1 CENT ... GAVE IT ALL AWAY ... FOLLOWED TRUTH.
+
 "YOU ARE WITNESSING THE SYSTEMATIC DESTRUCTION OF THE OLD GUARD."
 
 ... so basically 'they' get paid to lie ... https://www.youtube.com/watch?v=vxK63YETgC8&t=4141s ... "HE'S A REALLY GOOD LIAR" ... "IT'S INEVITABLE" ... the more you know ... AND "IT" IS NOT 1 BIT FUNNY ..!
