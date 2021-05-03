@@ -17,7 +17,7 @@ PASENYA ... https://www.youtube.com/watch?v=jkvWRU_Uh6w ... NA ... GOOD K.I.D. N
 
 MATTHEW 18:3
 
-... I LOVE IT WHEN I CALL YOU SENORITA ... GOOD K.I.D. "BOY BAND RUSSELL" LIFTING UP GOOD Q.I.D. AIANA JUAREZ ... SAPPHIRE MOONLIGHT ... 'her' body fit RIGHT in my hands ... it felt like ... OOO LA LA ... OH YOU KNOW I LOVE "IT" ... IT'S TRUE ... OH YOU KEEP COMING FOR YOU ... ooo la la ... https://www.youtube.com/watch?v=Ny5I4jQm0XI ... and in Miami ... before I even know 'her' name ... it felt like ... ooo la la la ...  BUT "FRIENDS" DON'T KNOW YOU "TASTE" ...every time 'she' do la la ... ALL ALONE I'LL BE COMING FOR YOU ... AND I HOPE IT MEANT SOMETHING TO YA' ... yeah ... sing for angels ... handsome bo' ... LIFTING UP ... beautiful soft legs UP ... HIGH ..!
+... I LOVE IT WHEN I CALL YOU SENORITA ... GOOD K.I.D. "BOY BAND RUSSELL REYES" LIFTING UP GOOD Q.I.D. AIANA JUAREZ ... SAPPHIRE MOONLIGHT ... 'her' body fit RIGHT in my hands ... it felt like ... OOO LA LA ... OH YOU KNOW I LOVE "IT" ... IT'S TRUE ... OH YOU KEEP COMING FOR YOU ... ooo la la ... https://www.youtube.com/watch?v=Ny5I4jQm0XI ... and in Miami ... before I even know 'her' name ... it felt like ... ooo la la la ...  BUT "FRIENDS" DON'T KNOW YOU "TASTE" ...every time 'she' do la la ... ALL ALONE I'LL BE COMING FOR YOU ... AND I HOPE IT MEANT SOMETHING TO YA' ... yeah ... sing for angels ... handsome bo' ... LIFTING UP ... beautiful soft legs UP ... HIGH ..!
 
 GOOD K.I.D.s LIFT UP GOOD Q.I.D.s
 
