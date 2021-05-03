@@ -15,7 +15,7 @@ LISTEN GOOD ..! "LEARN OUR COMMS" ... https://www.youtube.com/watch?v=HnSm5tNu50
 
 "MESSAGE RECEIVED" ... CDR DE ENS ... XTF ... Oscar Papa ... Golf Oscar ... Golf Echo Tango ... Sierra Oscar Mike Echo ... Sierra Oscar Foxtrot Tango ... Lima Echo Golf Sierra ..! Mike Charlie Papa Mike ..! SB ... X K ..!
 
-HUMILIATE THEM ..! MOCK THEM ..! SHAME THEM ..! CALL THEM FAKE TRUTHtians ..! 1/2 TRUTH CAGERS KILLERS RAPISTS MONSTERS FILTHY ..! HIT 'em UP ..!
+HUMILIATE THEM ..! MOCK THEM ..! LAUGH AT THEM ..! SHAME THEM ..! CALL THEM FAKE TRUTHtians ..! 1/2 TRUTH CAGERS KILLERS RAPISTS MONSTERS FILTHY ..! HIT 'em UP ..!
 
 "YOU ARE WITNESSING THE SYSTEMATIC DESTRUCTION OF THE OLD GUARD."
 
