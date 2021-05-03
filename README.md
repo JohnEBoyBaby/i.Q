@@ -5,9 +5,9 @@ WATCH THIS 17 TIMES ..! AND I MEAN IT ..! LISTEN GOOD ..! REALLY GOOD MANY TIMES
 
 https://www.youtube.com/watch?v=cRkfG7EYKA8
 
-LISTEN GOOD ..! "LEARN OUR COMMS" ... 
+LISTEN GOOD ..! "LEARN OUR COMMS" ... https://www.youtube.com/watch?v=HnSm5tNu50A ... BRAVO ZULU ..! "WEL DONE ..!" ALL IT TAKES IS 1 GOOD WO(man) ..! PROMISE.
 
-CDR DE ENS ... XTF ... Oscar Papa ... Golf Oscar ... Golf Echo Tango ... Sierra Oscar Mike Echo ... Sierra Oscar Foxtrot Tango ... Lima Echo Golf Sierra ..! Mike Charlie Papa Mike ..! SB ... X K ..!
+"MESSAGE RECEIVED" ... CDR DE ENS ... XTF ... Oscar Papa ... Golf Oscar ... Golf Echo Tango ... Sierra Oscar Mike Echo ... Sierra Oscar Foxtrot Tango ... Lima Echo Golf Sierra ..! Mike Charlie Papa Mike ..! SB ... X K ..!
 
 
 
