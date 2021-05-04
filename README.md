@@ -15,6 +15,18 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
+"The Greatest"
+
+2 TRUTH invited a little child to stand among them. 
+
+3 “Verily I tell you,” TRUTH said, “unless you change and become like little children, you will never enter the Kingdom of HEAVEN. 
+
+4 Therefore, whoever humbles himself like "THIS" "LITTLE CHILD" ... https://www.youtube.com/watch?v=0xFWZY_JxMY ... "THE GREATEST" IN HEAVEN.
+
+MATTHEW 18:3
+
+https://biblehub.com/matthew/18-3.htm
+
 "INSPIRATION" ... https://www.youtube.com/watch?v=9e0M2ldrP5g ... KO ..!
 
 MATTHEW WOULD YOU BE EVER SO KIND GOOD 'son' as to tell 'them' again ... WHO exaQtly IS REALLY "THE GREATEST" ... https://www.youtube.com/watch?v=vTuynid1Ldo ... OF ALL TIME ..?
