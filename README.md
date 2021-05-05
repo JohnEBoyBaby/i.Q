@@ -11,7 +11,7 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
-LET'S GO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g&list=RDMM&index=7 ... INSPIRATION KO ..!
+... SUSULONG TAYO ..! LET'S GO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g&list=RDMM&index=7 ... INSPIRATION KO ..!
 
 WE GONNA DO WHAT 'they' SAY CAN'T BE DONE ..! IT'S NEVER BEEN DONE ..! It's Never Been Done ..! it's never been done ... before ..! 
 
