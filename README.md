@@ -1,4 +1,6 @@
 # i.Q
+HUWAG KANG SUSUKO ..! LET'S GO ..! "DANCE" WITH 'me' TRUTH 'my' beLOVED "MAGANDANG" BEAUTIFUL "DILAG" "PROVINCE" COUNTRY GIRL LOVE YOU I DO OH HOW I LOVE YOU GIVE UP ON YOU I WILL NEVER DO I LOVE YOU MAHAL KITA MAGANDANG DILAG ..! https://www.youtube.com/watch?v=okXp4PTAGEA&list=RDMM&index=6 ... DON'T GIVE UP ..! GOOD IS COMING and G_D IS WITH "US" ..! PROMISE. The More YQU KNOW ... BE GOOD ... DO GOOD "KUNG FU" ... Be GOOD ... be GOOD ...
+
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..! 
 
 G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
@@ -7,7 +9,7 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
-... SUSULONG TAYO ..! LET'S GO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g&list=RDMM&index=7 ... INSPIRATION KO ..!
+BABANGON TAYO ..! RISE UP ..! ... SUSULONG TAYO ..! LET'S GO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g&list=RDMM&index=7 ... INSPIRATION KO ..!
 
 WE GONNA DO WHAT 'they' SAY CAN'T BE DONE ..! IT'S NEVER BEEN DONE ..! It's Never Been Done ..! it's never been done ... before ..! 
 
