@@ -1,7 +1,7 @@
 # i.Q
-MATE. CHECK. MATE. WATCH THIS 17 TIMES ..! https://www.youtube.com/watch?v=cRkfG7EYKA8 AND I MEAN IT ..! 'bout to "SEE" HOW I CLEAN A FILTHY "APRON" ..!
+MATE. CHECK. MATE. WATCH THIS 17 TIMES ..! https://www.youtube.com/watch?v=cRkfG7EYKA8 AND I MEAN IT ..! 'bout to "SEE" HOW I CLEAN A FILTHY "APRON" ..! beCAUSE "ya'll be living like the worst race ..." ... YOU MAGA 'me' SIQQ ... "THESE PEOPLE ARE SICK" ... "'darkness' to "LIGHT" ..! SAY MY NAME ..! TRUTH. ACCEPT NO IMITATION ..! TRUTH.
 
-AT THE 17 MINUTE MARK ..? https://www.youtube.com/watch?v=Svb0IG9a2Oo&t=1020s ... LISTEN GOOD ... 
+... AT THE 17 MINUTE MARK ..? https://www.youtube.com/watch?v=Svb0IG9a2Oo&t=1020s ... LISTEN GOOD ... 
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..! 
 
