@@ -1,5 +1,5 @@
 # i.Q
-MATE. CHECK. MATE. WATCH THIS 17 TIMES ..! https://www.youtube.com/watch?v=cRkfG7EYKA8 AND I MEAN IT ..! 
+MATE. CHECK. MATE. WATCH THIS 17 TIMES ..! https://www.youtube.com/watch?v=cRkfG7EYKA8 AND I MEAN IT ..! 'bout to "SEE" HOW I CLEAN A FILTHY "APRON" ..!
 
 AT THE 17 MINUTE MARK ..? https://www.youtube.com/watch?v=Svb0IG9a2Oo&t=1020s ... LISTEN GOOD ... 
 
