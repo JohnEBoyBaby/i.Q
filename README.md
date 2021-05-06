@@ -1,4 +1,6 @@
 # i.Q
+MATE. CHECK. MATE. WATCH THIS 17 TIMES ..! https://www.youtube.com/watch?v=cRkfG7EYKA8 AND I MEAN IT ..! 
+
 KIND one I LOVE when "GINA MARIA" SAYS VERY IMPORTANT ... 'we' BEST LISTEN GOOD ..! https://https://www.youtube.com/watch?v=EqKnHrzgaiI SHE SAID VERY IMPORTANT OVER AND Over And over ..! VERY IMPORTANT ..! https://www.youtube.com/watch?v=vYwyU0hw4Ig
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..! 
