@@ -4,6 +4,8 @@ N [33] ... https://www.sott.net/article/389923-Systemic-coverup-Network-of-polic
 
 "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
 
+"G_D IS WITH 'me' ..! CAN'T "NOBODY" BEAT 'me' ..!" ... I SHOOK UP THE WORLD ..! I Shook Up THe World ..! I shook up the world ..!
+
 I AM "DARKNESS" BEFORE 'darkness' ever came to be ..!  BINGQ ..!
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..! 
