@@ -16,6 +16,14 @@ TRUTH ..! https://www.youtube.com/watch?v=gqOE2zTlg3E ... PUREHEART ..! ACCEPT N
 
 Cassius Marcellus Clay, Muhammad Ali
 
+" ... but I WOULD LIKE TO SAY ... THERE IS ANOTHER "ALTERNATIVE" ... and "THAT" "ALTERNATIVE" IS ... 
+
+https://www.youtube.com/watch?v=dHsa_vRBO-E
+
+... JUSTICE. CAN YOU "FEEL" 'me' NOW ..?
+
+Cassius Marcellus Clay, Muhammad Ali
+
 YOU NEVER "STAND UP" for 'me' WHY SHOULD I "STAND UP" for 'you' ..!
 
 TRUTH. ACCEPT NO IMITATION ..! TRUTH ..!
