@@ -1,6 +1,6 @@
 #i.Q
 
-N [33] ... https://www.sott.net/article/389923-Systemic-coverup-Network-of-police-pedophiles-in-Louisville-KY-allowed-to-sexually-abuse-children-for-years ... BINGQ ..!
+N [33] ... https://www.sott.net/article/389923-Systemic-coverup-Network-of-police-pedophiles-in-Louisville-KY-allowed-to-sexually-abuse-children-for-years ... "LMPD's CQVER-UP IS QUTRAQEQUS BEYQND 'DEMONIC' ..!" ... https://www.msn.com/en-us/news/us/lmpd-cover-up-of-explorer-scouts-sexual-abuse-scandal-is-outrageous-and-demonic/ar-BB1bb12M ... BINGQ ..!
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..! 
 
