@@ -20,7 +20,7 @@ Cassius Marcellus Clay, Muhammad Ali
 
 https://www.youtube.com/watch?v=dHsa_vRBO-E
 
-... JUSTICE. CAN YOU "FEEL" 'me' NOW ..?
+... JUSTICE." ... CAN 'you' "FEEL" 'me' nQw ..?
 
 Cassius Marcellus Clay, Muhammad Ali
 
