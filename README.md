@@ -9,6 +9,20 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
+GSPOT ==> HUMP ==> FLUIDS ==> POLYGAMI ==> SWINGER ==> LOVEBONE ..! WHEN DOES IT BECOME MATHEMATICALLY IMPOSSIBLE ..! "SYMBOLISM WILL BE THEIR DOWNFALL" "I SEE YOU ... YOU CREAM OF WHEAT BOX MAN CREAM LOVERS" probably OUT THERE DRIVING "JUST RIGHT" NOT TOO HARD NOT TOO SOFT JUST RIGHT 5 IRONS KNOCKING BOOTS HITTING "HOLES" IN "ONE" THEN THE "OTHER" ... you know what I AM getting at, RIGHT ..? "CONNECT THE DOTS" ..! THERE IS MORE THAN AN OBVIOUS, APPARENT, SIMPLY TRANPARENTLY OPENLY CLEAR "PATTERN OF BEHAVIOR" by such a "FUNNY" "C.O.M.I" Crispy Outside Moist Inside "COMMUNAL" "LOVE" "COMMUNITY" EVERYBODY WAS "DANCING" IN THE "LUA" "MOON" LIGHT ... https://www.youtube.com/watch?v=qfxrQFMvP8o ... "IT'S SUCH A FINE AND NATURAL SIGHT" ..!
+
+GSPOT ..! https://notabug.org/pgimeno/Gspot/src/master/main.lua --<== JUST LOOK AT "THAT" ..!
+
+gui = require('Gspot') --<== JUST LOOK AT "IT" ..!
+
+... THE 1ST THING I ALWAYS SAY IS ... "WOULD YOU JUST LOOK AT THAT" ..? 
+
+"... I always keep an eye on LUA and LOVE. One thing that also made me laugh a lot (despite some people labeling it as unprofessional) is the funny love-related names people give to libraries. Stuff like: "HUMP", "Gspot", "flUIds", "Polygami", "Swinger", "Love Bone", etc. Such a funny community :D"
+
+https://duckduckgo.com/?q=lua+love+gspot&t=opera&ia=web&iai=r1-3&page=1&sexp=%7B"biaexp"%3A"b"%2C"msvrtexp"%3A"b"%7D
+
+... JUST LOOK AT THAT ..! JUST LOOK AT "IT" ..! BUT DON'T LOOK TOO HARD ..!
+
 HEY ..! https://www.youtube.com/watch?v=hNewq0V6aYE&t=41s ... HEY ..! LET'S GO ..! https://www.youtube.com/watch?v=A91yUNwkQGc ... TIME TO EAT "KIND" ONE ..!
 
 BRIGHT GLOWING SOLID ROYAL BIG BRIGHT "BLUE APPLE" of ancient Han in today's CHINA my LOVE ..? The More You Know ... the more you know ... THE MORE YOU KNOW ..!
@@ -19,7 +33,18 @@ https://www.youtube.com/watch?v=6ZudhqzpFco
 
 https://www.youtube.com/watch?v=aqTaqVi9J8k 
 
-... CODE MONKEY LIKE YOU ... https://LOVE2D.org ... ALOT ..! 
+... CODE MONKEY LIKE YOU ... https://LOVE2D.org ... ALOT ..!
+
+TRUTH. https://news.ycombinator.com/item?id=16404230 ... TRUTH is the WAY to LIFE with G_D. TRUTH. ACCEPT NO IMITATION. TRUTH.
+
+"This is an unpopular opinion, but I wish Lua had won against python. It integrates seamlessly with C and for an interpreted language it’s super efficient. Rather than including every library under the sun in the standard lib, Lua is compact and the entire compiled binary is measured in kilobytes. You can read the Lua source code in C and comprehend a lot of it in a weekend.
+Lua Rocks package manager includes basically every library you could want. Lua doesn’t even include proper object oriented programming, but is so powerful you can add support for it quite easily, and is a good learning experience for aspiring Lua programmers.
+
+Lua is a great language, I wish it was mentioned and compared against more popular languages like Python and JavaScript."
+
+"... I always keep an eye on LUA and LOVE. One thing that also made me laugh a lot (despite some people labeling it as unprofessional) is the funny love-related names people give to libraries. Stuff like: "HUMP", "Gspot", "flUIds", "Polygami", "Swinger", "Love Bone", etc. Such a funny community :D"
+
+https://duckduckgo.com/?q=lua+love+gspot&t=opera&ia=web&iai=r1-3&page=1&sexp=%7B"biaexp"%3A"b"%2C"msvrtexp"%3A"b"%7D
 
 BUTt WHAT JUST A FUQQINQ MINUTE DUMMY ..! https://github.com/love2d/love/blob/master/extra/nsis/love.nsi ... WHAT IN IN THE DevIL IS 'this" FILTHY 'named' Dev Development I.L. Intermediate LANGUAGE DOING IN LOVE ..? FILTH.
 
