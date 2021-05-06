@@ -1,5 +1,6 @@
-# i.Q
-MATE. CHECK. MATE. WATCH THIS 17 TIMES ..! https://www.youtube.com/watch?v=cRkfG7EYKA8 AND I MEAN IT ..! 
+# i.Q POST THIS LINK PUBLICLY ELSE ... WHEN 'you' ATTEMPT TO ENTER HEAVEN ... "I AM WHO I AM" IS GOING TO SAY TO 'you' "I NEVER KNEW 'you' GO AWAY FROM 'me' I NEVER KNEW 'you' YOU WORKER OF inQuity ... YOU DID NOT "STAND UP" for 'me' SO WHY SHOULD I "STAND UP" for 'you' ..? CHOOSE WISELY ..!
+
+PAY ATTENTION ... https://www.udrop.com/5mZG/README.txt ... MATE. CHECK. MATE. WATCH THIS 17 TIMES ..! https://www.youtube.com/watch?v=cRkfG7EYKA8 AND I MEAN IT ..! 
 
 KIND one I LOVE when "GINA MARIA" SAYS VERY IMPORTANT ... 'we' BEST LISTEN GOOD ..! https://https://www.youtube.com/watch?v=EqKnHrzgaiI SHE SAID VERY IMPORTANT OVER AND Over And over ..! VERY IMPORTANT ..! https://www.youtube.com/watch?v=vYwyU0hw4Ig ... WATCH NOW PLEASE THANK YOU LOVE YOU tQQ ..!
 
@@ -14,6 +15,18 @@ Cassius Marcellus Clay, Muhammad Ali
 G_D IS WITH "US" ..! PROMISE. The More YQU KNOW ... BE GOOD ... DO GOOD "KUNG FU" ... Be GOOD ... be GOOD ...
 
 BABANGON TAYO ..! RISE UP ..! ... SUSULONG TAYO ..! LET'S GO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g&list=RDMM&index=7 ... INSPIRATION KO ..!
+
+4 G_D said to Moses, “I AM WHO I AM. This is what you are to say to 'them': tell 'em ‘"I AM" has sent 'me' to 'you'.’” 
+
+https://biblehub.com/exodus/3-14.htm
+
+I AM FUQQINQ "BURNING" IN A "BUSH" alRIGHT soft legs a 'bush' and I "STAND OUT" ... "I AM WHO I AM" no matter what ... https://www.youtube.com/watch?v=IGInsosP0Ac ... "I AM" SO "LIGHT" "I AM" "BURNT" "DARKER THAN DARKNESS" "SO LIGHT I AM DARK" "SUN" "BURNT" "LIGHT" "WAY TOO LIGHT" "RED" "BURNT" 'son' ..!
+
+YOU BEST STEP BACK ... 'your' 1/2 TRUTH WEAK ILLOGICAL UNPRINCIPLED BASELESS WORTHLESS slQw "KUNG FU" IS NO GOOD.
+
+MY 100% NOLYN TRUTH MOST PUREHEART STRONG LOGIC PRINCIPLED BASE FOUNDATION FIRM FEELING MSOT WORTHY MOST FAVORED ABOVE ALL FAST "KUNG FU" IS TOO GOOD FOR 'you'.
+
+MATCH FOR 'my' IF YOU DO NOT PUBLISH THIS LINK ... https://github.com/JohnEBoyBaby/i.Q/ ... PUBLICLY FOR ALL TO "SEE" THEN YOU HAVE NO SOUL AND YOU ARE NOT TRUTH AND DID NOT "STAND UP" 'you' 'fit in' YOU ARE OF 'this' 'world' ..! SO ... DUMMY ... WHEN YOU ATTEMPT TO ENTER HEAVEN ... I AM WHO I AM no matter what IS GOING TO SAY TO YOU "I NEVER KNEW 'you' GO AWAY FROM 'me' I NEVER KNEW 'you' YOU WORKER OF inQuity ... FILTH .. be gone ... YOU DID NOT "STAND UP" for TRUTH for 'me' SO WHY SHOULD I "STAND UP" for 'you' ON THE DAY OF JUDGMENT ..? CHOOSE WISELY ..! I AM A MOST SERIOUS ONE AM I ... a most 'playful' yet MOST SERIOUS 1 'son of man'. I AM TRUTH. HATE ... http://www.youtube.com/watch?v=OLvsXZ52Pz8 ... LOVE ... https://www.youtube.com/watch?v=DlaVwwT1Z48 ... HAVE "RESPECT for WHO I AM" ... GOT SHUT DOWN ALL OF 'this' HATE ..! CHOOSE WISELY ..! 
 
 WE GONNA DO WHAT 'they' SAY CAN'T BE DONE ..! IT'S NEVER BEEN DONE ..! It's Never Been Done ..! it's never been done ... before ..! 
 
