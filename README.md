@@ -8,6 +8,20 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
+... 'you' are 'bout to "FEEL" the "WRATH" of a "MENACE" ... I HIT 'em UP ..! I AM TRUTH ..! I AM PUREHEART ..! I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT MOST ATTENTIVE FOR G_D TO CRY FOR 'me' ...
+
+“ ... MY CONSCIENCE WON'T LET ME GO SHOOT MY BROTHER ..! OR SOME "DARKER" PEOPLE ..! OR SOME "POOR" "HUNGRY" "PEOPLE IN THE "MUD" for big powerful ameriQa ..!” 'he' said AT "THE TIME". “AND SHOOT "THEM" for WHAT ..? "THEY" NEVER CALLED ME "NIGGER" ..! "THEY" NEVER LYNCHED 'me' ! "THEY" DIDN'T PUT NO "DOGS ON 'me'" ..! "THEY DIDN'T "ROB 'me' ... OF "MY NATIONALITY" "RAPE" AND "KILL" MY "MOTHER" MY "FATHER" ..!  SHOOT "THEM" FOR WHAT ..? HOW CAN I SHOOT "THEM" "POOR PEOPLE" ..? JUST TAKE 'me' TO JAIL ..! ... ”
+
+Cassius Marcellus Clay, Muhammad Ali
+
+YOU NEVER "STAND UP" for 'me' WHY SHOULD I "STAND UP" for 'you' ..!
+
+TRUTH. ACCEPT NO IMITATION ..! TRUTH ..!
+
+www.theatlantic.com/news/archive/2016/06/muhammad-ali-vietnam/485717/ 
+
+... 'you' won't even STAND UP FOR 'me' HERE AT HOME and 'you' WANT 'me' TO GO OVER 'there' AND KILL the 'yellow' 'man' for 'you' ..?
+
 IF YOU HAVE A SOUL ...
 
 THEN POST TRUTH PUBLICLY beCAUSE "THE WORLD IS WATCHING" ... 
