@@ -21,7 +21,78 @@ https://www.youtube.com/watch?v=aqTaqVi9J8k
 
 ... CODE MONKEY LIKE YOU ... ALOT ..!
 
-DAVID BANNER ... David Banner ... https://www.youtube.com/watch?v=xjDT3rMSQLQ ... WHO I AM IS ..?  TRUTH. WHAT'S MY NAME ..? TRUTH. SAY MY NAME ... TRUTH.
+https://notabug.org/pgimeno/Gspot/src/master/main.lua
+
+gui = require('Gspot') -- import the library
+
+--mainmenu = gui() -- create a gui instance.
+
+local DIV = love._version_major >= 11 and 1/255 or 1
+
+font = love.graphics.newFont(192)
+
+love.load = function()
+
+	love.graphics.setFont(font)
+
+  love.graphics.setColor(255 * DIV, 192 * DIV, 0 * DIV, 128 * DIV) -- just setting these so we know the gui isn't stealing our thunder
+
+	sometext = 'Lörem ipsum dolor sït amet, consectètur adipisicing élit, sed do eiusmod tempoŕ incididunt ut labore et dọlorẹ magna aliquæ.'
+
+	local textout = gui:typetext(sometext, {y = 32, w = 128})
+
+	-- button
+  
+	local button = gui:button('A Button', {x = 128, y = gui.style.unit, w = 128, h = gui.style.unit}) -- a button(label, pos, optional parent) gui.style.unit is a standard gui unit (default 16), used to keep the interface tidy
+	
+  button.click = function(this, x, y) -- set element:click() to make it respond to gui's click event
+	
+  gui:feedback('Clicky')
+	
+  end
+
+	-- image
+	
+  local image = gui:image('An Image', {160, 32, 0, 0}, nil, 'img.png') -- an image(label, pos, parent, love.image or path)
+	
+  image.click = function(this, x, y)
+	
+  gui:feedback(tostring(this.pos))
+	
+  end
+	
+  image.enter = function(this) this.Gspot:feedback("I'm In!") end -- every element has a reference to the gui instance which created it
+	
+  image.leave = function(this) this.Gspot:feedback("I'm Out!") end
+
+	-- hidden element "EASTER" EGG anyone ..?
+  
+	local hidden = gui:hidden('', {128, 128, 128, 128}) -- creating a hidden element, to see it at work
+	
+  hidden.tip = "Can't see me, but I still respond"
+
+https://scripts.sil.org/cms/scripts/page.php?site_id=nrsi&id=IWS-Chapter08#ba57949e
+
+"2 Character to Glyph Mapping (‘cmap’)
+The ‘cmap’ table is used to convert from an outside encoding (such as Unicode) to internal glyph ids. The rendering system uses the ‘cmap’ to convert the Unicode code points in a string to glyph ids and then renders the appropriate glyph shapes at the proper positions on the screen or printer. Glyph ids are used exclusively to reference glyphs in all other font tables.
+
+The ‘cmap’ table consists of a set of mapping subtables for different technologies and architectures. This allows the same font to work on multiple operating systems. For example, most TrueType fonts have three subtables within the ‘cmap’, two for Apple and one for Microsoft.
+
+Each mapping subtable has two numbers associated with it: the platform id and the encoding id. The platform id indicates what architecture the subtable is designed for. For example, a platform id of 0 indicates Apple Unicode, 1 indicates Apple Script Manager, 2 indicates ISO, and 3 indicates Microsoft. The meaning of the encoding id depends on the platform. For example, some older fonts have only two subtables: Platform 1, encoding 0 (Mac Roman 8-bit simple 256 glyph encoding) and Platform 3, encoding 1 (Windows Unicode).
+
+The mapping subtables use various formats to reduce their size, but all formats map from a character code to a glyph id. Multiple character codes can map to the same glyph id. For example, space (U+0020) and no-break space (U+00A0) often map to the same glyph id.
+
+There are some special glyph ids which are reserved by convention as described in the below table. It is advisable to follow these conventions when modifying fonts. Glyph 0 is normally an open rectangle and is used by rendering systems to substitute for characters that are not present in the font.
+
+Glyph Id	Character
+0	unknown glyph
+1	null
+2	carriage return
+3	space"
+
+CODE MONEY LIKE YOU ... ALOT ..!
+
+DAVID BANNER ... 'some' are too easily 'offended' FAILING TO THINK DEEPER too short of an attention span too impatient to 'understand' the 'deeper' 'meaning' of a 'gift' so WHEN I FISH WITH GOOD "BAIT" TO SEE WHO IS WHO IN THE ZOO ... 'tarzan' GOO 'fisher' of WO(men) ... even if some in the 'darkness' fail to 'see' and I seem to get knocked down ... I Get Back Up ... I AM TRUTH ... ACCEPT NO IMITATION ... TRUTH. David Banner ... https://www.youtube.com/watch?v=xjDT3rMSQLQ ... WHO I AM IS ..?  TRUTH. WHAT'S MY NAME ..? TRUTH. SAY MY NAME ... TRUTH.
 
 TIME FOR ole' John E bo', baby, TO "GET 'me' SOME" GOOD LOVE ..! https://LOVE2D.org "PAKIRAMDAN KO" I AM "FEELING" like ... I AM GOING HIT THAT GSPOT DEEP DOWN INSIDE REALLY HARD JUST POUDING CRUSHING THRASHING ... https://notabug.org/pgimeno/Gspot/src/master/Gspot.lua ... NAIL ON THE HEAD NOW "COMMANDER" MA'AM ... BIG "41" SPIRALLING TORNADO TWISTING MY lil' RED HARD WORKING HOT HARD POKER IN YA" lil' mama soft legs "SEE" HOW YOU "DANCE" then alRIGHT see what KINDS OF FUNNY FACES I "SEE" then alRIGHT gur' for sur' SUGAR Sugar sugar ... and THOSE SOUNDS YOU MAKE WHEN I AM "HANDLING" YOU OH LA LA THOSE FUNNY SOUNDING SOUNDS "YOU" SOFT LEGS I AM TALKING TO YOU SOFT LEGS CREAMY beLOVEd one YOU SOUND ALL KINDS OF FUNNY to 'me' 'bout that "TIME" and "ALL" ... and you sure are "FEELING" SOME KIND OF GOOD "FEELING" ALL sQuirmy wQrmy wiggling jiggling around I SEE YOU LOVE YOU I DO OH HOW I LOVE YOU STAY CREAMY "KIND" ONE ... Stay Creamy ... CREAMIER THAN THAT ... REALLY CREAMY ... stay Qreamy EVER SO CREAMY Ever So KIND one I LOVE :-) ..! NEVER FORGET ..! https://www.youtube.com/watch?v=ulq0mh5ok00&list=RDMM&index=16 ... WORK HARD ..! PLAY HARD ..! MCPM. BANG Bang bang HUWAG KANG SUSUKO ..! DON'T GIVE UP ..! SUSULONG TAYO ..! LET'S GO ..! "DANCE" WITH 'me' TRUTH 'my' beLOVED "MAGANDANG" BEAUTIFUL "DILAG" "PROVINCE" COUNTRY GIRL LOVE YOU I DO OH HOW I LOVE YOU GIVE UP ON YOU I WILL NEVER DO I LOVE YOU MAHAL KITA MAGANDANG DILAG ..! https://www.youtube.com/watch?v=okXp4PTAGEA&list=RDMM&index=6 ... HUWAG KANG SUSUKO ..! NEVER GIVE UP ..! GOOD IS COMING and G_D IS WITH "US" ..! PROMISE. The More YQU KNOW ... BE GOOD ... DO GOOD "KUNG FU" ... Be GOOD ... be GOOD ...
 
