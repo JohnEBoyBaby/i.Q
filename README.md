@@ -21,7 +21,7 @@ gui = require('Gspot') --<== JUST LOOK AT "IT" ..!
 
 https://duckduckgo.com/?q=lua+love+gspot&t=opera&ia=web&iai=r1-3&page=1&sexp=%7B"biaexp"%3A"b"%2C"msvrtexp"%3A"b"%7D
 
-... JUST LOOK AT THAT ..! JUST LOOK AT "IT" ..! BUT DON'T LOOK TOO HARD ..!
+... JUST LOOK AT THAT ..! JUST LOOK AT "IT" ..! https://www.youtube.com/watch?v=pJ-eZY-80ek&t=247s ... well ... DON'T LOOK AT "IT" TOO HARD ..!
 
 HEY ..! https://www.youtube.com/watch?v=hNewq0V6aYE&t=41s ... HEY ..! LET'S GO ..! https://www.youtube.com/watch?v=A91yUNwkQGc ... TIME TO EAT "KIND" ONE ..!
 
