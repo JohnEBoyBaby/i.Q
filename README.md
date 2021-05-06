@@ -19,7 +19,41 @@ https://www.youtube.com/watch?v=6ZudhqzpFco
 
 https://www.youtube.com/watch?v=aqTaqVi9J8k 
 
-... CODE MONKEY LIKE YOU ... ALOT ..!
+... CODE MONKEY LIKE YOU ... https://LOVE2D.org ... ALOT ..! 
+
+BUTt WHAT JUST A FUQQINQ MINUTE DUMMY ..! https://github.com/love2d/love/blob/master/extra/nsis/love.nsi ... WHAT IN IN THE DevIL IS 'this" FILTHY 'named' Dev Development I.L. Intermediate LANGUAGE DOING IN LOVE ..? FILTH.
+
+!insertmacro MUI_UNPAGE_WELCOME
+!insertmacro MUI_UNPAGE_CONFIRM
+!insertmacro MUI_UNPAGE_INSTFILES
+
+# Languages
+!insertmacro MUI_LANGUAGE "English"
+
+# Main Program
+Section "LOVE" MainProg
+
+	SectionIn RO
+	SetOutPath $INSTDIR
+	File "${LOVEBINDIR}\love.exe"
+	File "${LOVEBINDIR}\DevIL.dll" <== MY "KUNG FU" IS TOO GOOD. YOU NO "FOOL" 'me' ..! YOU NOT MAKE ME COMPLICIT IN YOUR FILTH ..! I SHINE BRIGHT LIGHT ..!
+	File "${LOVEBINDIR}\SDL.dll"
+	File "${LOVEBINDIR}\OpenAL32.dll"
+	File "${LOVEBINDIR}\libmpg123.dll"
+	File "${LOVEBINDIR}\gme.dll"
+	# File "${LOVEBINDIR}\lua51.dll"
+	File "${LOVEICODIR}\love.ico"
+	File "${LOVEICODIR}\game.ico"
+
+MY GOOD "BRANCH" OF "LOVE" WILL MOST CERTAINLY BE RENAMING 'that' 'resource' OR UNINSTALL 'COMPLETELY' AND 'PERMANENTLY' ... TRUST. Every "WORD" HAS A "MEANING" AND AN "INTENT" ... I SHALL RE-NAME 'him' "BigColdBloodedDeviantDeceptiveDummyIL" ... TO MAKE SURE ... YOU HAVE A CHOICE ... A FREE WILL CHOICE ... so ... IF YOU CHOOOSE ... YOU CAN ... PICK "MY" "BRANCH" OF "LOVE" AND PERHAPS JUST MAYBE IN THE FUTURE SOME OF MY "CHANGES" WILL BE ADOPTED BY THE LET US SAY "OFFICIAL" LOVE "BRANCH" WERE THE "MERGE" IS SEEN IN THE LIGHT OF DAY TO BE "BEYOND COMPARE" JUST A DAMN GOOD "CHANGE" AFTER ALL for it 'twas the day after ...
+
+# Uninstall
+Section "Uninstall"
+	Delete $INSTDIR\"DevIL.dll" <== YOUR "KUNG FU" NO GOOD. I WILL BE "SEE"ing YOU BACK "HOME" ... WE WILL "ALL" "SEE" HOW "FUNNY" YOUR FILTHY NAMING CONVENTION IS TO ALL THE ANGELS IN HEAVEN ..! PROMISE. ONLY 1 OF US IS RIGHT ..! SEE YOU BACK "HOME" ... PROMISE.
+	
+POOF ..! "LIKE YOU WERE NEVER HERE" ..!
+	
+THERE IS NO FILTH IN HEAVEN. NONE. NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS. JOKE 'em IF 'they' CAN'T TAKE A FUQQ ..!
 
 https://notabug.org/pgimeno/Gspot/src/master/main.lua
 
@@ -90,7 +124,35 @@ Glyph Id	Character
 2	carriage return
 3	space"
 
-CODE MONEY LIKE YOU ... ALOT ..!
+https://github.com/love2d/love/blob/master/src/modules/graphics/Graphics.cpp
+
+Font *Graphics::newFont(love::font::Rasterizer *data, const Texture::Filter &filter)
+{
+	return new Font(data, filter);
+}
+
+Font *Graphics::newDefaultFont(int size, font::TrueTypeRasterizer::Hinting hinting, const Texture::Filter &filter)
+{
+	auto fontmodule = Module::getInstance<font::Font>(M_FONT);
+	if (!fontmodule)
+		throw love::Exception("Font module has not been loaded.");
+
+	StrongRef<font::Rasterizer> r(fontmodule->newTrueTypeRasterizer(size, hinting), Acquire::NORETAIN);
+	return newFont(r.get(), filter);
+}
+
+"X" MARKS THE SPOT ... BEGIN HERE ... THIS IS WHERE THE "GSPOT" "LOVE" OCCURS ... A CUSTOM TRUE TYPE FONT .TTF CAN ALSO BE ACCOMPLISHED USING THE CMAP TABLE ... 
+
+"2 Character to Glyph Mapping (‘cmap’)
+
+
+The ‘cmap’ table is used to convert from an outside encoding (such as Unicode) to internal glyph ids. The rendering system uses the ‘cmap’ to convert the Unicode 
+
+code points in a string to glyph ids and then renders the appropriate glyph shapes at the proper positions on the screen or printer. 
+
+... the more you know ...
+
+CODE MONKEY LIKE YOU ... ALOT ..!
 
 DAVID BANNER ... 'some' are too easily 'offended' FAILING TO THINK DEEPER too short of an attention span too impatient to 'understand' the 'deeper' 'meaning' of a 'gift' so WHEN I FISH WITH GOOD "BAIT" TO SEE WHO IS WHO IN THE ZOO ... 'tarzan' GOO 'fisher' of WO(men) ... even if some in the 'darkness' fail to 'see' and I seem to get knocked down ... I Get Back Up ... I AM TRUTH ... ACCEPT NO IMITATION ... TRUTH. David Banner ... https://www.youtube.com/watch?v=xjDT3rMSQLQ ... WHO I AM IS ..?  TRUTH. WHAT'S MY NAME ..? TRUTH. SAY MY NAME ... TRUTH.
 
