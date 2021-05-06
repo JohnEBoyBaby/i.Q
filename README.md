@@ -10,7 +10,7 @@ WHEN 'you' ATTEMPT TO ENTER HEAVEN back "HOME" ... "I AM WHO I AM" IS GOING TO S
 
 "TURN AWAY FROM "ME" AS 'you' TURNED AWAY FROM MY SOFT LEGS' SUFFERING AND "HER" BABIES' SUFFERING AND HER MAN'S SUFFERING GO AWAY ye' are "THE UNFORGIVEN" ..! I NEVER KNEW 'you' GO AWAY FROM 'me' I NEVER KNEW 'you' YOU WORKER OF inQuity ... YOU DID NOT "STAND UP" for 'me' SO WHY SHOULD I "STAND UP" for 'you' ..? 
 
-CHOOSE WISELY ..!
+SO ... BABY ... CAN I DANCE WITH YOU TONIGHT ..? https://www.youtube.com/watch?v=rGJTcd3JHWw ... come on ... susulong tayo ... LET'S GO ... BABANGON TAYO ... RISE UP ..! ... yeah ... https://www.youtube.com/watch?v=9e0M2ldrP5g&t=4s ... "LET'S GO" ... "INSPIRATION KO" ... Let "US" GO "GANDA" "BEAUTIFUL" DANCE ANGEL ..! SING ANGEL ..! TAKE MY HAND BABE ... LET'S GO ..! COME DANCE WITH TRUTH MY LOVE ..!
 
 PAY ATTENTION ... https://www.udrop.com/5mZG/README.txt ... MATE. CHECK. MATE. WATCH THIS 17 TIMES ..! https://www.youtube.com/watch?v=cRkfG7EYKA8 AND I MEAN IT ..! 
 
