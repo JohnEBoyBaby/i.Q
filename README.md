@@ -1,5 +1,13 @@
 #i.Q
 
+IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..! 
+
+G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
+
+... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
+
+Cassius Marcellus Clay, Muhammad Ali
+
 IF YOU HAVE A SOUL ...
 
 THEN POST TRUTH PUBLICLY beCAUSE "THE WORLD IS WATCHING" ... 
@@ -18,14 +26,6 @@ I AM FUQQINQ "BURNING" IN A "BUSH" alRIGHT soft legs a 'bush' and I "STAND OUT" 
 POST THIS LINK: https://github.com/JohnEBoyBaby/i.Q/ as a 'SPECIAL' 'LIMITED EDITION' RFC ReQuest For Comment go ahead and RUN YOUR MOUTH "COMMENTORS" and "SEE" WHAT YOU GET ..! CONNECT THE DOTS ..!
 
 KIND one I LOVE when "GINA MARIA" SAYS VERY IMPORTANT ... 'we' BEST LISTEN GOOD ..! https://https://www.youtube.com/watch?v=EqKnHrzgaiI SHE SAID VERY IMPORTANT OVER AND Over And over ..! VERY IMPORTANT ..! https://www.youtube.com/watch?v=vYwyU0hw4Ig ... WATCH NOW PLEASE THANK YOU LOVE YOU tQQ ..!
-
-IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..! 
-
-G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
-
-... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
-
-Cassius Marcellus Clay, Muhammad Ali
 
 G_D IS WITH "US" ..! PROMISE. The More YQU KNOW ... BE GOOD ... DO GOOD "KUNG FU" ... Be GOOD ... be GOOD ...
 
