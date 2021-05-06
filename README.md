@@ -46,7 +46,7 @@ Lua is a great language, I wish it was mentioned and compared against more popul
 
 https://duckduckgo.com/?q=lua+love+gspot&t=opera&ia=web&iai=r1-3&page=1&sexp=%7B"biaexp"%3A"b"%2C"msvrtexp"%3A"b"%7D
 
-BUTt WHAT JUST A FUQQINQ MINUTE DUMMY ..! https://github.com/love2d/love/blob/master/extra/nsis/love.nsi ... WHAT IN IN THE DevIL IS 'this" FILTHY 'named' Dev Development I.L. Intermediate LANGUAGE DOING IN LOVE ..? FILTH.
+BUT BUTTHEAD 'you' JUST HOLD YOUR HORSES there "LOVEy DOVEy" ... 'you' lil' DevIL.dll 'hidden in plain sight' FILTH ... 'you' SHITBIRD 'you' WAIT JUST A FUQQINQ MINUTE DUMMY ..! https://github.com/love2d/love/blob/master/extra/nsis/love.nsi ... WHAT IN IN THE DevIL IS 'this" FILTHY 'named' Dev Development I.L. Intermediate LANGUAGE DOING IN LOVE ..? FILTH.
 
 !insertmacro MUI_UNPAGE_WELCOME
 !insertmacro MUI_UNPAGE_CONFIRM
