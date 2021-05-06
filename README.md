@@ -1,6 +1,6 @@
 #i.Q
 
-N [33] ... https://www.sott.net/article/389923-Systemic-coverup-Network-of-police-pedophiles-in-Louisville-KY-allowed-to-sexually-abuse-children-for-years ... "LMPD's CQVER-UP IS QUTRAQEQUS BEYQND 'DEMONIC' ..!" ... https://www.msn.com/en-us/news/us/lmpd-cover-up-of-explorer-scouts-sexual-abuse-scandal-is-outrageous-and-demonic/ar-BB1bb12M ... https://duckduckgo.com/?q=sott.net+lmpd+systemic+sexual+abuse+of+children&t=opera&ia=web ... "SINCE WE ARE BOTH "RELIGIOUS" ... BEAT THE "DEVIL" OF 'him' ... "HE'S A BULLY ..!" "SCARED OF WHAT ..?" G_D IS WITH 'me' ..! "I MUST BE 'the greatest' ..! "THEN I WILL WHOOP 'him' ..! CHECK MATE ..!
+N [33] ... https://www.sott.net/article/389923-Systemic-coverup-Network-of-police-pedophiles-in-Louisville-KY-allowed-to-sexually-abuse-children-for-years ... "LMPD's CQVER-UP IS QUTRAQEQUS BEYQND 'DEMONIC' ..!" ... https://www.msn.com/en-us/news/us/lmpd-cover-up-of-explorer-scouts-sexual-abuse-scandal-is-outrageous-and-demonic/ar-BB1bb12M ... https://duckduckgo.com/?q=sott.net+lmpd+systemic+sexual+abuse+of+children&t=opera&ia=web ... "SINCE WE ARE BOTH "RELIGIOUS" ... "PERFORM AN EXORCISM ..!" ... BEAT THE "DEVIL" OF 'him' ... "'this' 'man' is a 'bully' ..!" "I AM A "MATADOR" ..! "SCARED OF WHAT ..?" G_D IS WITH 'me' ..! "I MUST BE 'the greatest' ..! "THEN I WILL WHOOP 'him' ..! CHECK MATE ..!
 
 I AM "DARKNESS" BEFORE 'darkness' ever came to be ..!  BINGQ ..!
 
