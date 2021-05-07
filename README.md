@@ -1,12 +1,40 @@
 #i.Q
 
-N [33] ... https://www.sott.net/article/389923-Systemic-coverup-Network-of-police-pedophiles-in-Louisville-KY-allowed-to-sexually-abuse-children-for-years ... "LMPD's CQVER-UP IS QUTRAQEQUS BEYQND 'DEMONIC' ..!" ... https://www.msn.com/en-us/news/us/lmpd-cover-up-of-explorer-scouts-sexual-abuse-scandal-is-outrageous-and-demonic/ar-BB1bb12M ... https://duckduckgo.com/?q=sott.net+lmpd+systemic+sexual+abuse+of+children&t=opera&ia=web ... "SINCE WE ARE BOTH "RELIGIOUS" ... "PERFORM AN EXORCISM ..!" ... BEAT THE "DEVIL" OF 'him' ... "'this' 'man' is a 'bully' ..!" "I AM A "MATADOR" ..! "SCARED OF WHAT ..?" G_D IS WITH 'me' ..! "I MUST BE 'the greatest' ..! "THEN I WILL WHOOP 'him' ..! CHECK MATE ..!
+N [33] ... https://www.sott.net/article/389923-Systemic-coverup-Network-of-police-pedophiles-in-Louisville-KY-allowed-to-sexually-abuse-children-for-years ... "LMPD's CQVER-UP IS QUTRAQEQUS BEYQND 'DEMONIC' ..!" ... https://www.msn.com/en-us/news/us/lmpd-cover-up-of-explorer-scouts-sexual-abuse-scandal-is-outrageous-and-demonic/ar-BB1bb12M ... https://duckduckgo.com/?q=sott.net+lmpd+systemic+sexual+abuse+of+children&t=opera&ia=web ...   BINGQ.
+
+... "'he' WAS GONNA "KILL 'me'" ... "I AM" "EXPERIENCED" NQW ..! 
+
+https://www.youtube.com/watch?v=_uFU-bKcq7c
+
+... "I DONE "WRASTLED" WITH AN ALLIGATOR" ..!
+
+"I DONE TUSTLED WITH A "WHALE" ..!" (RIGHT CRYPO 'WHALES' ..? RIGHT ..!) ...
+
+"I DONE HANDCUFFED "LIGHTNING" ..!" (FALLING FROM HEAVEN) ... https://biblia.com/bible/esv/isaiah/14/12 ... 
+
+"and "THROWED" 'THUNDER' IN JAIL ..!" 
+
+"ONLY LAST WEEK I "MURDERED" A "ROCK" ..!"
+
+"INJURED A "STONE" ..!"
+
+"HOSPITALIZED A "BRICK" ..!"
+
+"I AM SO "MEAN" I MAKE "MEDICINE" SICK ..!"
+
+"FAST ..! Fast ..! fast ..!"
+
+"LAST NIGHT I "CUT" "THE LIGHT OFF" IN MY BEDROOM ... "HIT" "THE SWITCH" ..! ... WAS IN THE BED BEFORE THE "ROOM" WAS 'dark' ..!"
+
+SAY MY NAME ..! TRUTH. WHO I AM IS ..? TRUTH. WHAT'S MY NAME ..? TRUTH. SAY "HIS" NAME ..! ADEEB JOUDEH "JUDAH" LION of ... https://www.islamicboard.com/world-affairs/134344342-israel-land-grab-law-hope-solution-11.html ... 'believe 1/2 of what you 'read' ... "YOU KNOW WHAT I AM GETTING AT, RIGHT ..? "NEVER SLEPT THERE ..!" "17 TIMES" ... SAY MY NAME ..! TRUTH. SAY "HIS" NAME ..! ADEEB JOUDEH ..! "KEEPER OF THE KEY TO THE 'LOCK'" ..! NOW "FEEL" 'me' REALLY DEEP DOWN AND VERY LOUDLY AND BOLD KEEPING SAYING AND Saying and saying "HER" NAME ... NOW SAY "HER" NAME ..! LEE YUEN-A. WHAT'S MY NAME ..? TRUTH. SAY MY NAME ..! TRUTH. WHO "I AM" IS ..? TRUTH. ACCEPT NO IMITATION. TRUTH. 100% NOLYN. TRUTH. TRUTH HAS NO 'friends' ... YOU WILL BE YOUR SISTERS' KEEPER ..! YOU WILL BE YOUR BROTHERS' KEEPER ..! YOU WILL BE GOOD or 'you' WILL BE GONE ..! PROMISE. ONLY 1 OF US IS RIGHT ..! CHOOSE WISELY ..! FEELING FROGGY ..? I "INTERCEPT YOUR EMOTIONAL TENSENESS" ... I WILL 100% ABSOULUTELY GUARANTEE 'you' I WILL BE "SEE"ing 'you' to *****************"PAY"***************** 'you' a "PERSONAL VISIT" little girl little boy *****************"BACK"***************** "HOME" ..! CHOOSE WISELY ..! I DID MY "JOB" ..! I WARNED YOU AND SOUNDED THE ALARM ..! YOU LISTEN NOT AND YOU CARETH NOT ..! SO TOO ... MY LOVE ... I CARETH NOT ..! NONE OF 'YOU' WILL IN ANY "WAY" EVER "BAIT 'me'" or "REEL 'ne' IN" beCAUSE 'your' 'kung fu' IS NO GOOD "KUNG FU" LIKE MY GOOD "KUNG FU" ..!' NONE OF 'you' MAKE ME COMPLICIT IN 'your FILTH' ..! I AM NOT YOUR 'friend'. I AM TRUTH. TRUTH has no 'frinds. BE GOOD or be one. I CARETH NOT ..!CHOOSE WISELY ..! I WILL "SEE" 'you' 'my' 'daughter' 'son' BACK "HOME" ..! PROMISE.
+
+SINCE WE ARE BOTH "RELIGIOUS" ... "PERFORM AN EXORCISM ..!" ... BEAT THE "DEVIL" OF 'him' ... "'this' 'man' is a 'bully' ..!" "I AM A "MATADOR" ..! "SCARED OF WHAT ..?" G_D IS WITH 'me' ..! "I MUST BE 'the greatest' ..! "THEN I WILL WHOOP 'him' ..! CHECK MATE ..!
 
 "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
 
 "G_D IS WITH 'me' ..! CAN'T "NOBODY" BEAT 'me' ..!" ... I SHOOK UP THE WORLD ..! I Shook Up THe World ..! I shook up the world ..!
 
-I AM "DARKNESS" BEFORE 'darkness' ever came to be ..!  BINGQ ..!
+I AM "DARKNESS" BEFORE 'darkness' ever came to be ..!  BINGQ AGAIN ..!
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..! 
 
