@@ -1,8 +1,8 @@
 #i.Q
 
-N [33] ... https://www.sott.net/article/389923-Systemic-coverup-Network-of-police-pedophiles-in-Louisville-KY-allowed-to-sexually-abuse-children-for-years ... "LMPD's CQVER-UP IS QUTRAQEQUS BEYQND 'DEMONIC' ..!" ... https://www.msn.com/en-us/news/us/lmpd-cover-up-of-explorer-scouts-sexual-abuse-scandal-is-outrageous-and-demonic/ar-BB1bb12M ... https://duckduckgo.com/?q=sott.net+lmpd+systemic+sexual+abuse+of+children&t=opera&ia=web ... BINGQ.
+N [33] ... https://www.sott.net/article/389923-Systemic-coverup-Network-of-police-pedophiles-in-Louisville-KY-allowed-to-sexually-abuse-children-for-years ... "LMPD's CQVER-UP IS QUTRAQEQUS BEYQND 'DEMONIC' ..!" ... https://www.msn.com/en-us/news/us/lmpd-cover-up-of-explorer-scouts-sexual-abuse-scandal-is-outrageous-and-demonic/ar-BB1bb12M ... https://duckduckgo.com/?q=sott.net+lmpd+systemic+sexual+abuse+of+children&t=opera&ia=web ... BINGQ. 
 
-YOU WANT TO HAVE A "HATE CONTEST" ..? OKAY ..! I AM DANCING ..! I AM Dancing ..! I AM dancing ..!
+YOU WANT TO HAVE A "HATE CONTEST" ..? OKAY ..! I AM DANCING ..! I AM Dancing ..! I AM dancing ..! 4369 lines (2207 sloc)  1020 KB 4 "3 6 9" "I SEE YOU" NIKOLA TESLA "HIDING IN PLAIN SIGHT" EVEN YOUR "KUNG FU" IS NOT AS GOOD "KUNG FU" LIKE MY" KUNG FU" KIND bo' MOST GIVING MOST INTELLECTUAL MOST SPIRITUAL ONE I LOVE SO MUCH ..!
 
 "G_D IS WITH 'me' ..! CAN'T "NOBODY" BEAT 'me' ..!" ... I SHOOK UP THE WORLD ..! I Shook Up THe World ..! I shook up the world ..!
 
