@@ -13,6 +13,8 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
+... SO ... BABY ... CAN I DANCE WITH YOU TONIGHT ..? https://www.youtube.com/watch?v=rGJTcd3JHWw ... come on ... susulong tayo ... LET'S GO ... BABANGON TAYO ... RISE UP ..! ... yeah ... https://www.youtube.com/watch?v=9e0M2ldrP5g&t=4s ... "LET'S GO" ... "INSPIRATION KO" ... Let "US" GO "GANDA" "BEAUTIFUL" DANCE ANGEL ..! SING ANGEL ..! TAKE MY HAND BABE ... LET'S GO ..! COME DANCE WITH TRUTH MY LOVE ..! #PANTYDROPPAZLEAGUE #ANTSMARCHING #41 #CRASHINTOME #CRASHLANDINGONYOU #GEE #GIRLSBRINGTHEBOsOUT WORD.
+
 “ ... MY CONSCIENCE WON'T LET ME GO SHOOT MY BROTHER ..! OR SOME "DARKER" PEOPLE ..! OR SOME "POOR" "HUNGRY" "PEOPLE IN THE "MUD" for big powerful ameriQa ..!” 'he' said AT "THE TIME". “AND SHOOT "THEM" for WHAT ..? "THEY" NEVER CALLED ME "NIGGER" ..! "THEY" NEVER LYNCHED 'me' ! "THEY" DIDN'T PUT NO "DOGS ON 'me'" ..! "THEY DIDN'T "ROB 'me' ... OF "MY NATIONALITY" "RAPE" AND "KILL" MY "MOTHER" MY "FATHER" ..! SHOOT "THEM" FOR WHAT ..? HOW CAN I SHOOT "THEM" "POOR PEOPLE" ..? JUST TAKE 'me' TO JAIL ..! ... ”
 
 Cassius Marcellus Clay, Muhammad Ali
