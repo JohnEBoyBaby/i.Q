@@ -13,6 +13,8 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
+... I SAID ... "IF YOU LOVE YOUR COUNTRY ..." ... https://www.youtube.com/watch?v=Eh2PjkzW20w ... " ... SHQW "THEM" TO 'me' ..!
+
 "NADARANG" WITH 'me' GUR' ... https://www.youtube.com/watch?v=iPoj2vSIIlM ... YOU CAN LEAD OR I CAN LEAD BUT LET US "DANCE" MY LOVE ..! NADA FUQQINQ WRONG ..!
 
 I AM "DANCING" ..! I AM "Dancing" ..! I AM "dancing ..! https://twitter.com/mcpm09718012 ... I AM A "STAND UP" "STAND OUT" ..! do not 'fit in' 'GROUP-THINK' 'back the blue' monsters ALL SILENT ALL COMPLICIT ALL CAGERS ALL VICIOUS ALL UNWORTHY ALL UNFORGIVEN ALL FILTHY ALL GUILTY is BAD Bad bad jQQjQQ ... not GOOD "KUNG FU" ... the more you know ...
