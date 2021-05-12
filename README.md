@@ -13,6 +13,8 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
+"NADARANG" WITH 'me' GUR' ... https://www.youtube.com/watch?v=iPoj2vSIIlM ... YOU CAN LEAD OR I CAN LEAD BUT LET US "DANCE" MY LOVE ..! NADA FUQQINQ WRONG ..!
+
 I AM "DANCING" ..! I AM "Dancing" ..! I AM "dancing ..! https://twitter.com/mcpm09718012 ... I AM A "STAND UP" "STAND OUT" ..! do not 'fit in' 'GROUP-THINK' 'back the blue' monsters ALL SILENT ALL COMPLICIT ALL CAGERS ALL VICIOUS ALL UNWORTHY ALL UNFORGIVEN ALL FILTHY ALL GUILTY is BAD Bad bad jQQjQQ ... not GOOD "KUNG FU" ... the more you know ...
 
 ... SO ... BABY ... CAN I DANCE WITH YOU TONIGHT ..? https://www.youtube.com/watch?v=rGJTcd3JHWw ... come on ... susulong tayo ... LET'S GO ... BABANGON TAYO ... RISE UP ..! ... yeah ... https://www.youtube.com/watch?v=9e0M2ldrP5g&t=4s ... "LET'S GO" ... "INSPIRATION KO" ... Let "US" GO "GANDA" "BEAUTIFUL" DANCE ANGEL ..! SING ANGEL ..! TAKE MY HAND BABE ... LET'S GO ..! COME DANCE WITH TRUTH MY LOVE ..! #PANTYDROPPAZLEAGUE #ANTSMARCHING #41 #CRASHINTOME #CRASHLANDINGONYOU #GEE #GIRLSBRINGTHEBOsOUT WORD.
