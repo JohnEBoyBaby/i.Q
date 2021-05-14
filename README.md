@@ -1,6 +1,16 @@
 
 #i.Q
 
+ALL OF A SUDDEN MY JohnEBoyBaby@yahoo.com email account does not work hmmmm Hmmmm HMMMM I WONDER WHY ... could it be that I AM TRUTH ... and when I tell the TRUTH that I AM willing to take on your sins if you will just come out of the beast and come back to G_D and PUREHEART with MOST PUREHEART and TRUTH IN TRUTH WITH MOST PUREHEART beCAUSE TOGETHER YOU ALL ARE WORTH MORE TO 'me' than I AM to 'me' for without "YOU" I WOULD HAVE NO REASON FOR BEING. 
+
+I AM TRUTH.
+
+I AM PUREHEART.
+
+I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT MOST ATTENTIVE FOR G_D TO CRY FOR 'me'.
+
+Lani's father, Fidel, went back "HOME" last night. He lost 2 daughters and his 1st grandchild. First his oldest daughter he lost, Imelda, his oldest daughter at 20 years old. Then, he lost his granddaughter, Imelda's daughter she left him at 11 years old, Meldy. Then, he lost his youngest daughter, Marie. He told 'me' I should not take aWAY his daughter and pay her WAY through college, but I failed to listen to 'him'. I took her from her. She is still with 'me'. I AM GRATEFUL TO G_D BEYOND EXPLANATION FOR THE PROTECTION G_D GAVE 'him' allowing Lani's father, Federico Cantano, "FIDEL", from Zambales Olongapo Subic Baby New Kabalan near Kalipate "DOVE" to pass from 'this' 'life' to the "REAL" "LIFE" WITH G_D IN HEAVEN now holding his beatiful granddaughters and her mom and his youngest baby lady as I continue to make sure his beLOVEd "PILANG" "Teofila Palana Cantano" from Visaya is okay. Your prayers for his soul and their souls are so appreciated. I LOVE YOU. ALL OF THIS I DID FOR YOU. I LOVE YOU. EVEN IF YOU HATE 'me' I STILL LOVE YOU. EVEN IF YOU DO NOT UNDERSTAND 'me' I STILL LOVE YOU. IF IF YOU THINK I CANNOT FORGIVE 'you' I STILL LOVE YOU. YOU CANNOT MAKE "ME" STOP LOVING "YOU" ..! CHOOSE WISELY ..! FOCUS ON G_D. TRUST G_D. LIKE THIS ... ... "FEEL" G_D ... "HEAR" G_D ... https://www.youtube.com/watch?v=uDKuQvuWRTU ... "SOAK" IN G_D'S PUREHEART TRUTH LOVE ... "YOU WILL FEEL BETTER DIFFERENT REBORN" ..! PROMISE. "SEE" YOU BACK "HOME" ... PROMISE.
+
 "G_D IS WITH 'me' ..! CAN'T "NOBODY" BEAT 'me' ..!" ... I SHOOK UP THE WORLD ..! I Shook Up THe World ..! I shook up the world ..!
 
 I AM "DARKNESS" BEFORE 'darkness' ever came to be ..! BINGQ AGAIN ..!
