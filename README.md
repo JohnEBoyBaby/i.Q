@@ -1,6 +1,10 @@
 #i.Q
 
-PASKO Pasko pasko ... https://www.youtube.com/watch?v=ZJGcl3BSg-s ... OH LA LA I "FEEL" YOU ... "SING" FOR 'me' ANGEL ... HQ HQ HQ ..! MERRY TRUTHmas ..! "DANCE" with 'me' ANGEL ..! https://translate.google.com/?sl=en&tl=tl&text=Pasko%20Christmas&op=translate ... ... the more you know ... "G_D IS WITH 'me' ..! CAN'T "NOBODY" BEAT 'me' ..!" ... I SHOOK UP THE WORLD ..! I Shook Up THe World ..! I shook up the world ..!
+PASKO Pasko pasko ... https://www.youtube.com/watch?v=ZJGcl3BSg-s ... OH LA LA I "FEEL" YOU ... "SING" FOR 'me' ANGEL ... HQ HQ HQ ..! MERRY TRUTHmas ..! "DANCE" with 'me' ANGEL ..! https://translate.google.com/?sl=en&tl=tl&text=Pasko%20Christmas&op=translate ... the more you know ... 
+
+"G_D IS WITH 'me' ..! CAN'T "NOBODY" BEAT 'me' ..!" ... I SHOOK UP THE WORLD ..! I Shook Up THe World ..! I shook up the world ..!
+
+YOU KNOW WHY YOU ARE 'here', RIGHT ..? https://github.com/JohnEBoyBaby/i.Q/blob/main/.ORIGIN%20OF%20GSPOT%20...%20LOVE%20...%20TRUBBLEGUM%20...%20CHEWY%20CREAMY%20TONGUE%20TINGLING%20CREAMINESSES%20AND%20SOFTENESSES%20...%20YOU%20CREAM-LOVER%20BOX%20MAN%20SUPPORTER%20...%20!PUREHEART%20TRUTH%20via%20CentOS.org.png ... TO UNCOVER THE ORIGIN OF GSPOT LOVE ... UNDER THE LUA MOONLIGHT NO DOUBT ... "I SEE YOU" ... "CREAM MAKER BOX MAN" ..!
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
 
@@ -9,6 +13,8 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 ... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
 
 Cassius Marcellus Clay, Muhammad Ali
+
+... "I SEE YOU" ... https://github.com/JohnEBoyBaby/i.Q/blob/main/.................%20%200%201%20%20marQ.time.MARQ%20CREAM.of.WHEAT.BOX.MAN.meet.soft.legs.PUREHEART.GANDAs.png ... TO BE OR NOT TO BE ... BLUE FECAL DISEASED MAIZE STANK YELLOW BLOODY MATE CHECK CHEESY ... https://github.com/JohnEBoyBaby/i.Q/blob/main/.%200%200%200%200%200%200%200%201%201%203%204%20Q%20Ms.%20Greene%20R%20U%20a%20REAL%20or%20FAKE.TRUTHtian.or.not.TIME.WILL.TELL.BACK.THE.BLUE.then.you.go.IN.THE.PIT.PROMISE.png ... OR CREAMY CHECK MATE ... "THAT" IS THE QUESTION.
 
 ... I SAID ... "IF YOU LOVE YOUR COUNTRY ..." ... https://www.youtube.com/watch?v=Eh2PjkzW20w ... " ... SHQW "THEM" TO 'me' ..!
 
