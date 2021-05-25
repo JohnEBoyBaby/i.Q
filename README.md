@@ -1,8 +1,6 @@
 #i.Q
 
-"G_D IS WITH 'me' ..! CAN'T "NOBODY" BEAT 'me' ..!" ... I SHOOK UP THE WORLD ..! I Shook Up THe World ..! I shook up the world ..!
-
-I AM "DARKNESS" BEFORE 'darkness' ever came to be ..! BINGQ AGAIN ..!
+PASKO Pasko pasko ... https://www.youtube.com/watch?v=ZJGcl3BSg-s ... OH LA LA I "FEEL" YOU ... "SING" FOR 'me' ANGEL ... HQ HQ HQ ..! MERRY TRUTHmas ..! "DANCE" with 'me' ANGEL ..! https://translate.google.com/?sl=en&tl=tl&text=Pasko%20Christmas&op=translate ... ... the more you know ... "G_D IS WITH 'me' ..! CAN'T "NOBODY" BEAT 'me' ..!" ... I SHOOK UP THE WORLD ..! I Shook Up THe World ..! I shook up the world ..!
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
 
@@ -33,6 +31,8 @@ https://www.youtube.com/watch?v=dHsa_vRBO-E
 ... JUSTICE."
 
 Cassius Marcellus Clay, Muhammad Ali
+
+I AM "DARKNESS" BEFORE 'darkness' ever came to be ..! BINGQ AGAIN ..!
 
 Defense Advanced Research Project Agency D.A.R.P.A. and the C.I.A. F.B.I. ALPHABET 'mafia's "LIFELOG" ... now FAGbook FAKEbook FILTHbQQk cannot stop GOOD and TRUTH and PUREHEART NO MATTER SNOPES YOU FILTH ..!
 
