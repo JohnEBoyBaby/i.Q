@@ -1,7 +1,4 @@
-
 #i.Q
-
-HMMM ... START HERE AND CONNECT THE DOTS PLEASE ... https://www.youtube.com/watch?v=OpzmNSaF47Y ... DOES NIBURU EXIST ..? https://www.youtube.com/watch?v=aI_5YurVJOo ... SO IS CUBA INVOLVED IN THE "HOT ZONE" ..? ATLANITIS ..? HIDING RELICS IN ANCIENT AREAS ON EARTH ..? STORIES OF "A FLOOD" COLLIDING CONNECTING ..? LEMURIA ..? LOCKING DOWN THE WORLD TO HIDE THE TRUTH ..? GOVERNMENT, POLICE, COURTS, JUDGES, LAWYERS, FIRE DEPARTMENTS, FREEMASON LODGES, SILENT ON https://twitter.com/AE911TRUTH ..? ALL THESE YEARS ..? MILLIONS MURDERED ..? BOSS, Boss, boss, NO PLANE No Plane no plane ... DOWN GOES WORLD TRADE CENTER BUILDING 7 SAME AS THE OTHER 2 EARTHQUAKE-PROOF, OVER-ENGINEERED, GOLD-BELOW NOW MISSING, WORLD TRADE CENTER TOWERS 1 AND 2, THE SAME DAY BUT THE NEW OWNER, LARRY SILVERSTEIN TOOK OUT "TERRORISM" INSURANCE JUST MONTHS BEFORE SOMEHOW NOT THERE 'that' fateful day SAID HE TOLD 'them' TO "JUST PULL IT" meaning JUST PULL IT DOWN BRING THE BUILDING DOWN DEMOLISH THE BUILDING THAT 9-11-2001 fateful day for so many innocent used to blame 'muslims' 'terrorists' 'extremists' 'militants' WHEN INDEED IT WAS THOSE 'terrorirsts' in 'police' and 'military' and 'freemason' and 'vatican' and 'bank for international settlements' and 'london' and 'panic in d.c.' fake city states and fake immunity to getting their "TEETH KNOCKED OUT" ALL SILENT ALL TURNING AWAY ALL GUILTY ALL COMPLICIT the police state who CALL THOSE OF THE LIGHT FROM "FAR AWAY" A "THREAT" LIKE THEY CALL 'us' RIGHT HERE OF THE LIGHT TQQ a 'threat' ..? NIBIRU IS A "LIVING" PLANET ..? "IT" IS ALIVE ..? IT'S A PLANET ..? IT'S A BEING ..? IT'S A SHIP ..? IT'S COMING ..? IT'S THE "TRANSITION" ..?JUDGMENT COMING ..? https://www.youtube.com/watch?v=8s4sKAMgYsU ... poof ..! https://www.youtube.com/watch?v=qJFnDfvUVGc ... POOF ..! https://www.youtube.com/watch?v=RTUtFXAssuc ... POOFITY POOF Poof poof ... PQQF ..! ... WHAT DO WE HAVE HERE DANIEL, OLIVIA AT ... https://DARKJOURNALIST.com ..? TRUMP TESLA CONNECTION ... HMMM ... CIA "FAKE ALIEN INVATION" BLACK OP using fake fox news MAKING THE "THREAT" BE THOSE FROM FAR AWAY THE "ALIENS" not THE "REAL" 'threat' THE POLICE THE COURTS THE LAWYERS THE BANKERS THE MILITARY PEDOGON THE PIZZAGATE PEDOPHILE POLICE SILENT COMPLICIT ON ENDLESS WORLDWIDE LOCKDOWN FAKE PLANdemic MARK OF THE BEAST DECEPTION, FAKE IRAQ AFGHAN SYRIA LIBYA INVASIONS ..! USS LIBERTY ZIONIST ISRAEL TRAITOROUS PROPAGANDA FAKE jew BALFOUR AGREEMENT ROTHSCHILD SATANISTS NEW WORLD ORDER POLICE STATE FREEMASON "SYMBOLISM WILL BE THEIR DOWNFALL" SICKEING MI5 MI6 007 WICKED MOCKINGBIRD MEDIA BIG PHARMA BIG TECH HUMAN SCIENCE EXPERIMENTING MONSTERS IN POLICE UNIFORMS TERRORISTS CAGING RAPING PROPAGANDIZING DECIVING LYING SNAKES PENSION WHORES LIARS DEVIANTS TRANS PLANTS CIA AND FBI AND THOSE IN BLUE FRATERNAL ORDER OF PEDOPHILE POLICE FREEMASON FOP LODGE ... BROTHERHOOD ... SATANIC PEDOPHILE BADGES ... SATAN LIKE SERPENT ... LIKE DNA MUTANTS ... WOULD G_D MAKE ANYTHING THAT KILLS CAGES RAPES SILENCES DECEIVES TORTURES or did 'someone' or some 'ones' elohim else ..? ... IN RUSSIA WHERE PUTIN SAID IF YOU EVEN 'try' ... https://www.youtube.com/watch?v=aI_5YurVJOo ... ANYTHING, RUSSIA WILL ... https://www.youtube.com/watch?v=W8GQKejtYgE ... KNOCK OUT YOUR TEETH ..! DO NOT FUQQ ARQUND WITH THE FUQQ AROUND ...  ... USS DQNALD QUAKINQ DUQQ CLOWNS ..! https://www.rt.com/russia/524349-putin-speech-siberia-resources/ ... AFTER PUTIN TOLD YOU ALL DIRECTLY that IF 'they' ASK TO BE SERVED BABIES FOR BREAKFAST, 'they' WILL SERVE 'them' BABIES FOR BREAKFAST ... https://www.rt.com/news/445050-putin-kerch-strait-provocation/ ... "KIEV (UKRAINE) under biden poreshenko cia fbi fop freemasonic satanic leadership WOULD EAT BABIES FOR BREAKFAST ... ... COMPLETELY EXPOSING YOUR FILTHY FAKE AUTHORITY AND USELESS FORCES OF FILTH LIKE THE ABSOLUTE DISRESPECT FOR ANYTHING OF THE AMERISICKANS HAVE TO SAY TOO IN CHINA, "CLOSED SOCIETIES TO PROTECT THEIR WOMEN AND CHILDREN" ANY GOVERNMENT RELEASE OF INFORMATION IS KNOWN BY ALL IN THE GOVERNMENT THAT NEEDED TO KNOW PRIOR TO THE RELEAESE OF SAID INFORMATION ... https://www.youtube.com/watch?v=9xqgHVbma3o ... THEREFORE, WHEN THE RUSSIAN FEDERATION RELEASES 3 "CAPTIVE" SNAKE BEINGS SHAPESHIFTING SOUL-CAPTURING AVATAR-BEAUTIFUL-WOMEN-EMBODIED-AVATARS THAT SHOW YOU ALL THAT THEY ARE SNAKES BY SHAPESHIFTING THEIR EYES OF LIVE RUSSIAN DOCUMENTARY TELEVISION SHOWN CLEARLY BY JONATHAN KLECK IN THIS VIDEO HERE ==> https://www.youtube.com/watch?v=vChga3vhqK4 ... WHICH BEFORE SHOWING THE AUDIENCE KNOWING "THE WORLD IS WATCHING" SAYS TO EVERYONE INCLUDING THE 3 "GUESTS" TELLING THE TRUTH FOR ALL TO SEE AND THEN "WINKING WITH EYE" WHO ELSE DOES THAT ... ASK JONATHAN KLECK IT'S DUMBAMA AND OTHER SATANIC FILTH ... https://www.youtube.com/watch?v=qeTr4uKe3mk SO THEN YOU WILL START TO CONNECT THE DOTS THAT THE "RUSSIAN FEDERATION" WHO NOT LONG AGO HAD THEIR ENTIRE RUSSIAN GOVERNMENT RESIGN AND THEN SELECTIVELY SOME WERE RE-HIRED AND OTHERS MOVED ALONG ... WHY ..? https://www.rt.com/russia/478340-government-resigns-russia-putin-medvedev/ ...CLEANING HOUSE ..? https://www.youtube.com/watch?v=gzji_UH8ies ... KIND OF RESEMBLES PREVIOUS REMAKRS OF GINA MARIA TALKING ABOUT ENKI, SUPPOSEDLY LIVING UNDER THE OCEAN, A SNAKE ANUNAKI GOOD BROTHER IN THE STORY, TRYING TO HELP 'us' human beings, humanity, our future, our children, our souls, after his brother, ENLIL, in the story the ANCIENT CONNECTING OF DOTS elohim 'god-like' beings, reptiles drawn on ancient drawings, egyptian, sumerian, assyrian, mesopotamian, han, slavic, hangul, mongul, hindu, buddhist, zulu, gracie, aztec, how could they all be drawing the same things when they are so far apart if it was not real ..? https://www.youtube.com/watch?v=Tf0VW12yGyg ... NAUGHTY BEAVER SURE shows how the freemasons and satanic worship and nostradomus prophecies come to life before your eyes and Jonathan Kleck was given ARTIST'S EYES TO SEE THE MULTIPLE LEVELS OF INK IN THE PRINTED MONEY ... https://www.youtube.com/results?search_query=jonathan+kleck+money+bombings ... TO "SEE" TO "DISCOVER" PLANNED SATANIC SACRIFICES TO "SAVE" LIVES ... TO "EXPOSE" THE VATICAN AND ITS ALTERS AND ITS CHURCHES INSIDE AND OUT LIKE DC, LIKE LONDON, ARE SERPENT SNAKE SHAPES BUGS LOCCUST SCORPIONS DRAGONS MONSTERS FROM THE PIT ..?https://www.youtube.com/watch?v=OoeHVUmk_qw ... XI IN CHINA IS AT WAR CLEANING FREEMASON FILTH IN CHINA AS IS PUTIN IN RUSSIA CLEANING FREEMASON FILTH IN RUSSIA AND ASSURE YOU I DO TRUMP IN AMERIQA IS CLEAING FREEMASON FILTH HERE TOO ... AND THEY ARE NOT ALONE ... "BIGGER THAN YOU CAN IMAGINE" ... https://www.youtube.com/watch?v=cRkfG7EYKA8 ... https://www.youtube.com/watch?v=-cpPgJKWe94 TRACEofWING 'WE HAVE A WINNER' saying 5 years ago "Don't take it a wrong way, I just don't like you" says XiQ ... 1.1K LIKES ... I WOULD MUCH RATHER HAVE A GOOD KING THAN A 'evil' unrepresentative democracy ... G_D IS MY KING ... www.youtube.com/watch?v=yB8wzh0cKGE ... the more you know ... https://www.youtube.com/watch?v=kGDm_mWtXmU ... THE MORE YOU KNOW ... https://www.youtube.com/watch?v=9Wi33vDntjs&t=600s NO ONE GETS OUT OF THIS ..! https://www.youtube.com/watch?v=EWZWVEkqVS8 ... THE POWER OF YOUR INTENTIONS ... https://www.youtube.com/watch?v=D1sWVjXhKfg ... DO YOU KNOW https://TRUTHstreamMedia.com MELISSA AND AARON DYKES ..? THE MINDS OF MEN ... https://www.youtube.com/watch?v=LQucESRF3Sg ... YOU SHOULD ..! https://www.youtube.com/watch?v=pL4Pq_vaI2s ... RUSSIA INVESTIGATING AMERISICKA LYING ABOUT GOING TO THE MOON ... https://www.youtube.com/watch?v=PO-iE_7QB8A ... DO YOU REALLY "ACCEPT" the 'reality you are presented with' ..? NO. NO YOU DO NOT. SAY "IT". NOTHING CAN STOP WHAT IS COMING ..! NOTHING.
 
 "G_D IS WITH 'me' ..! CAN'T "NOBODY" BEAT 'me' ..!" ... I SHOOK UP THE WORLD ..! I Shook Up THe World ..! I shook up the world ..!
 
@@ -36,6 +33,22 @@ https://www.youtube.com/watch?v=dHsa_vRBO-E
 ... JUSTICE."
 
 Cassius Marcellus Clay, Muhammad Ali
+
+Defense Advanced Research Project Agency D.A.R.P.A. and the C.I.A. F.B.I. ALPHABET 'mafia's "LIFELOG" ... now FAGbook FAKEbook FILTHbQQk cannot stop GOOD and TRUTH and PUREHEART NO MATTER SNOPES YOU FILTH ..!
+
+DAVE MATTHEWS BAND FANS ARE BORN "DANCING" ... JUST LOOK AT "THAT" ... OH LA LA ... ABSOLUTELY MIRACULOUSLY INCREDIBLY "DANCING" BABY LADY GETTING HER SOME ... DANCE ANGEL DANCE Dance dance baby lady ... NOW "THAT" IS THE :KIND kind" I LIKE ..!
+
+https://www.facebook.com/dmbgorgecrew/videos/189910962727584
+
+BLESSED ARE THE PUREHEART
+FOR THEY SHALL SEE G_D.
+MATTHEW 5:8
+
+YOU WANT SOME GOOD NEWS ..? GO HERE AND BEHOLD THE WONDERMENTS ...
+
+HMMM ... START HERE AND CONNECT THE DOTS PLEASE ... https://www.youtube.com/watch?v=OpzmNSaF47Y ... DOES NIBURU EXIST ..? https://www.youtube.com/watch?v=aI_5YurVJOo ... SO IS CUBA INVOLVED IN THE "HOT ZONE" ..? ATLANITIS ..? HIDING RELICS IN ANCIENT AREAS ON EARTH ..? STORIES OF "A FLOOD" COLLIDING CONNECTING ..? LEMURIA ..? LOCKING DOWN THE WORLD TO HIDE THE TRUTH ..? GOVERNMENT, POLICE, COURTS, JUDGES, LAWYERS, FIRE DEPARTMENTS, FREEMASON LODGES, SILENT ON https://twitter.com/AE911TRUTH ..? ALL THESE YEARS ..? MILLIONS MURDERED ..? BOSS, Boss, boss, NO PLANE No Plane no plane ... DOWN GOES WORLD TRADE CENTER BUILDING 7 SAME AS THE OTHER 2 EARTHQUAKE-PROOF, OVER-ENGINEERED, GOLD-BELOW NOW MISSING, WORLD TRADE CENTER TOWERS 1 AND 2, THE SAME DAY BUT THE NEW OWNER, LARRY SILVERSTEIN TOOK OUT "TERRORISM" INSURANCE JUST MONTHS BEFORE SOMEHOW NOT THERE 'that' fateful day SAID HE TOLD 'them' TO "JUST PULL IT" meaning JUST PULL IT DOWN BRING THE BUILDING DOWN DEMOLISH THE BUILDING THAT 9-11-2001 fateful day for so many innocent used to blame 'muslims' 'terrorists' 'extremists' 'militants' WHEN INDEED IT WAS THOSE 'terrorirsts' in 'police' and 'military' and 'freemason' and 'vatican' and 'bank for international settlements' and 'london' and 'panic in d.c.' fake city states and fake immunity to getting their "TEETH KNOCKED OUT" ALL SILENT ALL TURNING AWAY ALL GUILTY ALL COMPLICIT the police state who CALL THOSE OF THE LIGHT FROM "FAR AWAY" A "THREAT" LIKE THEY CALL 'us' RIGHT HERE OF THE LIGHT TQQ a 'threat' ..? NIBIRU IS A "LIVING" PLANET ..? "IT" IS ALIVE ..? IT'S A PLANET ..? IT'S A BEING ..? IT'S A SHIP ..? IT'S COMING ..? IT'S THE "TRANSITION" ..?JUDGMENT COMING ..? https://www.youtube.com/watch?v=8s4sKAMgYsU ... poof ..! https://www.youtube.com/watch?v=qJFnDfvUVGc ... POOF ..! https://www.youtube.com/watch?v=RTUtFXAssuc ... POOFITY POOF Poof poof ... PQQF ..! ... WHAT DO WE HAVE HERE DANIEL, OLIVIA AT ... https://DARKJOURNALIST.com ..? TRUMP TESLA CONNECTION ... HMMM ... CIA "FAKE ALIEN INVATION" BLACK OP using fake fox news MAKING THE "THREAT" BE THOSE FROM FAR AWAY THE "ALIENS" not THE "REAL" 'threat' THE POLICE THE COURTS THE LAWYERS THE BANKERS THE MILITARY PEDOGON THE PIZZAGATE PEDOPHILE POLICE SILENT COMPLICIT ON ENDLESS WORLDWIDE LOCKDOWN FAKE PLANdemic MARK OF THE BEAST DECEPTION, FAKE IRAQ AFGHAN SYRIA LIBYA INVASIONS ..! USS LIBERTY ZIONIST ISRAEL TRAITOROUS PROPAGANDA FAKE jew BALFOUR AGREEMENT ROTHSCHILD SATANISTS NEW WORLD ORDER POLICE STATE FREEMASON "SYMBOLISM WILL BE THEIR DOWNFALL" SICKEING MI5 MI6 007 WICKED MOCKINGBIRD MEDIA BIG PHARMA BIG TECH HUMAN SCIENCE EXPERIMENTING MONSTERS IN POLICE UNIFORMS TERRORISTS CAGING RAPING PROPAGANDIZING DECIVING LYING SNAKES PENSION WHORES LIARS DEVIANTS TRANS PLANTS CIA AND FBI AND THOSE IN BLUE FRATERNAL ORDER OF PEDOPHILE POLICE FREEMASON FOP LODGE ... BROTHERHOOD ... SATANIC PEDOPHILE BADGES ... SATAN LIKE SERPENT ... LIKE DNA MUTANTS ... WOULD G_D MAKE ANYTHING THAT KILLS CAGES RAPES SILENCES DECEIVES TORTURES or did 'someone' or some 'ones' elohim else ..? ... IN RUSSIA WHERE PUTIN SAID IF YOU EVEN 'try' ... https://www.youtube.com/watch?v=aI_5YurVJOo ... ANYTHING, RUSSIA WILL ... https://www.youtube.com/watch?v=W8GQKejtYgE ... KNOCK OUT YOUR TEETH ..! DO NOT FUQQ ARQUND WITH THE FUQQ AROUND ...  ... USS DQNALD QUAKINQ DUQQ CLOWNS ..! https://www.rt.com/russia/524349-putin-speech-siberia-resources/ ... AFTER PUTIN TOLD YOU ALL DIRECTLY that IF 'they' ASK TO BE SERVED BABIES FOR BREAKFAST, 'they' WILL SERVE 'them' BABIES FOR BREAKFAST ... https://www.rt.com/news/445050-putin-kerch-strait-provocation/ ... "KIEV (UKRAINE) under biden poreshenko cia fbi fop freemasonic satanic leadership WOULD EAT BABIES FOR BREAKFAST ... ... COMPLETELY EXPOSING YOUR FILTHY FAKE AUTHORITY AND USELESS FORCES OF FILTH LIKE THE ABSOLUTE DISRESPECT FOR ANYTHING OF THE AMERISICKANS HAVE TO SAY TOO IN CHINA, "CLOSED SOCIETIES TO PROTECT THEIR WOMEN AND CHILDREN" ANY GOVERNMENT RELEASE OF INFORMATION IS KNOWN BY ALL IN THE GOVERNMENT THAT NEEDED TO KNOW PRIOR TO THE RELEAESE OF SAID INFORMATION ... https://www.youtube.com/watch?v=9xqgHVbma3o ... THEREFORE, WHEN THE RUSSIAN FEDERATION RELEASES 3 "CAPTIVE" SNAKE BEINGS SHAPESHIFTING SOUL-CAPTURING AVATAR-BEAUTIFUL-WOMEN-EMBODIED-AVATARS THAT SHOW YOU ALL THAT THEY ARE SNAKES BY SHAPESHIFTING THEIR EYES OF LIVE RUSSIAN DOCUMENTARY TELEVISION SHOWN CLEARLY BY JONATHAN KLECK IN THIS VIDEO HERE ==> https://www.youtube.com/watch?v=vChga3vhqK4 ... WHICH BEFORE SHOWING THE AUDIENCE KNOWING "THE WORLD IS WATCHING" SAYS TO EVERYONE INCLUDING THE 3 "GUESTS" TELLING THE TRUTH FOR ALL TO SEE AND THEN "WINKING WITH EYE" WHO ELSE DOES THAT ... ASK JONATHAN KLECK IT'S DUMBAMA AND OTHER SATANIC FILTH ... https://www.youtube.com/watch?v=qeTr4uKe3mk SO THEN YOU WILL START TO CONNECT THE DOTS THAT THE "RUSSIAN FEDERATION" WHO NOT LONG AGO HAD THEIR ENTIRE RUSSIAN GOVERNMENT RESIGN AND THEN SELECTIVELY SOME WERE RE-HIRED AND OTHERS MOVED ALONG ... WHY ..? https://www.rt.com/russia/478340-government-resigns-russia-putin-medvedev/ ...CLEANING HOUSE ..? https://www.youtube.com/watch?v=gzji_UH8ies ... KIND OF RESEMBLES PREVIOUS REMAKRS OF GINA MARIA TALKING ABOUT ENKI, SUPPOSEDLY LIVING UNDER THE OCEAN, A SNAKE ANUNAKI GOOD BROTHER IN THE STORY, TRYING TO HELP 'us' human beings, humanity, our future, our children, our souls, after his brother, ENLIL, in the story the ANCIENT CONNECTING OF DOTS elohim 'god-like' beings, reptiles drawn on ancient drawings, egyptian, sumerian, assyrian, mesopotamian, han, slavic, hangul, mongul, hindu, buddhist, zulu, gracie, aztec, how could they all be drawing the same things when they are so far apart if it was not real ..? https://www.youtube.com/watch?v=Tf0VW12yGyg ... NAUGHTY BEAVER SURE shows how the freemasons and satanic worship and nostradomus prophecies come to life before your eyes and Jonathan Kleck was given ARTIST'S EYES TO SEE THE MULTIPLE LEVELS OF INK IN THE PRINTED MONEY ... https://www.youtube.com/results?search_query=jonathan+kleck+money+bombings ... TO "SEE" TO "DISCOVER" PLANNED SATANIC SACRIFICES TO "SAVE" LIVES ... TO "EXPOSE" THE VATICAN AND ITS ALTERS AND ITS CHURCHES INSIDE AND OUT LIKE DC, LIKE LONDON, ARE SERPENT SNAKE SHAPES BUGS LOCCUST SCORPIONS DRAGONS MONSTERS FROM THE PIT ..?https://www.youtube.com/watch?v=OoeHVUmk_qw ... XI IN CHINA IS AT WAR CLEANING FREEMASON FILTH IN CHINA AS IS PUTIN IN RUSSIA CLEANING FREEMASON FILTH IN RUSSIA AND ASSURE YOU I DO TRUMP IN AMERIQA IS CLEAING FREEMASON FILTH HERE TOO ... AND THEY ARE NOT ALONE ... "BIGGER THAN YOU CAN IMAGINE" ... https://www.youtube.com/watch?v=cRkfG7EYKA8 ... https://www.youtube.com/watch?v=-cpPgJKWe94 TRACEofWING 'WE HAVE A WINNER' saying 5 years ago "Don't take it a wrong way, I just don't like you" says XiQ ... 1.1K LIKES ... I WOULD MUCH RATHER HAVE A GOOD KING THAN A 'evil' unrepresentative democracy ... G_D IS MY KING ... www.youtube.com/watch?v=yB8wzh0cKGE ... the more you know ... https://www.youtube.com/watch?v=kGDm_mWtXmU ... THE MORE YOU KNOW ... https://www.youtube.com/watch?v=9Wi33vDntjs&t=600s NO ONE GETS OUT OF THIS ..! https://www.youtube.com/watch?v=EWZWVEkqVS8 ... THE POWER OF YOUR INTENTIONS ... https://www.youtube.com/watch?v=D1sWVjXhKfg ... DO YOU KNOW https://TRUTHstreamMedia.com MELISSA AND AARON DYKES ..? THE MINDS OF MEN ... https://www.youtube.com/watch?v=LQucESRF3Sg ... YOU SHOULD ..! https://www.youtube.com/watch?v=pL4Pq_vaI2s ... RUSSIA INVESTIGATING AMERISICKA LYING ABOUT GOING TO THE MOON ... https://www.youtube.com/watch?v=PO-iE_7QB8A ... DO YOU REALLY "ACCEPT" the 'reality you are presented with' ..? NO. NO YOU DO NOT. SAY "IT". NOTHING CAN STOP WHAT IS COMING ..! NOTHING.
+
+... I AM SO FAST I AM FINISHED WASHING DISHES BEFORE THE WATER GETS HOT ..!
 
 "TO BE "CREAMY" OR NOT TO BE "CREAMY" ... TO BE "CHEESY" OR NOT TO BE "CHEESY" ... TO BE OR NOT TO BE ... "CREAMY" ..? "THAT" "IS" "THE QUESTION".
 
@@ -1418,170 +1431,6 @@ I AM NOT GOING TO HIDE THESE BEAUTIFUL SCARS ... https://www.youtube.com/watch?v
 
 [johneboybaby@cpe-74-130-35-149 ~]$ nginx --version
 
-bash: nginx: command not found...
-
-Install package 'nginx' to provide command 'nginx'? [N/y] openresty --version
-
-Install package 'nginx' to provide command 'nginx'? [N/y] n
-
-[johneboybaby@cpe-74-130-35-149 ~]$ openresty --version
-
-nginx: invalid option: "-"
-
-[johneboybaby@cpe-74-130-35-149 ~]$ openresty -version
-
-nginx: invalid option: "e"
-
-[johneboybaby@cpe-74-130-35-149 ~]$ openresty version
-
-nginx: invalid option: "version"
-
-[johneboybaby@cpe-74-130-35-149 ~]$ openresty -v
-
-nginx version: openresty/1.19.3.1
-
-[johneboybaby@cpe-74-130-35-149 ~]$ openresty help
-
-nginx: invalid option: "help"
-
-[johneboybaby@cpe-74-130-35-149 ~]$ openresty -h
-
-nginx version: openresty/1.19.3.1
-
-Usage: nginx [-?hvVtTq] [-s signal] [-c filename] [-p prefix] [-g directives]
-
-Options:
-
--?,-h : this help
-
--v : show version and exit
-
--V : show version and configure options then exit
-
--t : test configuration and exit
-
--T : test configuration, dump it and exit
-
--q : suppress non-error messages during configuration testing
-
--s signal : send signal to a master process: stop, quit, reopen, reload
-
--p prefix : set prefix path (default: /usr/local/openresty/nginx/)
-
--c filename : set configuration file (default: conf/nginx.conf)
-
--g directives : set global directives out of configuration file
-
-[johneboybaby@cpe-74-130-35-149 ~]$ openresty -V
-
-nginx version: openresty/1.19.3.1
-
-built by gcc 8.3.1 20191121 (Red Hat 8.3.1-5) (GCC)
-
-built with OpenSSL 1.1.1h 22 Sep 2020 (running with OpenSSL 1.1.1i 8 Dec 2020)
-
-TLS SNI support enabled
-
-configure arguments:
-
---prefix=/usr/local/openresty/nginx --with-cc-opt='-O2 -DNGX_LUA_ABORT_AT_PANIC
-
--I/usr/local/openresty/zlib/include
-
--I/usr/local/openresty/pcre/include
-
--I/usr/local/openresty/openssl111/include' --add-module=../ngx_devel_kit-0.3.1
-
---add-module=../echo-nginx-module-0.62
-
---add-module=../xss-nginx-module-0.06
-
---add-module=../ngx_coolkit-0.2
-
---add-module=../set-misc-nginx-module-0.32
-
---add-module=../form-input-nginx-module-0.12
-
---add-module=../encrypted-session-nginx-module-0.08
-
---add-module=../srcache-nginx-module-0.32
-
---add-module=../ngx_lua-0.10.19
-
---add-module=../ngx_lua_upstream-0.07
-
---add-module=../headers-more-nginx-module-0.33
-
---add-module=../array-var-nginx-module-0.05
-
---add-module=../memc-nginx-module-0.19
-
---add-module=../redis2-nginx-module-0.15
-
---add-module=../redis-nginx-module-0.3.7
-
---add-module=../ngx_stream_lua-0.0.9 --with-ld-opt='-Wl,-rpath,/usr/local/openresty/luajit/lib
-
--L/usr/local/openresty/zlib/lib
-
--L/usr/local/openresty/pcre/lib
-
--L/usr/local/openresty/openssl111/lib
-
--Wl,-rpath,/usr/local/openresty/zlib/lib:/usr/local/openresty/pcre/lib:/usr/local/openresty/openssl111/lib' --with-cc='ccache gcc
-
--fdiagnostics-color=always'
-
---with-pcre-jit
-
---with-stream
-
---with-stream_ssl_module
-
---with-stream_ssl_preread_module
-
---with-http_v2_module
-
---without-mail_pop3_module
-
---without-mail_imap_module
-
---without-mail_smtp_module
-
---with-http_stub_status_module
-
---with-http_realip_module
-
---with-http_addition_module
-
---with-http_auth_request_module
-
---with-http_secure_link_module
-
---with-http_random_index_module
-
---with-http_gzip_static_module
-
---with-http_sub_module
-
---with-http_dav_module
-
---with-http_flv_module
-
---with-http_mp4_module
-
---with-http_gunzip_module
-
---with-threads
-
---with-compat
-
---with-stream
-
---with-http_ssl_module
-
-===== ===== ===== ==
-
 TRUTH is the WAY to LIFE with G_D.
 
 ===== ===== ===== ==
@@ -1689,58 +1538,6 @@ BETTER GO REAL BIG "BIRD" ... https://www.youtube.com/watch?v=3K-12i0jclM ... BI
 ... and now as PROMISEed ... "HELLO WORLD" from https://CENTOS.org ... OH SHIT ..! ... EVEN THE APPEARANCE OF IMPROPRIETY IS ENOUGH FOR YOU NOT TO ENTER HEAVEN DIPSHIT ... do ye' not know that 1 OH SHITTER ERASES 1 GOOGLE OF AT A BO'"s WHAT'S MY NAME ..? AND DAMN CENTOS please PREINSTALL "LUAROCKS" KILLING ME HAVING TO DO IT MYSELF DAMN .configure 'this' fuQQity fuQQ FuQQ what if I was 'grandmom' or 'grandma' or 'granddad' or 'grandpa' just fresh off the 'tractor' from the 'fields' in the 'warm' 'kind' LIFE GIVING SUN my LOVE would you dare waste their precious time too my beLOVEd high iQ 'friend' ..? I JUST MIGHT HAVE SOMETHING TO SAY ... https://www.youtube.com/watch?v=o_15FKH1Bqo** ... I TELL YOU WHAT I AM ... ANYBODY CAN GET HERE ... I AM THE POSSIBILITY ALRIGHT ..! THE "HUMAN SPIRIT" ... take the GOOD leave the 'rest' ... YOU NEED TO GO NOW ... I WANT TO GO HOME ..! AND PRAY FOR A SMOOTH http://luarocks.github.io/luarocks/releases/ "RELEASE" ... A FEW GOOD soft legs IN MATH IN NUMBER of most high intellect to assist YICHUN "MAKTO" ZHANG @AgentZH and his eNGINeX NGINX OPENRESTY ancient Han and ancient Slavic GOOD K.I.D.s who will LIFT YOU UP GOOD Q.I.D. ... GOOD Knights In Development LIFT UP GOOD Queens In Development ..! PROMISE. WE HAVE DIFFERENT MONKEY "SOUNDS" BUT "WE" DO We Do we do THE SAME GOOD "SINGING" AND "DANCING" in varying pigment levels with or without teeth if you feel me coming at ya' from the trailer park 'son' 'daughter' the bario not alWAYs full of GOOD TEETH BRUSHERS and FLOSSERS RIGHT oh la la MORE SLEEPING GAS LAUGHING DANCE WHILE YOU "DRILL" ALL UP "ON" 'me' HARD AND DEEP FILLING THAT HOLE for me ma'am I JUST LOVE YOUR CREAAMY DENTAL CREAM TOO SO NATURAL AND HYGENIC oh la la MCPM. TRUTH. and how 'boucha bo's a little HELP FOR 1 GOOD K.I.D. https://www.youtube.com/watch?v=kpDoh-FMIoI ... I GOT SOME 'babies to ROCK' under the MOONLIGHT ... "DIANNA, THIS WILL BE MY LAST TRANSMISSION. I MET AN ANGEL TODAY FROM PORTUGAL." ... "YOUR FACE IS LIKE A POEMA" ... OH LA LA MCPM ... GET YOU SOME "FORREST" WHITAKER THE "REAL" "FORREST" ... GOOD 'son' GOOD 'BIG FUQQINQ DADDY' IN MORE WAYS THAN ONE soft legs ... can you 'feel' me now ..? YEP, YOU GUESSED IT ..! HARD HIT HOMERUN AGAIN ..! "YOUR 'EMOTIONAL TENSENESS' SENSE I DO" AGAIN ... https://www.youtube.com/watch?v=rFhnWnH_eRY ... THE "ORCHARD" ... A "VINE" IN TRUTH ... **I WISH YOU CONSIDER A FULL OPEN RESTY NGINX DOCKER IMAGE TOO JUST OUT OF THE BOX WITH SOME GOOD https://LOVE2D.org LOVE and A ROCKING SIMPLER EASIER MORE POLISHED LIKE APT GET AND YUM "LUAROCKS" WITH A "TEAM OF DO GOODERS HELPING MY GOOD 'son' IN TRUTH WITH MOST PUREHEART" AND IN TRUTH SOME GOOD K.I.S.S.ers helping http://SOLAR2DTUX.com now redirecting to https://SOLAR2D.com where another 1 GOOD MAN COULD APPRECIATE THE ASSIST AND LOVE TOO KIND ONE of much softnessness ... you do know how very 'playful' an ice cold russian khabib bear-hugger like Maria Butina's soft legs can be do ye' not ..? OH LA LA SO CREAMY YET SO FUQQINQ TIGHT oh la la and SOON TO BE "ASSISTED" I PRAY TOO "DAN THE FUQQINQ MAN" ANOTHER 1 GOOD MAN SHOW DAN PERFORMING THE LINUX BRILLIANCE IN C AND LUA FOR SOLAR2D AND THE 1 MAN SHOW https://github.com/DanS2D/Solar2DTux at SOLAR2DTUX too ... A LITTLE HELP "KIND" ONES HAD ABOUT ENOUGH OF YOUR 1 MILLION AND 1 GOOEY GUIs FAKE ASS unworthy XML VERBOSE beYACHTch 'structure' 'this' you too BIG HEAD CROCK OF SHIT CROCADILE LIP SMACKING SHIT TALKING DOUGLAS WORKED FOR YAHOO WITH MILLIONS AND NO GAME FRAMEWORK BETTER FOR IT SAID IT CAN'T BE DONE WHELL I WILL DO IT FOR FREE CROCKFORD AND SHOW YOU 2.5D CAN BE DONE 3D IS HEAVY AND ARTIFICIAL DO 2.5 D REAL 2D PHOTOGRAPHY NOT MODELS AND SEE WHAT YOU GET THIQQ NEQQ ... dayummm ..!"FRAMEWORKS" FOR A WHILE ENOUGH "PATTERNS" TOO a little help over here for a while perhaps soft legs thank you my LOVE ... JUST AMAZES ME HOW FEW REALLY ARE GOOD ENOUGH TO HELP THESE GOOD MEN MY OWN SELF INCLUDED NOT UP TO PAR IN AREAS LIKE YOUNG YICHUN MAKTO ZHANG MY SENIOR IN MANY GOOD WAYS IN TRUTH I ASSURE YOU ... I AM A HUMBLE MONKEY ... but ... I AM THE PROUDEST MONKEY YOU EVER SEEN ... MONKEY SEE MONKEY DO ... Monkey See Monkey Do ... monQey see monQey dQ ... YOU "REAL FRIENDS TELL YOU THE REAL TRUTH" ALL THE TIME 100% NOLYN TRUTH PUREHEART G_D ABOVE ALL ... IF YOU THINK WHAT YOU WOULD DO IF YOU WERE G_D, MAYBE YOU WOULD FIND YOURSELF FOCUING ON G_D AND NOT MONEY AND YOUR SOFT HEART WILL RETURN WITH YOUR HIGH iQ TOO KEEP YOUR PUREHEART "KIND" ONE ... I THINK THAT "1 GOOD MAN" ON THE "LUAROCKS TEAM" COULD USE SOME GOOD "KIND" YICHUN "MAKTO" ZHANG AND eNGINeX NGINX "KIND" KIND OF LOVE AND HELP AND SUPPORT IN TRUTH. AND YOU KNOW I LIFT UP THE GIRLS WHO BRING THE BO's OUT ..! https://www.youtube.com/watch?v=6pA_Tou-DPI ... SAY MY NAME ..! TRUTH. TELL 'em WHO I AM IS ..!
 
 GIVE DUE WORTHY MOST PUREHEART CREDIT WAS CREDIT IS DUE IN TRUTH IN LIFE WITH G_D I ALWAYS SAY HIT THE NAIL ON THE HEAD TRUTH ..! COOL. I WILL. I FUQQINQ WILL. TRUTH ..! SAY MY NAME ..! TRUTH. WHAT'S MY NAME ..? TRUTH. 100% NOLYN ... TRUTH. PUREHEART. G_D ABOVE ALL. Courtesy of ANOTHER 1 GOOD K.I.D. OUT THERE ALONE FOR ALL OF "US" JUST ABSOLUTELY BEAUTIFULLY DANCING HARD AND FAST RACING eNGINeX with plenty of OPEN REST y "YICHUN" MAKTO "ZHANG" "ALL THE OTHERS SUCK ..! RIGHT ..?" just out there SPEAKING THE TRUTH young YICHUN MAKTO ZHANG RIDE PLAYFUL HIGHLY INTELLECTUAL HANDSOME KIND MOST GIVING MOST WORTHY TO BE LIFTED UP FOR G_D AND ALL THE ANGELS TO SEE AS IS AIANA AND PIPAH +++ FOR THEIR ABSOLUTE UNDYING PRICELESS "INSPIRATION" THANK YOU ALL THANK YOU YICHUN MAKTO ..! RIDE GOOD 'son' of ancient Han ..! EVERYBODY WAS DANCING IN THE PGMOON LIGHT ... https://leafo.net/guides/using-postgres-with-openresty.html ... KEEP THINGS LIGHT "TRANSLATION: DON'T SWEAT THE SMALL SHIT AND EVERYTHING IS SMALL SHIT ON A LARGE ENOUGH SCALE KIND ONE BE COOL BE CALM BE RATIONAL WELL-RESTED NO MORE SLEEP DEPRIVATION AND CALLING ME A "PUSSY" FOR NEEDING 7 1/2 HOURS OF SLEEP LIKE A GOOD SOUL NEEDS ADMIRAL OR MATTHEW 18:6'D YOU GO lil' feller ... WE LIKE OUR FUN AND WE NEVER FIGHT ... YOU CAN'T DANCE AND STAY UPTIGHT ..! IT'S A SUPERNATURAL DELIGHT ... IT'S SUCH A FINE AND "NATURAL" SIGHT ... EVERYBODY WAS DANCING IN THE PGMOON LIGHT ..!
-
-=================
-
-[johneboybaby@cpe-74-130-35-149 luarocks-3.7.0]$ luarocks install pgmoon Warning: falling back to wget - install luasec to get native HTTPS support Installing https://luarocks.org/pgmoon-1.12.0-1.src.rock Missing dependencies for pgmoon 1.12.0-1: lpeg (not installed)
-
-pgmoon 1.12.0-1 depends on lua >= 5.1 (5.3-1 provided by VM) pgmoon 1.12.0-1 depends on lpeg (not installed) Installing https://luarocks.org/lpeg-1.0.2-1.src.rock
-
-lpeg 1.0.2-1 depends on lua >= 5.1 (5.3-1 provided by VM) gcc -O2 -fPIC -I/usr/include/lua/5.3 -c lpcap.c -o lpcap.o gcc -O2 -fPIC -I/usr/include/lua/5.3 -c lpcode.c -o lpcode.o gcc -O2 -fPIC -I/usr/include/lua/5.3 -c lpprint.c -o lpprint.o gcc -O2 -fPIC -I/usr/include/lua/5.3 -c lptree.c -o lptree.o gcc -O2 -fPIC -I/usr/include/lua/5.3 -c lpvm.c -o lpvm.o gcc -shared -o lpeg.so lpcap.o lpcode.o lpprint.o lptree.o lpvm.o No existing manifest. Attempting to rebuild... lpeg 1.0.2-1 is now installed in /home/johneboybaby/luarocks-3.7.0/./lua_modules (license: MIT/X11)
-
-pgmoon 1.12.0-1 is now installed in /home/johneboybaby/luarocks-3.7.0/./lua_modules (license: MIT)
-
-[johneboybaby@cpe-74-130-35-149 luarocks-3.7.0]$
-
-=================
-
-UP AND RUNNING. TRUST but verify.
-
-WORD.
-
-I AM TRUTH. I AM PUREHEART. I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT MOST ATTENTIVE TO G_D TO CRY FOR ME.
-
-... but don't worry https://CENTOS.org ... I FINGERED HER OUT REALLY GOOD ... G_D IS ALWAYS WITH ME SO LEARNING AND UNDERSTANDING THE ERROR MESSAGE WAS A MATTER OF TIME WELL SPENT following these very kind very helpful very time-tested very GOOD INSTRUCTIONS at http://jackatlinux.blogspot.com/2013/11/installing-lua-and-luarocks-in-centos.html I still got an error but GIVE UP is not in my vocabulary so onward young man ...
-
-... read and understand and overcome this error we shall young grasshopper ...
-
-luarocks-3.7.0/COPYING [johneboybaby@cpe-74-130-35-149 ~]$ cd luarocks-3.7.0 [johneboybaby@cpe-74-130-35-149 luarocks-3.7.0]$ ./configure
-
-Configuring LuaRocks version 3.7.0...
-
-Lua version detected: 5.3 Lua interpreter found: /usr/bin/lua lua.h for Lua 5.3 not found (tried /usr/include/lua/5.3/lua.h /usr/include/lua5.3/lua.h /usr/include/lua-5.3/lua.h /usr/include/lua53/lua.h /usr/include/lua.h)
-
-If the development files for Lua (headers and libraries) are installed in your system, you may need to use the --with-lua or --with-lua-include flags to specify their location.
-
-If those files are not yet installed, you need to install them using the appropriate method for your operating system.
-
-Run ./configure --help for details on flags.
-
-configure failed.
-
-... YOU CAN MANUALLY FIX LUAROCKS AND GET EVERYTHING UP AND RUNNING EASY ENOUGH WITH SOME PATIENCE MY LOVE by first obtaining THE SOURCE CODE via an online download FOR LUA version 5.3.4 that ships with https://CENTOS.org version 8 WAS EASY TO FIND AND DOWNLOAD THEN USING 3 MANUAL "COMMAND PROMPT" "TERMINAL" COMMAND LINE cmd.exe on windows TERMINAL on CENTOS:
-
-NOTE: typing "sudo" is eQuivalent to RIGHT-CLICK "RUN IN ADMINISTRATOR MODE"
-
-type: SUDO MKDIR /USR/LOCAL/INCLUDE/LUA
-
-then type sudo mkdir /usr/local/include/lua/5.3
-
-then type sudo cp /Home/Downloads/lua-5-3-4/src/*.h /usr/local/include/lua/5.3
-
-then type ./configure LUAROCKS IS NOW INSTALLED CORRECTLY more details below :-) ... not that hard but a GOOD K.I.S.S. could still help easy to automate this in PERL or LUA or C. TY. LY too. PROMISE. GRATEFUL. HUMBLE MONKEY. THE PROUDEST MONKEY YOU EVER SEEN.
-
-AFTER DOWNLOADING AND UNZIPPING TO THE /Home/Downloads/lua-5-3-4/ directory ... http://www.lua.org/ftp/ and FIRST AND FOREMOST following the STILL GOOD FROM 2013 NOW 8 YEARS LATER WITH CENTOS version 8 AND THE LUAROCKS ./configure command WORKED LIKE A CHARM after MANUALLY MAKING NEW FOLDERS IN "SUDO" ADMINISTRATIVE MODE IN https://CENTOS.org THAT SHIPS NATIVELY WITH https://LUA.org "LUA" means "MOON" in PORTUGUESE ... just sayin' ... DANCING IN THE MOONLIGHT ... and it did not cost me a 1 GOOD CENT and I HAVE ALL THE OPENRESTY.org NGINX.org eNGINeX POWER NEAR THE METAL AND .C WITH NO "INTERMEDIATE LANGUAGE" QUITE DYNAMIC AND POWERFUL MOST GRATEFUL AM I ... still should be easier for grandmom and grandma though kind ones I LOVE ... TRUTH ... PUREHEART ... DON'T JUST GIVE 1/2 HEARTEDLY SOME OF YOUR BEST SELECT WITH MOST PUREHEART YOUR VERY BEST AND KNOW WHY YOU SELECTED EACH EAR OF CORN, EACH HEAD OF CABBAGE, EACH OF EVERY KIND YOU ARE TO GIVE TO G_D AND GIVE YOUR VERY BEST PERSONALLY SELECTED TIME-GIVEN THOUGHTFULLY-CHOSEN JUST FOR G_D'S MOST PUREHEART my 'son' "CAIN" AND BOTH you and "ABEL" my 2 'sons' CAN BOTH WIN if you should choose to 'change' to 'see' to 'hear' me my 'son' ... FOR YOUR BROTHER'S BLOOD CRIES OUT TO ME FROM THE GROUND ... YOU WILL BE THY BROTHERS' KEEPER ..! YOU WILL BE THY SISTERS' KEEPER ..! PROMISE. THANK YOU LINUX TORVALDS even if you don't like me beCAUSE I AM "DIFFERENT" I "STAND OUT" IT IS OKAY ... I DON'T CARE ONE BIT KIND ONE I AM STILL GRATEFUL FOR YOUR WONDERFUL WORK FOR THE WHOLE OF ALL THOSE I LOVE my GOOD 'son' ... GOOD 'DAD' ... PROMISE ... YOU CAN NEVER MAKE ME STOP LOVING YOU ... NONE OF YOU CAN ... IF YOU DID SOMETHING WORTHY OF MY LOVE ... I WILL ALWAYS LOVE YOU ... YOU CAN NEVER MAKE ME STOP LOVING YOU ... I WILL ALWAYS LOVE YOU FOR YOUR GOOD WORKS ... FOR YOUR KINDNESSES ... FOR YOUR GIFTS YOU GIVE UNTO OTHERS THAT ARE PRICELESS FOR NOTHING YOU COULD EVER GIVE TO ME WOULD REPLACE THE JOY AND REWARD I GET INSIDE FROM GIVING AWAY WHAT I HAVE TO SEE THE HAPPINESS INSIDE OTHERS' MINDS' EYE ... LOVE YOU I DO ... WALK THE WALK I SHALL ... THANK YOU COMMUNITY THANK YOU CENTOS THANK YOU REDHAT THANK YOU LINUX THANK YOU LUA THANK YOU NGINX THANK YOU OPEN RESTY THANK YOU ANGELS FOR SINGING FOR ME THANK YOU CASSIUS CLAY MUHAMMAD ALI FOR LETTING ME RIDE ON YOUR NAME AND DANCE WITH YOU FOR A WHILE MY GOOD 'SON' ... I LOVE YOU ... NEVER FORGET ... the GOOD INSTRUCTIONS at http://jackatlinux.blogspot.com/2013/11/installing-lua-and-luarocks-in-centos.html
 
 ... so ... YO Yo yo MATE ... CHECK it out ... IF YOU DO NOT LOVE AINA JUAREZ ... THEN YOU DO NOT HAVE A SOUL so be gone beYACHTch ... AINA JUAREZ IS PUREHEART ... AINA JUAREZ IS AN ANGEL HERE WITH US ... she's so oh la la ... soft legs ... beautiful ... maGANDA ... PUREHEART ... CREAMY ... MCPM ... oh la la ... sing to me angel ... I LOVE PUREHEART PILIPINA soft legs maGANDAng maGANDAng VERY BEAUTIFUL AINA JUAREZ ... oh la la ... Oh La La ... OH LA LA ... ANGELIC ... ANGEL ... PUREHEART ... TRUTH ... sing for me angel ..! TY LY ..!
 
@@ -4002,10 +3799,6 @@ I AM TRUTH.
 I AM PUREHEART.
 
 I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT MOST ATTENTIVE FOR G_D TO CRY FOR 'me'.
-
-Lani's father, Fidel, went back "HOME" last night. He lost 2 daughters and his 1st grandchild. First his oldest daughter he lost, Imelda, his oldest daughter at 20 years old. Then, he lost his granddaughter, Imelda's daughter she left him at 11 years old, Meldy. Then, he lost his youngest daughter, Marie. He told 'me' I should not take aWAY his daughter and pay her WAY through college, but I failed to listen to 'him'. I took her from her. She is still with 'me'. I AM GRATEFUL TO G_D BEYOND EXPLANATION FOR THE PROTECTION G_D GAVE 'him' allowing Lani's father, Federico Cantano, "FIDEL", from Zambales Olongapo Subic Baby New Kabalan near Kalipate "DOVE" to pass from 'this' 'life' to the "REAL" "LIFE" WITH G_D IN HEAVEN now holding his beatiful granddaughters and her mom and his youngest baby lady as I continue to make sure his beLOVEd "PILANG" "Teofila Palana Cantano" from Visaya is okay. Your prayers for his soul and their souls are so appreciated. I LOVE YOU. ALL OF THIS I DID FOR YOU. I LOVE YOU. EVEN IF YOU HATE 'me' I STILL LOVE YOU. EVEN IF YOU DO NOT UNDERSTAND 'me' I STILL LOVE YOU. IF IF YOU THINK I CANNOT FORGIVE 'you' I STILL LOVE YOU. YOU CANNOT MAKE "ME" STOP LOVING "YOU" ..! CHOOSE WISELY ..! FOCUS ON G_D. TRUST G_D. LIKE THIS ... ... "FEEL" G_D ... "HEAR" G_D ... https://www.youtube.com/watch?v=uDKuQvuWRTU ... "SOAK" IN G_D'S PUREHEART TRUTH LOVE ... "YOU WILL FEEL BETTER DIFFERENT REBORN" ..! PROMISE. "SEE" YOU BACK "HOME" ... PROMISE.
-
-OH AND MY SON CASEY FLYNN IS GETTING MARRIED TO OLIVIA WAIT FOR IT "SIMPSON" what in thw world "THE SIMPSONS" joining TRUTH ..! I TOLD 'her' PERSONALLY THAT "I DO GOOD "KUNG FU" but why would anyone in the RIGHT MIND want to become 'my' "DAUGHTER" ..?". or WORDs to that effect as 'they' say ... so again ... THANK YOU FOR YOUR PRAYERS FOR THEIR CHILDREN TO COME FOR THE CHILDREN OF THE FUTURE AND FOR THEIR YOUNG LOVE ... LOVE IS IN THE AIR ... YOU CAN "FEEL" IT EVERYWHERE ...
 
 OH AND 1 MORE important VIP 'specific' 'detail' ATTENTION TO DETAIL "SPECIFICS MATE" CHECK yQurself Qarefully ... if 'you' were "DECEIVED BY THE POLICE STATE PEDOGON OPERATION WARP SPEED TO THE PIT" and have taken a SOUL-STEALING "EMOTION REMOVING" G_D'S NATURAL BODY PERFECTION INFECTING messenger RNA instruction code MUTATING 'your' DNA CODE FROM G_D then 'you' HAVE A CHOICE ... 'you' CAN REALIZE THAT 'they' are 'weak' 'dumb' 'wicked' 'incapable of doing anything that cannot be undone if it is G_D's will' ... SO IF YOU TRUST G_D THEN COME BACK TO G_D CONFESS YOUR SIN AND LOVE G_D WITH YOUR MOST PUREHEART AND SURELY THOSE WHO LOVE G_D WILL BE GIVEN A "DISCOVERY" IN TIME TO SAVE YOUR SOUL AND "THEIR" GOOD messenger RNA CAN JUST RESET REBOOT REPAIR FIX YOUR MUTANT MUTATING DEMONIC SOUL REMOVING "FEELING REMOVING" "AFTER SHE TOOK THE VACCINE SHE SAID SHE COULD NOT FEEL ANY EMOTION ANYMORE" ... IS THAT 'you' ..? WHO Who who are "YOU" ..? TELL 'me' WHO ARE "YOU" ... who Who WHO ARE 'you' ..? I REALLY WANT TO KNOW ..! TELL 'me' WHO Who who are "YOU" ..? 
 
