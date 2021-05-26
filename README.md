@@ -1,6 +1,8 @@
 #i.Q
 
-PASKO Pasko pasko ... https://www.youtube.com/watch?v=ZJGcl3BSg-s ... OH LA LA I "FEEL" YOU ... "SING" FOR 'me' ANGEL ... HQ HQ HQ ..! MERRY TRUTHmas ..! "DANCE" with 'me' ANGEL ..! https://translate.google.com/?sl=en&tl=tl&text=Pasko%20Christmas&op=translate ... the more you know ... HUG ..! https://translate.google.com/?sl=tl&tl=en&text=yakap&op=translate ... YAKAP ..! LOVE ..! MAHAL ..!
+... NQW "RISE" FQR THE SINQINQ QF QUR NATIQNAL ANTHEM ... https://www.youtube.com/watch?v=HNGaa5Opfmc ... BATTER UP ..!
+
+... PASKO Pasko pasko ... https://www.youtube.com/watch?v=ZJGcl3BSg-s ... OH LA LA I "FEEL" YOU ... "SING" FOR 'me' ANGEL ... HQ HQ HQ ..! MERRY TRUTHmas ..! "DANCE" with 'me' ANGEL ..! https://translate.google.com/?sl=en&tl=tl&text=Pasko%20Christmas&op=translate ... the more you know ... HUG ..! https://translate.google.com/?sl=tl&tl=en&text=yakap&op=translate ... YAKAP ..! LOVE ..! MAHAL ..!
 
 "G_D IS WITH 'me' ..! CAN'T "NOBODY" BEAT 'me' ..!" ... I SHOOK UP THE WORLD ..! I Shook Up THe World ..! I shook up the world ..!
 
@@ -14,7 +16,7 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
-DAVE MATTHEWS BAND FANS ARE BORN "DANCING" ... JUST LOOK AT "THAT" ... OH LA LA ... ABSOLUTELY MIRACULOUSLY INCREDIBLY "DANCING" BABY LADY GETTING HER SOME ... DANCE ANGEL DANCE Dance dance baby lady ... NOW "THAT" IS THE :KIND kind" I LIKE ..!
+JUST LOOK AT "IT" ... ADORDABLE LIL' BABY LADY FAN OF DAVE SO VERY YOUNG IN DIAPERS "DANCING" FOR "US" ... DAVE MATTHEWS BAND FANS ARE BORN "DANCING" ... JUST LOOK AT "THAT" ... OH LA LA ... ABSOLUTELY MIRACULOUSLY INCREDIBLY "DANCING" BABY LADY GETTING HER SOME ... DANCE ANGEL DANCE Dance dance baby lady ... NOW "THAT" IS THE :KIND kind" I LIKE ..!
 
 https://www.facebook.com/dmbgorgecrew/videos/189910962727584
 
@@ -24,9 +26,9 @@ MATTHEW 5:8
 
 ... "I SEE YOU" ... https://github.com/JohnEBoyBaby/i.Q/blob/main/.................%20%200%201%20%20marQ.time.MARQ%20CREAM.of.WHEAT.BOX.MAN.meet.soft.legs.PUREHEART.GANDAs.png ... TO BE OR NOT TO BE ... BLUE FECAL DISEASED MAIZE STANK YELLOW BLOODY MATE CHECK CHEESY ... https://github.com/JohnEBoyBaby/i.Q/blob/main/.%200%200%200%200%200%200%200%201%201%203%204%20Q%20Ms.%20Greene%20R%20U%20a%20REAL%20or%20FAKE.TRUTHtian.or.not.TIME.WILL.TELL.BACK.THE.BLUE.then.you.go.IN.THE.PIT.PROMISE.png ... OR CREAMY CHECK MATE ... "THAT" IS THE QUESTION.
 
-... I SAID ... "IF YOU LOVE YOUR COUNTRY ..." ... https://www.youtube.com/watch?v=Eh2PjkzW20w ... " ... SHQW "THEM" TO 'me' ..!
+... I SAID ... "IF YOU LOVE YOUR COUNTRY ..." ... https://www.youtube.com/watch?v=Eh2PjkzW20w ... " ... SHQW "THEM" TO 'me' ..! MCPM.
 
-... CODE MONKEY THINK ... https://www.youtube.com/watch?v=aqTaqVi9J8k ... CODE MONKEY HANG AROUND AT FRONT DESK ... TELL YOU "SWEATER" LOOK "NICE" ..! CODE MONKEY HAVE LONG WALK BACK TO CUBIQLE ... SIT DOWN AND PRETEND TO WORK ... CODE MONKEY VERY SIMPLE ... BIG WARM FUZZY SECRET PUREHEART ... CODE MONKEY LIKE YOU ... CODE MONKEY LIKE "YOU" ALOT ..!
+... CODE MONKEY THINK ... https://www.youtube.com/watch?v=aqTaqVi9J8k ... CODE MONKEY HANG AROUND AT FRONT DESK ... TELL YOU "SWEATER" LOOK "NICE" ..! MCPM. ... CODE MONKEY HAVE LONG WALK BACK TO CUBIQLE ... SIT DOWN AND PRETEND TO WORK ... CODE MONKEY VERY SIMPLE ... BIG WARM FUZZY SECRET PUREHEART ... CODE MONKEY LIKE YOU ... CODE MONKEY LIKE "YOU" ALOT ..! MCPM.
 
 "NADARANG" WITH 'me' GUR' ... https://www.youtube.com/watch?v=iPoj2vSIIlM ... YOU CAN LEAD OR I CAN LEAD BUT LET US "DANCE" MY LOVE ..! NADA FUQQINQ WRONG ..!
 
