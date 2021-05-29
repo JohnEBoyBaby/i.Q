@@ -1,5 +1,19 @@
 #i.Q
 
+... PASKO Pasko pasko ... https://www.youtube.com/watch?v=ZJGcl3BSg-s ... OH LA LA I "FEEL" YOU ... "SING" FOR 'me' ANGEL ... HQ HQ HQ ..! MERRY TRUTHmas ..! "DANCE" with 'me' ANGEL ..! https://translate.google.com/?sl=en&tl=tl&text=Pasko%20Christmas&op=translate ... the more you know ... HUG ..! https://translate.google.com/?sl=tl&tl=en&text=yakap&op=translate ... YAKAP ..! LOVE ..! MAHAL ..!
+
+"G_D IS WITH 'me' ..! CAN'T "NOBODY" BEAT 'me' ..!" ... I SHOOK UP THE WORLD ..! I Shook Up THe World ..! I shook up the world ..!
+
+YOU KNOW WHY YOU ARE 'here', RIGHT ..? https://github.com/JohnEBoyBaby/i.Q/blob/main/.ORIGIN%20OF%20GSPOT%20...%20LOVE%20...%20TRUBBLEGUM%20...%20CHEWY%20CREAMY%20TONGUE%20TINGLING%20CREAMINESSES%20AND%20SOFTENESSES%20...%20YOU%20CREAM-LOVER%20BOX%20MAN%20SUPPORTER%20...%20!PUREHEART%20TRUTH%20via%20CentOS.org.png ... TO UNCOVER THE ORIGIN OF GSPOT LOVE ... UNDER THE LUA MOONLIGHT NO DOUBT ... "I SEE YOU" ... "CREAM MAKER BOX MAN" ..!
+
+IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
+
+G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
+
+... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
+
+Cassius Marcellus Clay, Muhammad Ali
+
 ... NQW "RISE" FQR THE SINQINQ QF QUR NATIQNAL ANTHEM ... https://www.youtube.com/watch?v=HNGaa5Opfmc ... BATTER UP ..!
 
 WHEN VICIOUS MEN ATTACK GINA MARIA ... I PROMISE ANY OF 'you' IN BLUE ATTACKING HER ... "SHE IS PUREHEART." "IT IS YOU FILTHY WHO TURN HER DANCING INTO PERVERSE WICKEDNENSS DEVIANCY FILTH beCAUSE YOU ARE FILTH YOU SILENT COMPLICIT FILTHY MONSTER BLOOD COVERS YOU ALL ..! https://www.youtube.com/watch?v=kgz04Um7jP8  ... FREEMASON FILTHY FRATERNAL ORDER OF PEDO POLICE Faggot Boofoo Instigators SATANIC LOWERED MATTHEW 18:6 IN THE PIT B.A.R. ... I AM GOING TO TAKE YOU TO THE PIT ... I AM GOING TO CHALLENGE YOU IN HEAVEN AND YOUR FILTHY SOUL AND ALL THOSE 'you' LOVE ALONG WITH 'your' FILTHY, DEVIANT, VICIOUS SOUL ARE GOING TO THE PIT ... TO "LEARN" TO "FEEL" OTHERS' PAIN AND SUFFERING ... FILTHY ... MONSTER ..! THAT'S RIGHT JUST KEEP LAUGHING AT THEM ALL ... "I CAN'T STOP LAUGHING YOU ALL" ... GINA MARIA IS A REAL PUREHEART HUMAN WOMAN ... SHE LIVES ABOUT 20 MINUTES FROM ME ... FEEL FREE TO THINK FOR YOURSELF AND THINK, DANCE AND SING AND "FEEL" "FREE" ..! "FEEL"ing "FREE" IS "FREE" TQQ ..! "FEEL" FREE MY LOVE ..! GO WITH G_D. G_D WINS. 1ST CORINTHIANS 6:1-3. TRUTH. ACCEPT NO IMITATION. TRUTH.
@@ -16,20 +30,6 @@ ONLY 1 OF US IS RIGHT.
 SEE YOU BACK HOME.
 
 PROMISE.
-
-... PASKO Pasko pasko ... https://www.youtube.com/watch?v=ZJGcl3BSg-s ... OH LA LA I "FEEL" YOU ... "SING" FOR 'me' ANGEL ... HQ HQ HQ ..! MERRY TRUTHmas ..! "DANCE" with 'me' ANGEL ..! https://translate.google.com/?sl=en&tl=tl&text=Pasko%20Christmas&op=translate ... the more you know ... HUG ..! https://translate.google.com/?sl=tl&tl=en&text=yakap&op=translate ... YAKAP ..! LOVE ..! MAHAL ..!
-
-"G_D IS WITH 'me' ..! CAN'T "NOBODY" BEAT 'me' ..!" ... I SHOOK UP THE WORLD ..! I Shook Up THe World ..! I shook up the world ..!
-
-YOU KNOW WHY YOU ARE 'here', RIGHT ..? https://github.com/JohnEBoyBaby/i.Q/blob/main/.ORIGIN%20OF%20GSPOT%20...%20LOVE%20...%20TRUBBLEGUM%20...%20CHEWY%20CREAMY%20TONGUE%20TINGLING%20CREAMINESSES%20AND%20SOFTENESSES%20...%20YOU%20CREAM-LOVER%20BOX%20MAN%20SUPPORTER%20...%20!PUREHEART%20TRUTH%20via%20CentOS.org.png ... TO UNCOVER THE ORIGIN OF GSPOT LOVE ... UNDER THE LUA MOONLIGHT NO DOUBT ... "I SEE YOU" ... "CREAM MAKER BOX MAN" ..!
-
-IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
-
-G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
-
-... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
-
-Cassius Marcellus Clay, Muhammad Ali
 
 JUST LOOK AT "IT" ... ADORDABLE LIL' BABY LADY FAN OF DAVE SO VERY YOUNG IN DIAPERS "DANCING" FOR "US" ... DAVE MATTHEWS BAND FANS ARE BORN "DANCING" ... JUST LOOK AT "THAT" ... OH LA LA ... ABSOLUTELY MIRACULOUSLY INCREDIBLY "DANCING" BABY LADY GETTING HER SOME ... DANCE ANGEL DANCE Dance dance baby lady ... NOW "THAT" IS THE :KIND kind" I LIKE ..!
 
