@@ -1,5 +1,7 @@
 #i.Q
 
+"ETERNAL" "BO'" ... https://www.youtube.com/watch?v=NLCJlXtLW2A&t=1637s ... ends at the 27:17 MARK WITH A "LET'S GO ..!" "NATIVE" "BO'" DUQQ QALL ... PROBABLY JUST ANQTHER FUQQINQ CQINCI FUQQINQ DENSE DENCE 'son' ... MAKE IT COUNT 'son' ... YES MA'AM ... COMMANDER ... MCPM.
+
 ... PASKO Pasko pasko ... https://www.youtube.com/watch?v=ZJGcl3BSg-s ... OH LA LA I "FEEL" YOU ... "SING" FOR 'me' ANGEL ... HQ HQ HQ ..! MERRY TRUTHmas ..! "DANCE" with 'me' ANGEL ..! https://translate.google.com/?sl=en&tl=tl&text=Pasko%20Christmas&op=translate ... the more you know ... HUG ..! https://translate.google.com/?sl=tl&tl=en&text=yakap&op=translate ... YAKAP ..! LOVE ..! MAHAL ..!
 
 "G_D IS WITH 'me' ..! CAN'T "NOBODY" BEAT 'me' ..!" ... I SHOOK UP THE WORLD ..! I Shook Up THe World ..! I shook up the world ..!
