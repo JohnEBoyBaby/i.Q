@@ -1,6 +1,6 @@
 #i.Q
 
-"ETERNAL" "BO'" ... https://www.youtube.com/watch?v=NLCJlXtLW2A&t=1637s ... ends at the 27:17 MARK WITH A "LET'S GO ..!" "NATIVE" "BO'" DUQQ QALL ... PROBABLY JUST ANQTHER FUQQINQ CQINCI FUQQINQ DENSE DENCE 'son' ... MAKE IT COUNT 'son' ... YES MA'AM ... COMMANDER ... MCPM.
+"ETERNAL" "BO'" ... https://www.youtube.com/watch?v=NLCJlXtLW2A&t=1637s ... ends at the 27:17 MARK WITH A "SUSULONG TAYO" "LET'S GO ..!" "NATIVE" "BO'" DUQQ QALL ... PROBABLY JUST ANQTHER FUQQINQ CQINCI FUQQINQ DENSE DENCE 'son' ... "LET'S GO ..! LIKE GINA MARIA'S "LET'S GO" "SUSULONG TAYO" "RED" T-SHIRT WITH LIGHT lettering MY LOVE ... I "SEE" ANGELS ... EVERYWHERE ... LOOK AROUND "YOU" WILL TOO ... PROMISE. I AM TRUTH. MAKE IT COUNT 'son' ... YES MA'AM ... COMMANDER ... MCPM.
 
 ... PASKO Pasko pasko ... https://www.youtube.com/watch?v=ZJGcl3BSg-s ... OH LA LA I "FEEL" YOU ... "SING" FOR 'me' ANGEL ... HQ HQ HQ ..! MERRY TRUTHmas ..! "DANCE" with 'me' ANGEL ..! https://translate.google.com/?sl=en&tl=tl&text=Pasko%20Christmas&op=translate ... the more you know ... HUG ..! https://translate.google.com/?sl=tl&tl=en&text=yakap&op=translate ... YAKAP ..! LOVE ..! MAHAL ..!
 
