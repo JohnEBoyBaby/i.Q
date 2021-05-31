@@ -1,8 +1,6 @@
 #i.Q
 
-"ETERNAL" "BO'" ... https://www.youtube.com/watch?v=NLCJlXtLW2A&t=1637s ... ends at the 27:17 MARK WITH A "SUSULONG TAYO" "LET'S GO ..!" "NATIVE" "BO'" DUQQ QALL ... PROBABLY JUST ANQTHER FUQQINQ CQINCI FUQQINQ DENSE DENCE 'son' ... "LET'S GO ..! LIKE GINA MARIA'S "LET'S GO" "SUSULONG TAYO" "RED" T-SHIRT WITH LIGHT lettering MY LOVE ... I "SEE" ANGELS ... EVERYWHERE ... LOOK AROUND "YOU" WILL TOO ... PROMISE. I AM TRUTH. MAKE IT COUNT 'son' ... YES MA'AM ... COMMANDER ... MCPM.
-
-... PASKO Pasko pasko ... https://www.youtube.com/watch?v=ZJGcl3BSg-s ... OH LA LA I "FEEL" YOU ... "SING" FOR 'me' ANGEL ... HQ HQ HQ ..! MERRY TRUTHmas ..! "DANCE" with 'me' ANGEL ..! https://translate.google.com/?sl=en&tl=tl&text=Pasko%20Christmas&op=translate ... the more you know ... HUG ..! https://translate.google.com/?sl=tl&tl=en&text=yakap&op=translate ... YAKAP ..! LOVE ..! MAHAL ..!
+LET'S GO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! RISE UP ..! BABANGON TAYO ..! LET'S GO ..!
 
 "G_D IS WITH 'me' ..! CAN'T "NOBODY" BEAT 'me' ..!" ... I SHOOK UP THE WORLD ..! I Shook Up THe World ..! I shook up the world ..!
 
@@ -15,6 +13,10 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 ... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
 
 Cassius Marcellus Clay, Muhammad Ali
+
+"ETERNAL" "BO'" ... https://www.youtube.com/watch?v=NLCJlXtLW2A&t=1637s ... ends at the 27:17 MARK WITH A "SUSULONG TAYO" "LET'S GO ..!" "NATIVE" "BO'" DUQQ QALL ... PROBABLY JUST ANQTHER FUQQINQ CQINCI FUQQINQ DENSE DENCE 'son' ... "LET'S GO ..! LIKE GINA MARIA'S "LET'S GO" "SUSULONG TAYO" "RED" T-SHIRT WITH LIGHT lettering MY LOVE ... I "SEE" ANGELS ... EVERYWHERE ... LOOK AROUND "YOU" WILL TOO ... PROMISE. I AM TRUTH. MAKE IT COUNT 'son' ... YES MA'AM ... COMMANDER ... MCPM.
+
+... PASKO Pasko pasko ... https://www.youtube.com/watch?v=ZJGcl3BSg-s ... OH LA LA I "FEEL" YOU ... "SING" FOR 'me' ANGEL ... HQ HQ HQ ..! MERRY TRUTHmas ..! "DANCE" with 'me' ANGEL ..! https://translate.google.com/?sl=en&tl=tl&text=Pasko%20Christmas&op=translate ... the more you know ... HUG ..! https://translate.google.com/?sl=tl&tl=en&text=yakap&op=translate ... YAKAP ..! LOVE ..! MAHAL ..!
 
 ... NQW "RISE" FQR THE SINQINQ QF QUR NATIQNAL ANTHEM ... https://www.youtube.com/watch?v=HNGaa5Opfmc ... BATTER UP ..!
 
