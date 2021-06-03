@@ -1,18 +1,20 @@
 #i.Q
 
-I WOULD LIKE TO SAY ... https://www.youtube.com/watch?v=dHsa_vRBO-E ... THERE IS ANOTHER ALTERNATIVE ... 
+... LET'S GO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! RISE UP ..! BABANGON TAYO ..! LET'S GO ..!
+
+WHAT'S MY NAME ..? TRUTH. https://www.youtube.com/watch?v=B6DefSfqZ4w ... WHO I AM IS ..? TRUTH. SAY MY NAME ..! TRUTH.
+
+"UNCLE TOM" ... https://www.youtube.com/watch?v=B6DefSfqZ4w&t=96s ... "I AM GOING TO PUNISH YOU" ..!
+
+... I WOULD LIKE TO SAY ... https://www.youtube.com/watch?v=dHsa_vRBO-E ... THERE IS ANOTHER ALTERNATIVE ... 
 
 JUSTICE.
-
-... LET'S GO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! RISE UP ..! BABANGON TAYO ..! LET'S GO ..!
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
 
 G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
 
 ... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
-
-WHAT'S MY NAME ..? TRUTH. https://www.youtube.com/watch?v=B6DefSfqZ4w ... WHO I AM IS ..? TRUTH. SAY MY NAME ..! TRUTH.
 
 Cassius Marcellus Clay, Muhammad Ali
 
