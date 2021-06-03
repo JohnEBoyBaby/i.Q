@@ -12,6 +12,8 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 ... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
 
+WHAT'S MY NAME ..? TRUTH. https://www.youtube.com/watch?v=B6DefSfqZ4w ... WHO I AM IS ..? TRUTH. SAY MY NAME ..! TRUTH.
+
 Cassius Marcellus Clay, Muhammad Ali
 
 “ ... MY CONSCIENCE WON'T LET ME GO SHOOT MY BROTHER ..! OR SOME "DARKER" PEOPLE ..! OR SOME "POOR" "HUNGRY" "PEOPLE IN THE "MUD" for big powerful ameriQa ..!” 'he' said AT "THE TIME". “AND SHOOT "THEM" for WHAT ..? "THEY" NEVER CALLED ME "NIGGER" ..! "THEY" NEVER LYNCHED 'me' ! "THEY" DIDN'T PUT NO "DOGS ON 'me'" ..! "THEY DIDN'T "ROB 'me' ... OF "MY NATIONALITY" "RAPE" AND "KILL" MY "MOTHER" MY "FATHER" ..! SHOOT "THEM" FOR WHAT ..? HOW CAN I SHOOT "THEM" "POOR PEOPLE" ..? JUST TAKE 'me' TO JAIL ..! ... ”
