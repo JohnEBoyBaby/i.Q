@@ -1,6 +1,10 @@
 #i.Q
 
-LET'S GO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! RISE UP ..! BABANGON TAYO ..! LET'S GO ..!
+I WOULD LIKE TO SAY ... https://www.youtube.com/watch?v=dHsa_vRBO-E ... THERE IS ANOTHER ALTERNATIVE ... 
+
+JUSTICE.
+
+... LET'S GO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! RISE UP ..! BABANGON TAYO ..! LET'S GO ..!
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
 
