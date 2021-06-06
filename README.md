@@ -1,8 +1,24 @@
 #i.Q
 
-Aaah ... poor Qrumpster ... poor LIGHT BEINGS ... poor PLASMA BEINGS OF THE SUN AND LIGHT ... poor ANGELS ... not 1 bit impressed ... so don't call 'me' TRAITOR ... when all of 'you' have been SILENT ALL THESE YEARS "IN THE KNOW" ... don't blame 'me' ... rather ... ACT ... DO SOMETHING ... SHOW "US" WHO YOU ARE ..!
+HQ HQ HQ ..! MERRY TRUTHmas ..! PASKO Pasko pasko ... https://www.youtube.com/watch?v=ZJGcl3BSg-s ... OH LA LA I "FEEL" YOU ... "SING" FOR 'me' ANGEL ... HQ HQ HQ ..! MERRY TRUTHmas ..! "DANCE" with 'me' ANGEL ..! https://translate.google.com/?sl=en&tl=tl&text=Pasko%20Christmas&op=translate ... the more you know ... HUG ..! https://translate.google.com/?sl=tl&tl=en&text=yakap&op=translate ... YAKAP ..! LOVE ..! MAHAL ..!
+
+Aaah ... poor Qrumpster ... you poor Poor POOR MISTREATED little LIGHT ships ... ahhh Ahhh AHHH 'you' POOR Poor poor SILENT POWERFUL PUREHEART STILL NEEDING A FIRE LIT UNDER YOUR LITTLE ASS TO ACTUALLY DO SOMETHING APPARENTLY POOR LITLE LIGHT BEINGS ... don't you see my 2 fingers rubbing together playing my PUREHEART OUT on the smallest 'violin' known to G_D in all of HEAVEN and earth and everywhere else for 'you' aaah 'you' cute little adorable fiesty poor PLASMA BEINGS OF THE SUN AND LIGHT ... poor ANGELS ... not 1 bit impressed ... so don't call 'me' TRAITOR ... when all of 'you' have been SILENT ALL THESE YEARS "IN THE KNOW" ... don't blame 'me' ... rather ... ACT ... DO SOMETHING ... SHOW "US" WHO YOU ARE ..!
 
 WORD.
+
+"YOUR 'gift' LITTLE DRUMMER BOY GIVEN OUT OF THE SIMPLE DESPERATION OF A PURE LOVE IS THE 1 FAVORED ABOVE ALL ..."
+
+I AM A POOR BOY TOO by rump ba bum
+
+I HAVE NO 'gift' to bring by Rump Ba Bum
+
+I PLAY 'my drum' for 'you' by RUMP BA BUM Rump Ba Bum rump ba bum ... on my drum ...
+
+https://www.youtube.com/watch?v=HRbTrensuiY
+
+GO WITH G_D.
+
+BIGGER THAN YOU CAN IMAGINE.
 
 THERE IS NO ESCAPING G_D.
 
@@ -10,9 +26,13 @@ ONLY 1 OF 'us' IS RIGHT.
 
 SEE YOU BACK HOME.
 
+G_D WINS.
+
 PROMISE.
 
 ... LET'S GO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! RISE UP ..! BABANGON TAYO ..! LET'S GO ..!
+
+... NQW "RISE" FQR THE SINQINQ QF QUR NATIQNAL ANTHEM ... https://www.youtube.com/watch?v=HNGaa5Opfmc ... BATTER UP ..!
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
 
