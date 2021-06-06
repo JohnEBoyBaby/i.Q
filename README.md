@@ -1,6 +1,6 @@
 #i.Q
 
-... 41 ... https://www.youtube.com/watch?v=oIQuQqhnLHw ... I WILL GO IN THIS PLACE ... I'LL FIND MY OWN WAY OUT ... OH TELL ME WHY ... IT USED TO BE THAT 'you' and 'me' ... but nobody notices now ... YEAH Yeah yeah ... I WANTED TO STAY ... I WANTED TO PLAY ... I WANTED TO LOVE YOU ... https://www.youtube.com/watch?v=3K-12i0jclM ... THE MORE YOU KNOW ... 
+... COME MY LOVE ... https://www.youtube.com/watch?v=NTC__g12xPs ... TAKE MY HAND ... LET US DANCE ... 2-STEP ... 41 ... https://www.youtube.com/watch?v=oIQuQqhnLHw ... I WILL GO IN THIS PLACE ... I'LL FIND MY OWN WAY OUT ... OH TELL ME WHY ... IT USED TO BE THAT 'you' and 'me' ... but nobody notices now ... YEAH Yeah yeah ... I WANTED TO STAY ... I WANTED TO PLAY ... I WANTED TO LOVE YOU ... https://www.youtube.com/watch?v=3K-12i0jclM ... THE MORE YOU KNOW ... 
 
 HQ HQ HQ ..! MERRY TRUTHmas ..! PASKO Pasko pasko ... https://www.youtube.com/watch?v=ZJGcl3BSg-s ... OH LA LA I "FEEL" YOU ... "SING" FOR 'me' ANGEL ... HQ HQ HQ ..! MERRY TRUTHmas ..! "DANCE" with 'me' ANGEL ..! https://translate.google.com/?sl=en&tl=tl&text=Pasko%20Christmas&op=translate ... the more you know ... HUG ..! https://translate.google.com/?sl=tl&tl=en&text=yakap&op=translate ... YAKAP ..! LOVE ..! MAHAL ..!
 
