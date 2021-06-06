@@ -1,5 +1,9 @@
 #i.Q
 
+Aaah ... poor Qrumpster ... poor LIGHT BEINGS ... poor PLASMA BEINGS OF THE SUN AND LIGHT ... poor ANGELS ... not 1 bit impressed ... so don't call 'me' TRAITOR ... when all of 'you' have been SILENT ALL THESE YEARS "IN THE KNOW" ... don't blame 'me' ... rather ... ACT ... DO SOMETHING ... SHOW "US" WHO YOU ARE ..!
+
+WORD.
+
 THERE IS NO ESCAPING G_D.
 
 ONLY 1 OF 'us' IS RIGHT.
