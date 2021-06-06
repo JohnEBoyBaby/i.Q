@@ -10,7 +10,7 @@ I AM PUREHEART.
 
 I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT MOST ATTENTIVE FOR G_D TO CRY FOR 'me'.
 
-I WAS BORN "STANDING UP" and "TALKING BACK" ... www.youtube.com/watch?v=zfkLnZhhoTY&t=82 ... I AM EVA'S ... I DON'T TAKE NO ORDERS ... FROM NO KIND OF 'man' ... I AM EVA'S ... MY MIDDLE NAME IS "MISERY" ... WELL I AM EVA'S ... SO DON'T 'you' MESS AROUND WITH 'me' ... I AM EVA'S I AM Eva's I AM eva's I AM EVA's AS CAN BE ..! I tell you I AM eva's ... I Tell You I AM Eva's ... I TELL YOU I AM EVA'S ..! sorry I just got a 'dirty mind' that all K.I.D. ... yeah ...
+I WAS BORN "STANDING UP" and "TALKING BACK" ... www.youtube.com/watch?v=zfkLnZhhoTY&t=82 ... I AM EVA'S ... I DON'T TAKE NO ORDERS ... FROM NO KIND OF 'man' ... I AM EVA'S ... MY MIDDLE NAME IS "MISERY" ... WELL I AM EVA'S ... SO DON'T 'you' MESS AROUND WITH 'me' ... I AM EVA'S I AM Eva's I AM eva's I AM EVA's AS CAN BE ..! I tell you I AM eva's ... I Tell You I AM Eva's ... I TELL YOU I AM EVA'S ..! sorry I just got a 'dirty mind' that's all K.I.D. ... yeah ...
 
 WORD.
 
