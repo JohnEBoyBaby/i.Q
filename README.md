@@ -2,7 +2,15 @@
 
 HQ HQ HQ ..! MERRY TRUTHmas ..! PASKO Pasko pasko ... https://www.youtube.com/watch?v=ZJGcl3BSg-s ... OH LA LA I "FEEL" YOU ... "SING" FOR 'me' ANGEL ... HQ HQ HQ ..! MERRY TRUTHmas ..! "DANCE" with 'me' ANGEL ..! https://translate.google.com/?sl=en&tl=tl&text=Pasko%20Christmas&op=translate ... the more you know ... HUG ..! https://translate.google.com/?sl=tl&tl=en&text=yakap&op=translate ... YAKAP ..! LOVE ..! MAHAL ..!
 
-Aaah ... poor Qrumpster ... you poor Poor POOR MISTREATED little LIGHT ships ... ahhh Ahhh AHHH 'you' POOR Poor poor SILENT POWERFUL PUREHEART STILL NEEDING A FIRE LIT UNDER YOUR LITTLE ASS TO ACTUALLY DO SOMETHING APPARENTLY POOR LITLE LIGHT BEINGS ... don't you see my 2 fingers rubbing together playing my PUREHEART OUT on the smallest 'violin' known to G_D in all of HEAVEN and earth and everywhere else for 'you' aaah 'you' cute little adorable fiesty poor PLASMA BEINGS OF THE SUN AND LIGHT ... poor ANGELS ... not 1 bit impressed ... so don't call 'me' TRAITOR ... when all of 'you' have been SILENT ALL THESE YEARS "IN THE KNOW" ... don't blame 'me' ... rather ... ACT ... DO SOMETHING ... SHOW "US" WHO YOU ARE ..!
+Aaah ... poor Qrumpster ... you poor Poor POOR MISTREATED little LIGHT ships ... ahhh Ahhh AHHH 'you' POOR Poor poor SILENT POWERFUL PUREHEART STILL NEEDING A FIRE LIT UNDER YOUR LITTLE ASS TO ACTUALLY DO SOMETHING APPARENTLY POOR LITTLE LIGHT BEINGS ... don't you see my 2 fingers rubbing together playing my PUREHEART OUT on the smallest 'violin' known to G_D in all of HEAVEN and earth and everywhere else for 'you' aaah 'you' cute little adorable fiesty poor PLASMA BEINGS OF THE SUN AND LIGHT ... poor ANGELS ... not 1 bit impressed ... so don't call 'me' TRAITOR ... when all of 'you' have been SILENT ALL THESE YEARS "IN THE KNOW" ... don't blame 'me' ... rather ... ACT ... DO SOMETHING ... SHOW "US" WHO YOU "REAL"ly ARE BO' GUR' LIGHT TRUTH PUREHEART ..!
+
+I AM TRUTH. ACCEPT NO IMITATION. TRUTH.
+
+I AM PUREHEART.
+
+I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT MOST ATTENTIVE FOR G_D TO CRY FOR 'me'.
+
+I WAS BORN "STANDING UP" and "TALKING BACK" ... www.youtube.com/watch?v=zfkLnZhhoTY&t=82 ... I AM EVA'S ... I DON'T TAKE NO ORDERS ... FROM NO KIND OF 'man' ... I AM EVA'S ... MY MIDDLE NAME IS "MISERY" ... WELL I AM EVA'S ... SO DON'T 'you' MESS AROUND WITH 'me' ... I AM EVA'S I AM Eva's I AM eva's I AM EVA's AS CAN BE ..! I tell you I AM eva's ... I Tell You I AM Eva's ... I TELL YOU I AM EVA'S ..! sorry I just got a 'dirty mind' that all K.I.D. ... yeah ...
 
 WORD.
 
