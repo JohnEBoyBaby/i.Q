@@ -1,14 +1,14 @@
 #i.Q
 
+THERE IS NO ESCAPING G_D.
+
+ONLY 1 OF 'us' IS RIGHT.
+
+SEE YOU BACK HOME.
+
+PROMISE.
+
 ... LET'S GO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! RISE UP ..! BABANGON TAYO ..! LET'S GO ..!
-
-WHAT'S MY NAME ..? TRUTH. https://www.youtube.com/watch?v=B6DefSfqZ4w ... WHO I AM IS ..? TRUTH. SAY MY NAME ..! TRUTH.
-
-"UNCLE TOM" ... https://www.youtube.com/watch?v=B6DefSfqZ4w&t=96s ... "I AM GOING TO PUNISH YOU" ..!
-
-... I WOULD LIKE TO SAY ... https://www.youtube.com/watch?v=dHsa_vRBO-E ... THERE IS ANOTHER ALTERNATIVE ... 
-
-JUSTICE.
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
 
@@ -17,6 +17,8 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 ... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
 
 Cassius Marcellus Clay, Muhammad Ali
+
+WHAT'S MY NAME ..? TRUTH. https://www.youtube.com/watch?v=B6DefSfqZ4w ... WHO I AM IS ..? TRUTH. SAY MY NAME ..! TRUTH.
 
 “ ... MY CONSCIENCE WON'T LET ME GO SHOOT MY BROTHER ..! OR SOME "DARKER" PEOPLE ..! OR SOME "POOR" "HUNGRY" "PEOPLE IN THE "MUD" for big powerful ameriQa ..!” 'he' said AT "THE TIME". “AND SHOOT "THEM" for WHAT ..? "THEY" NEVER CALLED ME "NIGGER" ..! "THEY" NEVER LYNCHED 'me' ! "THEY" DIDN'T PUT NO "DOGS ON 'me'" ..! "THEY DIDN'T "ROB 'me' ... OF "MY NATIONALITY" "RAPE" AND "KILL" MY "MOTHER" MY "FATHER" ..! SHOOT "THEM" FOR WHAT ..? HOW CAN I SHOOT "THEM" "POOR PEOPLE" ..? JUST TAKE 'me' TO JAIL ..! ... ”
 
@@ -31,6 +33,118 @@ https://www.youtube.com/watch?v=dHsa_vRBO-E
 ... JUSTICE."
 
 Cassius Marcellus Clay, Muhammad Ali
+
+... AND THEN TRUTH SAID ... TO THOSE WITH EYES TO "SEE" AND EARS TO "HEAR" ...
+
+The Temptation
+
+... and then 'darkness' 'ahriman' 'satan' 'lucifer' 'wickedness' 'false gods' 'worthlessness' 'falseness' 'fake authority' 'deceivers' 'fake seal' 'serpent' 'snake' 'filth' 'evil incarnate' said to TRUTH ...
+
+1 ... then TRUTH was led by the Spirit into the wilderness to be tempted by the 'darkness' 'ahriman' 'satan' 'lucifer' 'wickedness' 'false gods' 'worthlessness' 'falseness' 'fake authority' 'deceivers' 'fake seal' 'serpent' 'snake' 'filth' 'evil incarnate'. 
+
+2 After fasting forty days and forty nights, TRUTH was hungry.
+
+3 The tempters, 'darkness' 'ahriman' 'satan' 'lucifer' 'wickedness' 'false gods' 'worthlessness' 'falseness' 'fake authority' 'deceivers' 'fake seal' 'serpent' 'snake' 'filth' 'evil incarnate', came to TRUTH and said, “If 'you' are TRUTH, tell these stones to become bread.”
+
+4 But TRUTH answered, “It is written:
+
+"WO('man') shall not live on bread alone, but on every WORD OF G_D that comes from G_D.”
+
+5 Then the 'darkness' 'ahriman' 'satan' 'lucifer' 'wickedness' 'false gods' 'worthlessness' 'falseness' 'fake authority' 'deceivers' 'fake seal' 'serpent' 'snake' 'filth' 'evil incarnate' took Him to the holy city and set Him on the pinnacle of the temple. 
+
+6 “If 'you' are TRUTH, 'darkness' 'ahriman' 'satan' 'lucifer' 'wickedness' 'false gods' 'worthlessness' 'falseness' 'fake authority' 'deceivers' 'fake seal' 'serpent' 'snake' 'filth' 'evil incarnate' said to TRUTH, then 'go ahead and kill yourself and come back to life', 'prove that G_D will save you alWAYs', go ahead and DO 'it' ... feeling froggy ..? JUMP ..! GO AHEAD TRUTH SHOW 'us' all, we'll ENJOY THE SHOW ... HOT DOGS GET YOUR HOT DOGS HERE ... CRACKER JACKS GET  YOUR CRAQQER JAQQS HERE ... ICE CQLD WATER HERE GET YOUR ICE COLD WATER HERE ... GO AHEAD TRUTH ... THE WORLD IS WATCHING ... DO 'it' TRUTH ... “throw 'yourself' down from the top of the temple and show 'us' all your 'powers' for it is written:
+
+‘G_D will command G_D'S "angels" concerning 'you',
+
+and they will lift 'you' UP in their hands,
+
+so that 'you' will not be hurt at all ever Ever EVER so as to not even strike your foot against a stone.”
+
+7 TRUTH replied saying to 'darkness' 'ahriman' 'satan' 'lucifer' 'wickedness' 'false gods' 'worthlessness' 'falseness' 'fake authority' 'deceivers' 'fake seal' 'serpent' 'snake' 'filth' 'evil incarnate', “It is also written: ‘Do not put G_D to the test.” BUT IF I DID ... G_D WOULD SAVE 'me' ... PROMISE.
+
+8 Again, the 'darkness' 'ahriman' 'satan' 'lucifer' 'wickedness' 'false gods' 'worthlessness' 'falseness' 'fake authority' 'deceivers' 'fake seal' 'serpent' 'snake' 'filth' 'evil incarnate' took TRUTH to a very high mountain and showed TRUTH all the kingdoms of the world and their glory. 
+
+9 So if 'you', TRUTH, will fall to your knees, bow down and worship 'darkness' 'ahriman' 'satan' 'lucifer' 'wickedness' 'false gods' 'worthlessness' 'falseness' 'fake authority' 'deceivers' 'fake seal' 'serpent' 'snake' 'filth' 'evil incarnate' 'controllers' 'courts' 'laws of men' 'churches of doctrine of men' 'principalities of darkness' 'spirits of deceipt' 'militants' 'warmongers' 'worry and fear instilling spirits' 'hate' 'viciousness' 'vengeance' 'cages' 'punishing' 'silent, complicit, FAKE TRUTHtian miltarized, weaponinzed imitations of TRUTH, the 8th sphere of soul-stealing reptilian fallen spirits of demonic deviant devis', 'all this world' will all be 'yours' TRUTH.” 
+
+10 But TRUTH answered and said, “AWAY from 'me', satan for IT IS WRITTEN: WORSHIP G_D AND SERVE G_D ONLY.”.
+
+11 then the 'darkness' 'ahriman' 'satan' 'lucifer' 'wickedness' 'false gods' 'worthlessness' 'falseness' 'fake authority' 'deceivers' 'fake seal' 'serpent' 'snake' 'filth' 'evil incarnate' 'controllers' 'courts' 'laws of men' 'churches of doctrine of men' 'principalities of darkness' 'spirits of deceipt' 'militants' 'warmongers' 'worry and fear instilling spirits' 'hate' 'viciousness' 'vengeance' 'cages' 'punishing' 'silent, complicit, FAKE TRUTHtian miltarized, weaponinzed imitations of TRUTH, the 8th sphere of soul-stealing reptilian fallen spirits of demonic deviant devis', fled from TRUTH, and G_D'S ANGELS CAME AND MINISTERED TO TRUTH.
+
+Matthew 4:1-11
+
+https://biblehub.com/bsb/matthew/4.htm
+
+AND THEN TRUTH SAID ...
+
+Take up Your Cross ... CARRY YOUR OWN LOAD AND DON'T SWEAT THE LOAD ... BEAR YOUR OWN BURDENS AND STOP COMPLAINING ABOUT THE BURDEN ... WE ALL "FEEL" IT TOO ...
+
+36 A WO('man’)'s enemies will be the members of her and his own household.’ 
+
+37 Anyone who loves his father or mother more than TRUTH is not worthy of G_D; anyone who loves his son or daughter more than TRUTH is not worthy of G_D; 
+
+3 8and anyone who does not take up her cross or his cross and bear her own LOAD her own BURDEN his own LOAD his own BURDEN head held HIGH PROUDLY CHIN UP BACK STRAIGHT WALKING TALKING FEELING PROUD AND BOUD AND RIGHTEOUS and follow TRUTH WITH MOST PUREHEART is not worthy of G_D. …
+
+AND THEN TRUTH SAID ...
+
+Tradition and Worship
+
+… 7 You hypocrites! Isaiah prophesied correctly about you: 
+
+8 ‘These people honor 'me' with their lips, but their hearts are far from 'me'.
+
+9 They worship 'me' in vain; they teach as doctrine the precepts of men.’ ”
+
+Matthew 15:7-9
+
+https://biblehub.com/matthew/15-8.htm
+
+AND THEN TRUTH SAID ...
+
+Bible of 1568	 Par 3 - A "REAL" CHANCE AT A "HOLE IN 1" - AND YOU GET JUST 1 SWING "BATTER" ... 5 IRON ... NOT TOO HARD ... NOT TOO SOFT ... JUST RIGHT ..! ▾ 
+
+Lawsuits among Believers
+
+1 Dare any of you, hauing businesse with another, be iudged vnder the vniust, and not rather vnder THE RIGHTEOUS?
+
+2 Do ye not knowe that THE RIGHTEOUS shall iudge the worlde? If the worlde shalbe iudged by THE RIGHTEOUS, are THE RIGHTEOUS vnworthy to iudge the smallest matters?
+
+3 Know ye not howe that we shal iudge the angels? Howe much more thinges that parteyne to this lyfe? 
+
+4 If then ye haue iudgement of thinges parteynyng to this lyfe, set vp them to iudge whiche are least esteemed IN TRUTH TO G_D'S MOST PUREHEART. 
+
+5 I speake it to your shame: IS IT SO THAT THERE IS NOT A WYSE WO('man') AMONG YOU ..? No not one that can iudge betwene sister and brother sister and sister and brother and brother? 
+
+6 But one brother goeth to law with another, and that vnder the vnbeleuers?
+
+7 Nowe therefore there is vtterly a fault among you, because ye go to lawe one with another: Why rather suffer ye not wrong? Why rather suffer ye not harme? 
+
+8 Nay, ye your selues do wrong, and do harme, and that to your sistren brethren.
+
+Members of Christ
+
+9 Knowe ye not that the vnrighteous shall not inherite the kingdome of G_D? Be not deceaued: neither fornicatours, nor idolatours, nor adulterers, nor weaklinges, nor abusers of them selues with mankinde, 
+
+10 Nor theeues, nor couetous, nor drunckardes, nor cursed speakers, nor pyllers, shall inherite the kingdome of G_D. 11And such were some of you: but ye are wasshed, but ye are sanctified, but ye are iustified in the name of TRUTH, and by the spirite of TRUTH sent from G_D with G_D'S MOST PUREHEART.
+
+12 All thinges are lawfull vnto me, but al thinges are not profitable: Al things are lawfull vnto me, but I will not be brought vnder the power of any. 
+
+13 Meates are ordeyned for the belly, and the belly for meates: but G_D shall destroy both it, and them. Nowe the body is not for fornication: but for the Lorde, and the Lorde for the body. 
+
+14 And G_D both hath raysed vp the Lorde, and also shall rayse vs vp by his power. 
+
+15 Knowe ye not that your bodies are the members of Christe? Shall I then take the members of Christe, and make them the members of an harlot? G_D forbyd. 16Know ye not, that he whiche coupleth him selfe with an harlot, is one body? For two (sayth he) shalbe one fleshe. 17But he that is ioyned vnto the Lord is one spirite.
+
+The Temple of the Holy Spirit
+
+18 Flee SILENCE, SEEK TRUTH, FLEE LUST AND fornication, SEEK LOVE AND PUREHEART, FLEE HATE AND VICIOUS CAGING OF YOUR SISTERS AND BROTHERS AND SEEK FORGIVENESS, SEEK RIGHTEOUSNESS, SEEK MATTHEW 18:6 FOR THOSE WHO CAUSE OTHERS TO NOT SEEK TRUTH WITH MOST PUREHEART. Euery synne that a man doeth, is without the body: but he that committeth synne whether SILENCE, LUST and fornication, HATE AND THREATENING AND SILENCING AND FRAMING AND DECEIVING AND JUST GOING ALONG WITH BEING COMPLICIT TO THE CAGING, RAPING, KILLING, THEIVING, ROBBING, ENSLAVING, FORCE MEDICATING, INSTITUTIONALIZING, TORTURING (EVEN NOW JULIAN ASSANGE SITS TORTURED AND NOT ONE 1 ANGEL IN HEAVEN, NOT 1 LIGHT SHIP, NOT 1 MILITARY BRANCH, NOT 1 POLICE DEPARTMENT, FIRE DEPARTMENT, British Accredited Registry B.A.R. Association, not one government agency, not 1 GOOD PAYCHECK CHASHING BLOOD-MONEY IDOLIZING MAMMON MONEY SERVING BEAST SYSTEM SERVANT OF FILTHY FREEMASONS SAID ANYTHING JUST SILENCE JUST COMPLICITNESS EVERY TV AND RADIO HOST EVERY CHANNEL EVERY POLITICIAN EVERY POLITICAL PARTY EVERY LAWYER EVERY PILOT WHO JUST KEPT FLYING EVERY ENGINEEER EVERY PHYSICIST EVERY ACADEMIAN EVERY PROFESSOR ALL SILENT ALL THESE YEARS IMAGINE HOW THANKFUL JULIAN ASSANGE'S PARENT MUST "FEEL" FOR Y OUR 'bravery' and 'moral courage' ALL THESE YEARS) sinneth against his owne body his her owne SOUL SPIRIT OF G_D WITHIN HIS HER OWN BODY.
+
+19 Knowe YOU not that your body is the temple of the HOLY SPIRIT OF G_D WHICH IS IN YOU, whom YOU haue of G_D'S WILL? Knowe YOU not that YOU ARE NOT YOUR OWNE? Knowe YOU not that YOU ARE G_D'S?
+
+20 For YOU are dearely bought: therefore glorifie G_D in your body and in your spirite, which are G_Ds.
+
+1st Corinthians Chapter 6
+
+https://biblehub.com/bishops/1_corinthians/6.htm
 
 HMMM ... START HERE AND CONNECT THE DOTS PLEASE ... https://www.youtube.com/watch?v=OpzmNSaF47Y ... DOES NIBURU EXIST ..? https://www.youtube.com/watch?v=aI_5YurVJOo ... SO IS CUBA INVOLVED IN THE "HOT ZONE" ..? ATLANITIS ..? HIDING RELICS IN ANCIENT AREAS ON EARTH ..? STORIES OF "A FLOOD" COLLIDING CONNECTING ..? LEMURIA ..? LOCKING DOWN THE WORLD TO HIDE THE TRUTH ..? GOVERNMENT, POLICE, COURTS, JUDGES, LAWYERS, FIRE DEPARTMENTS, FREEMASON LODGES, SILENT ON https://twitter.com/AE911TRUTH ..? ALL THESE YEARS ..? MILLIONS MURDERED ..? BOSS, Boss, boss, NO PLANE No Plane no plane ... DOWN GOES WORLD TRADE CENTER BUILDING 7 SAME AS THE OTHER 2 EARTHQUAKE-PROOF, OVER-ENGINEERED, GOLD-BELOW NOW MISSING, WORLD TRADE CENTER TOWERS 1 AND 2, THE SAME DAY BUT THE NEW OWNER, LARRY SILVERSTEIN TOOK OUT "TERRORISM" INSURANCE JUST MONTHS BEFORE SOMEHOW NOT THERE 'that' fateful day SAID HE TOLD 'them' TO "JUST PULL IT" meaning JUST PULL IT DOWN BRING THE BUILDING DOWN DEMOLISH THE BUILDING THAT 9-11-2001 fateful day for so many innocent used to blame 'muslims' 'terrorists' 'extremists' 'militants' WHEN INDEED IT WAS THOSE 'terrorirsts' in 'police' and 'military' and 'freemason' and 'vatican' and 'bank for international settlements' and 'london' and 'panic in d.c.' fake city states and fake immunity to getting their "TEETH KNOCKED OUT" ALL SILENT ALL TURNING AWAY ALL GUILTY ALL COMPLICIT the police state who CALL THOSE OF THE LIGHT FROM "FAR AWAY" A "THREAT" LIKE THEY CALL 'us' RIGHT HERE OF THE LIGHT TQQ a 'threat' ..? NIBIRU IS A "LIVING" PLANET ..? "IT" IS ALIVE ..? IT'S A PLANET ..? IT'S A BEING ..? IT'S A SHIP ..? IT'S COMING ..? IT'S THE "TRANSITION" ..?JUDGMENT COMING ..? https://www.youtube.com/watch?v=8s4sKAMgYsU ... poof ..! https://www.youtube.com/watch?v=qJFnDfvUVGc ... POOF ..! https://www.youtube.com/watch?v=RTUtFXAssuc ... POOFITY POOF Poof poof ... PQQF ..! ... WHAT DO WE HAVE HERE DANIEL, OLIVIA AT ... https://DARKJOURNALIST.com ..? TRUMP TESLA CONNECTION ... HMMM ... CIA "FAKE ALIEN INVATION" BLACK OP using fake fox news MAKING THE "THREAT" BE THOSE FROM FAR AWAY THE "ALIENS" not THE "REAL" 'threat' THE POLICE THE COURTS THE LAWYERS THE BANKERS THE MILITARY PEDOGON THE PIZZAGATE PEDOPHILE POLICE SILENT COMPLICIT ON ENDLESS WORLDWIDE LOCKDOWN FAKE PLANdemic MARK OF THE BEAST DECEPTION, FAKE IRAQ AFGHAN SYRIA LIBYA INVASIONS ..! USS LIBERTY ZIONIST ISRAEL TRAITOROUS PROPAGANDA FAKE jew BALFOUR AGREEMENT ROTHSCHILD SATANISTS NEW WORLD ORDER POLICE STATE FREEMASON "SYMBOLISM WILL BE THEIR DOWNFALL" SICKEING MI5 MI6 007 WICKED MOCKINGBIRD MEDIA BIG PHARMA BIG TECH HUMAN SCIENCE EXPERIMENTING MONSTERS IN POLICE UNIFORMS TERRORISTS CAGING RAPING PROPAGANDIZING DECIVING LYING SNAKES PENSION WHORES LIARS DEVIANTS TRANS PLANTS CIA AND FBI AND THOSE IN BLUE FRATERNAL ORDER OF PEDOPHILE POLICE FREEMASON FOP LODGE ... BROTHERHOOD ... SATANIC PEDOPHILE BADGES ... SATAN LIKE SERPENT ... LIKE DNA MUTANTS ... WOULD G_D MAKE ANYTHING THAT KILLS CAGES RAPES SILENCES DECEIVES TORTURES or did 'someone' or some 'ones' elohim else ..? ... IN RUSSIA WHERE PUTIN SAID IF YOU EVEN 'try' ... https://www.youtube.com/watch?v=aI_5YurVJOo ... ANYTHING, RUSSIA WILL ... https://www.youtube.com/watch?v=W8GQKejtYgE ... KNOCK OUT YOUR TEETH ..! DO NOT FUQQ ARQUND WITH THE FUQQ AROUND ...  ... USS DQNALD QUAKINQ DUQQ CLOWNS ..! https://www.rt.com/russia/524349-putin-speech-siberia-resources/ ... AFTER PUTIN TOLD YOU ALL DIRECTLY that IF 'they' ASK TO BE SERVED BABIES FOR BREAKFAST, 'they' WILL SERVE 'them' BABIES FOR BREAKFAST ... https://www.rt.com/news/445050-putin-kerch-strait-provocation/ ... "KIEV (UKRAINE) under biden poreshenko cia fbi fop freemasonic satanic leadership WOULD EAT BABIES FOR BREAKFAST ... ... COMPLETELY EXPOSING YOUR FILTHY FAKE AUTHORITY AND USELESS FORCES OF FILTH LIKE THE ABSOLUTE DISRESPECT FOR ANYTHING OF THE AMERISICKANS HAVE TO SAY TOO IN CHINA, "CLOSED SOCIETIES TO PROTECT THEIR WOMEN AND CHILDREN" ANY GOVERNMENT RELEASE OF INFORMATION IS KNOWN BY ALL IN THE GOVERNMENT THAT NEEDED TO KNOW PRIOR TO THE RELEAESE OF SAID INFORMATION ... https://www.youtube.com/watch?v=9xqgHVbma3o ... THEREFORE, WHEN THE RUSSIAN FEDERATION RELEASES 3 "CAPTIVE" SNAKE BEINGS SHAPESHIFTING SOUL-CAPTURING AVATAR-BEAUTIFUL-WOMEN-EMBODIED-AVATARS THAT SHOW YOU ALL THAT THEY ARE SNAKES BY SHAPESHIFTING THEIR EYES OF LIVE RUSSIAN DOCUMENTARY TELEVISION SHOWN CLEARLY BY JONATHAN KLECK IN THIS VIDEO HERE ==> https://www.youtube.com/watch?v=vChga3vhqK4 ... WHICH BEFORE SHOWING THE AUDIENCE KNOWING "THE WORLD IS WATCHING" SAYS TO EVERYONE INCLUDING THE 3 "GUESTS" TELLING THE TRUTH FOR ALL TO SEE AND THEN "WINKING WITH EYE" WHO ELSE DOES THAT ... ASK JONATHAN KLECK IT'S DUMBAMA AND OTHER SATANIC FILTH ... https://www.youtube.com/watch?v=qeTr4uKe3mk SO THEN YOU WILL START TO CONNECT THE DOTS THAT THE "RUSSIAN FEDERATION" WHO NOT LONG AGO HAD THEIR ENTIRE RUSSIAN GOVERNMENT RESIGN AND THEN SELECTIVELY SOME WERE RE-HIRED AND OTHERS MOVED ALONG ... WHY ..? https://www.rt.com/russia/478340-government-resigns-russia-putin-medvedev/ ...CLEANING HOUSE ..? https://www.youtube.com/watch?v=gzji_UH8ies ... KIND OF RESEMBLES PREVIOUS REMAKRS OF GINA MARIA TALKING ABOUT ENKI, SUPPOSEDLY LIVING UNDER THE OCEAN, A SNAKE ANUNAKI GOOD BROTHER IN THE STORY, TRYING TO HELP 'us' human beings, humanity, our future, our children, our souls, after his brother, ENLIL, in the story the ANCIENT CONNECTING OF DOTS elohim 'god-like' beings, reptiles drawn on ancient drawings, egyptian, sumerian, assyrian, mesopotamian, han, slavic, hangul, mongul, hindu, buddhist, zulu, gracie, aztec, how could they all be drawing the same things when they are so far apart if it was not real ..? https://www.youtube.com/watch?v=Tf0VW12yGyg ... NAUGHTY BEAVER SURE shows how the freemasons and satanic worship and nostradomus prophecies come to life before your eyes and Jonathan Kleck was given ARTIST'S EYES TO SEE THE MULTIPLE LEVELS OF INK IN THE PRINTED MONEY ... https://www.youtube.com/results?search_query=jonathan+kleck+money+bombings ... TO "SEE" TO "DISCOVER" PLANNED SATANIC SACRIFICES TO "SAVE" LIVES ... TO "EXPOSE" THE VATICAN AND ITS ALTERS AND ITS CHURCHES INSIDE AND OUT LIKE DC, LIKE LONDON, ARE SERPENT SNAKE SHAPES BUGS LOCCUST SCORPIONS DRAGONS MONSTERS FROM THE PIT ..?https://www.youtube.com/watch?v=OoeHVUmk_qw ... XI IN CHINA IS AT WAR CLEANING FREEMASON FILTH IN CHINA AS IS PUTIN IN RUSSIA CLEANING FREEMASON FILTH IN RUSSIA AND ASSURE YOU I DO TRUMP IN AMERIQA IS CLEAING FREEMASON FILTH HERE TOO ... AND THEY ARE NOT ALONE ... "BIGGER THAN YOU CAN IMAGINE" ... https://www.youtube.com/watch?v=cRkfG7EYKA8 ... https://www.youtube.com/watch?v=-cpPgJKWe94 TRACEofWING 'WE HAVE A WINNER' saying 5 years ago "Don't take it a wrong way, I just don't like you" says XiQ ... 1.1K LIKES ... I WOULD MUCH RATHER HAVE A GOOD KING THAN A 'evil' unrepresentative democracy ... G_D IS MY KING ... www.youtube.com/watch?v=yB8wzh0cKGE ... the more you know ... https://www.youtube.com/watch?v=kGDm_mWtXmU ... THE MORE YOU KNOW ... https://www.youtube.com/watch?v=9Wi33vDntjs&t=600s NO ONE GETS OUT OF THIS ..! https://www.youtube.com/watch?v=EWZWVEkqVS8 ... THE POWER OF YOUR INTENTIONS ... https://www.youtube.com/watch?v=D1sWVjXhKfg ... DO YOU KNOW https://TRUTHstreamMedia.com MELISSA AND AARON DYKES ..? THE MINDS OF MEN ... https://www.youtube.com/watch?v=LQucESRF3Sg ... YOU SHOULD ..! https://www.youtube.com/watch?v=pL4Pq_vaI2s ... RUSSIA INVESTIGATING AMERISICKA LYING ABOUT GOING TO THE MOON ... https://www.youtube.com/watch?v=PO-iE_7QB8A ... DO YOU REALLY "ACCEPT" the 'reality you are presented with' ..? NO. NO YOU DO NOT. SAY "IT". NOTHING CAN STOP WHAT IS COMING ..! NOTHING.
 
@@ -3485,7 +3599,21 @@ GOOD Knights In Development LIFT UP GOOD Queens In Development
 
 ... THESE "CHILDREN OF DARKNESS"... https://www.youtube.com/watch?v=OoeHVUmk_qw&t=1093s NO ONE GETS OUT OF THIS. THOSE WHO KNOW CANNOT SLEEP.
 
-THINQ QF IT AS A TIME QAPSULE ... ... an 'archive ... https://twitter.com/a3dudotcom ... http://web.archive.org/web/20180101000000*/a3du.com ... hmmm ... TRUTH NEVER CHANGES ... ALL THQSE YEARS AGQ BEFQRE 'the incident' and spilled blQQd ... such a shame ... teardrop ... TearDrop ... TEARDROP ... those 'you are taught' to 'trust the most' are the most guity of sin ... SILENCE IS COMPLICITNESS ... THEY ALL KNEW ... ALL THESE YEARS ... https://911pilots.org/about-captain-dan-hanley/ ... PRINCIPLES before personalities ...
+THINQ QF IT AS A TIME QAPSULE ... ... an 'archive ... https://twitter.com/a3dudotcom ... http://web.archive.org/web/20180101000000*/a3du.com ... hmmm ... TRUTH NEVER CHANGES ... ALL THQSE YEARS AGQ BEFQRE 'the incident' and spilled blQQd ... such a shame ... teardrop ... TearDrop ... TEARDROP ... those 'you are taught' to 'trust the most' are the most guity of sin ... SILENCE IS COMPLICITNESS ... THEY ALL KNEW ... ALL THESE YEARS ... https://911pilots.org/about-captain-dan-hanley/ ... PRINCIPLES before personalities ... OH AND CAPTAIN DAN HANLEY ON JUNE 5, 2021 SENT 'me' AN EMAIL REQUESTING TO NOT BE INCLUDED IN FURTHER GROUP EMAILS YESTERDAY SO HE IS A FAKE TRUTHtian best to stay in Pakistan and be banished in 1/2 TRUTH FILTH FOREVERMORE NEVER TO RETURN TO AMERIQA ... FILTH. THERE IS NO FILTH IN HEAVEN. BE A "REAL" TRUTHtian. NO FAKE TRUTHtians wel.com ... NO LITTLE BOY BLUE SUPPORTERS ... NO EXCUSE MAKERS FOR THE BLUE MONSTERS INC ... CAGERS ... MILITANTS ... WARMONGERS ... SILENT ... ASK JULIAN ASSANGE ASK MARIA BUTINA ASK EDWARD SNOWDEN ASK ANYONE BUT ANYONE HERE IN AMERISICKA AND THE WORLD KNOWS SO WHY DON'T THOSE IN 'law' enFORCEment know ...? THEY ALL KNOW ..! THEY ALL HAVE ALWAYS KNOWN ..! THEY HIRE LOW iQ 'followers' on purpose ..! THE PROMOTE THE weak-minded, easily blackmailed, atheists, G_Dless, soulless, without "FEELING" without EMPATHY the apathetic the UNCARING the LACKING ALL PRINCIPLES the SILENT the COMPLICIT the UNFORGIVEN ..!
+
+SILENCE IS COMPLICITNESS.
+
+THEY ALL KNOW NOW ... THEY ALL KNEW ALL THESE YEARS ...
+
+PRICINCIPLES OVER personalities.
+
+THERE IS NO FILTH IN HEAVEN.
+
+NONE. 
+
+"UNCLE TOM" ... https://www.youtube.com/watch?v=B6DefSfqZ4w&t=96s ... "I AM GOING TO PUNISH YOU" ..!
+
+POOF ..!
 
 ONLY ONE OF US IS RIGHT ... ... see you back 'home' ... PROMISE ...
 
