@@ -2,7 +2,7 @@
 
 "BROADCAST THIS MESSAGE TO THE WORLD ..!" I WILL MY GOOD SON I WILL ...! ANYTHING FOR YOU MY GOOD SON. I LOVE YOU MY GOOD SON ..! PROMISE. SEE YOU BACK HOME MY GOOD SON ..! I LOVE YOU ..! NEVER FORGET ..! https://www.youtube.com/watch?v=73zm3yhjQ9I&t=429s ... TRUTH is the WAY to LIFE with G_D.
 
-TRY TO "SEE" THE WORLD ... https://www.youtube.com/watch?v=sXibJ5An1ZA ... BEYOND YOUR FRONT DOOR ... https://www.youtube.com/watch?v=u3NE6UuaLiY ... TRY TO FIGURE OUT WHAT ... https://www.youtube.com/watch?v=ftlSOfDqsnE ... ALL ... https://www.youtube.com/watch?v=9Wi33vDntjs THIS ... https://www.youtube.com/watch?v=9I2cqun5Iww ... IS ... https://www.youtube.com/watch?v=cHb4iatBVYQ ... FOR ... TRY TO "SEE" THE WORLD BEYOND YOUR FRONT DOOR ... https://www.youtube.com/watch?v=u3NE6UuaLiY ... TRY TO FIGURE OUT WHAT ALL THIS IS FOR ...
+TRY TO "SEE" THE WORLD ... https://www.youtube.com/watch?v=sXibJ5An1ZA ... BEYOND YOUR FRONT DOOR ... https://www.youtube.com/watch?v=u3NE6UuaLiY ... TRY TO FIGURE OUT WHAT ... https://www.youtube.com/watch?v=ftlSOfDqsnE ... ALL ... https://www.youtube.com/watch?v=9Wi33vDntjs ... THIS ... https://www.youtube.com/watch?v=9I2cqun5Iww ... IS ... https://www.youtube.com/watch?v=cHb4iatBVYQ ... FOR ... TRY TO "SEE" THE WORLD BEYOND YOUR FRONT DOOR ... https://www.youtube.com/watch?v=u3NE6UuaLiY ... TRY TO FIGURE OUT WHAT ALL THIS IS FOR ...
 
 ... LET'S GO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! RISE UP ..! BABANGON TAYO ..! LET'S GO ..!
 
