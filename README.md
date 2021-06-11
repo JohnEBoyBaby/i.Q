@@ -1,11 +1,5 @@
 #i.Q
 
-...TRY TO "SEE" THE WORLD BEYOND YOUR FRONT DOOR ... https://www.youtube.com/watch?v=u3NE6UuaLiY ... "TRY" "TO FIGURE OUT" "WHAT" "ALL" "THIS" "IS FOR" ...
-
-"BROADCAST THIS MESSAGE TO THE WORLD ..!" I WILL MY GOOD SON I WILL ...! ANYTHING FOR YOU MY GOOD SON. I LOVE YOU MY GOOD SON ..! PROMISE. SEE YOU BACK HOME MY GOOD SON ..! I LOVE YOU ..! NEVER FORGET ..! https://www.youtube.com/watch?v=73zm3yhjQ9I&t=429s ... TRUTH is the WAY to LIFE with G_D.
-
-TRY TO "SEE" THE WORLD ... https://www.youtube.com/watch?v=sXibJ5An1ZA ... "BEYOND YOUR FRONT DOOR" ... "TRY" ... www.youtube.com/watch?v=C7q_19gOucc ... "TO FIGURE OUT" ... https://www.youtube.com/watch?v=g_BqGEp2eiU ... "WHAT" ... https://www.youtube.com/watch?v=ftlSOfDqsnE ... "ALL" ... https://www.youtube.com/watch?v=9Wi33vDntjs ... "THIS" ... https://www.youtube.com/watch?v=9I2cqun5Iww ... "IS" ... https://www.youtube.com/watch?v=cHb4iatBVYQ ... "FOR" ...
-
 ... LET'S GO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! RISE UP ..! BABANGON TAYO ..! LET'S GO ..!
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
@@ -15,6 +9,14 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 ... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
 
 Cassius Marcellus Clay, Muhammad Ali
+
+THE MORE YOU KNOW ... https://www.youtube.com/watch?v=5Gcvnvr-cbg ... "WE'RE NOT BEING TOLD EVERYTHING ... " https://www.youtube.com/watch?v=hG_g29g0uQM ... WHAT DID 'we' GO TO "WAR" FOR ... REALLY ..? https://www.youtube.com/watch?v=b7DCntKhUDI ... WAS IT TO 'mask' 'cover up' 'hide' a hidden 'weapons' hidden 'technology' hidden 'knowledge' hidden in MESOPOTAMIA ... ancient IRAQ and ancient PERSIA and ancient SYRIA and ancient AFGHANISTAN ..? ... https://www.youtube.com/watch?v=07c23i-jeL8 ... TELL 'me' AGAIN WHY 'h' 'w' 'bush' was called 'poppy' ... was it 'poppy flowers turned to opium turned to heroin turned over to police turned over to the D.E.A. turned over to the C.I.A. and T.S.A. and HOMELAND 'security' and I.N.S. and PEDOgon and the FEDERAL "TITANIC" RESERVE "JEKYLL ISLAND" ... RIGHT GENERAL MARSHALL ..? RIGHT USS LIBERTY ..? https://TruNews.com ... "THOSE YOU WERE TAUGHT TO TRUST THE MOST ARE THE MOST GUILTY OF EVIL." https://www.youtube.com/watch?v=24r53fbq3C0 ... and F.B.I. and F.O.P. Fraternal WAY TOO 'fraternal' BOOFOO 'brotherhood' FOP 'lodge' and Freemason 'lodge' PEDOPHILE SATANIC DEMONIC FEAR-INSTILLING 'cabal' 'protection raQuet' blood-covered blood-thirty bloody MATE CHECK WICKED fake authority, fake wealth, cagers, killers, deceivers, agents, snakes, wolves in sheep's sQin, filth, monsters, marshals and Fox News and MSNBC and CNN and ABC and NBC and CBS and DISNEY and ESPN and MTV and ALL THE REST ... MOVIES AND ALL THE FAKE TRUTHtian radio hosts too ... https://www.youtube.com/watch?v=g_BqGEp2eiU ... even the 1/2 TRUTH filth AM RADIO 'talking heads' or fake alt media goons like the fag filthy 2-faced CIA-OP 'alien threat' pushing demon Richard Dolan or Hal Turner just FILTHY ... THERE IS NO FILTH IN HEAVEN. NONE. YOU "PLAY" ALONG WITH THE 'op' you get EXPOSED LIKE THE REST ... FILTHY ..! MONSTER ..! FEELING FROGGY HEARTLESS Quen'Tin Man', 'CAPTAIN DAN' 'you' BIG 'COLD-BLOODED' 'DUMMY' ..? JUMP ..! "SEE" "WHAT" 'you' get ..! GQ 'WARN' 'this' Quentin LADDY AND "WHAT SPECFICICALLY" IS A "QUENTIN BRITISH CANADIAN NEW ZEALANDER AUSSIE FAKE TRUTHtian FILTHY IMPOSTER COP SUQQer LIKE 'you' QUENtin man DOING WITH AN OFFICIAL ".CN" EMAIL ADDRESS MAKING THAT 'warning' to 'me' little boy QuenTin ... HEY QuenTin please FEEL "FREE" to go kill yourself, your parents and  your children and all who like or love or support 'you' cop suQQing 'soulless' low iQ QUEN'tin nan' beCAUSE 'ugly' you are no son of ancient Han dummy 'you' fake TRUTHtian 'warning' warlock of wickendness GO DIE SOMEWHERE. JUMP IN A DEEP HOLE. NO ONE WILL EVER MISS 'you' ..! FILTHY ..! MONSTER ..! NO ONE GETS OUT OF THIS. "SEE" 'you' back HOME. PROMISE. CHECK mATE. TRUTH. ACCEPT NO IMITATION. TRUTH.
+
+...TRY TO "SEE" THE WORLD BEYOND YOUR FRONT DOOR ... https://www.youtube.com/watch?v=u3NE6UuaLiY ... "TRY" "TO FIGURE OUT" "WHAT" "ALL" "THIS" "IS FOR" ...
+
+"BROADCAST THIS MESSAGE TO THE WORLD ..!" I WILL MY GOOD SON I WILL ...! ANYTHING FOR YOU MY GOOD SON. I LOVE YOU MY GOOD SON ..! PROMISE. SEE YOU BACK HOME MY GOOD SON ..! I LOVE YOU ..! NEVER FORGET ..! https://www.youtube.com/watch?v=73zm3yhjQ9I&t=429s ... TRUTH is the WAY to LIFE with G_D.
+
+TRY TO "SEE" THE WORLD ... https://www.youtube.com/watch?v=sXibJ5An1ZA ... "BEYOND YOUR FRONT DOOR" ... "TRY" ... www.youtube.com/watch?v=C7q_19gOucc ... "TO FIGURE OUT" ... https://www.youtube.com/watch?v=g_BqGEp2eiU ... "WHAT" ... https://www.youtube.com/watch?v=ftlSOfDqsnE ... "ALL" ... https://www.youtube.com/watch?v=9Wi33vDntjs ... "THIS" ... https://www.youtube.com/watch?v=9I2cqun5Iww ... "IS" ... https://www.youtube.com/watch?v=cHb4iatBVYQ ... "FOR" ...
 
 WHAT'S MY NAME ..? TRUTH. https://www.youtube.com/watch?v=B6DefSfqZ4w ... WHO I AM IS ..? TRUTH. SAY MY NAME ..! TRUTH.
 
