@@ -10,6 +10,28 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
+I WILL LEAVE YOU SO FAST ... and go so fuQQinQ far aWAY from ALL of 'you' so Fast ... that none of 'you' will ever Ever EVER "HEAR" 'my' 'voice' aQain ...
+
+BUT ... every morning ... when you ... BABANGON TAYO ... RISE UP ... 'you' will "HEAR" 'me' "SINGING", "DANCING" and "LAUGHING" in 'your head' ... PROMISE.
+
+TRUTH. ACCEPT NO IMITATION.
+
+TRUTH.
+
+A/C FOR UNDER $100.
+
+https://topchillbox.com/AC/checkout.html
+
+ACCEPT NO IMITATION.
+
+https://topchillbox.com/AC/v1/v2.html
+
+IN THE "BOX" THAT I WILL SHIP IS A NORMALLY PRICED $179.00 A/C "CHILLBOX" UNIT ... FOR JUST $89.00 EACH ..! EACH WITH ITS OWN LITHIUM ION BATTERY ..! "WE" TOGETHER ARE "STRONGER" "SMARTER" ...
+
+I AM TRUTH.
+I AM PUREHEART.
+I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT LISTENING MOST CAREFULLY TO HEAR G_D CRYING FOR 'me'.
+
 THE MORE YOU KNOW ... https://www.youtube.com/watch?v=5Gcvnvr-cbg ... "WE'RE NOT BEING TOLD EVERYTHING ... " https://www.youtube.com/watch?v=hG_g29g0uQM ... WHAT DID 'we' GO TO "WAR" FOR ... REALLY ..? https://www.youtube.com/watch?v=b7DCntKhUDI ... WAS IT TO 'mask' 'cover up' 'hide' a hidden 'weapons' hidden 'technology' hidden 'knowledge' hidden in MESOPOTAMIA ... ancient IRAQ and ancient PERSIA and ancient SYRIA and ancient AFGHANISTAN ..? ... https://www.youtube.com/watch?v=07c23i-jeL8 ... TELL 'me' AGAIN WHY 'h' 'w' 'bush' was called 'poppy' ... was it 'poppy flowers turned to opium turned to heroin turned over to police turned over to the D.E.A. turned over to the C.I.A. and T.S.A. and HOMELAND 'security' and I.N.S. and PEDOgon and the FEDERAL "TITANIC" RESERVE "JEKYLL ISLAND" ... RIGHT GENERAL MARSHALL ..? RIGHT USS LIBERTY ..? https://TruNews.com ... "THOSE YOU WERE TAUGHT TO TRUST THE MOST ARE THE MOST GUILTY OF EVIL." https://www.youtube.com/watch?v=24r53fbq3C0 ... and F.B.I. and F.O.P. Fraternal WAY TOO 'fraternal' BOOFOO 'brotherhood' FOP 'lodge' and Freemason 'lodge' PEDOPHILE SATANIC DEMONIC FEAR-INSTILLING 'cabal' 'protection raQuet' blood-covered blood-thirty bloody MATE CHECK WICKED fake authority, fake wealth, cagers, killers, deceivers, agents, snakes, wolves in sheep's sQin, filth, monsters, marshals and Fox News and MSNBC and CNN and ABC and NBC and CBS and DISNEY and ESPN and MTV and ALL THE REST ... MOVIES AND ALL THE FAKE TRUTHtian radio hosts too ... https://www.youtube.com/watch?v=g_BqGEp2eiU ... even the 1/2 TRUTH filth AM RADIO 'talking heads' or fake alt media goons like the fag filthy 2-faced CIA-OP 'alien threat' pushing demon Richard Dolan or Hal Turner just FILTHY ... THERE IS NO FILTH IN HEAVEN. NONE. YOU "PLAY" ALONG WITH THE 'op' you get EXPOSED LIKE THE REST ... FILTHY ..! MONSTER ..! FEELING FROGGY HEARTLESS Quen'Tin Man', 'CAPTAIN DAN' 'you' BIG 'COLD-BLOODED' 'DUMMY' ..? JUMP ..! "SEE" "WHAT" 'you' get ..! GQ 'WARN' 'this' Quentin LADDY AND "WHAT SPECFICICALLY" IS A "QUENTIN BRITISH CANADIAN NEW ZEALANDER AUSSIE FAKE TRUTHtian FILTHY IMPOSTER COP SUQQer LIKE 'you' QUENtin man DOING WITH AN OFFICIAL ".CN" EMAIL ADDRESS MAKING THAT 'warning' to 'me' little boy QuenTin ... HEY QuenTin please FEEL "FREE" to go kill yourself, your parents and  your children and all who like or love or support 'you' cop suQQing 'soulless' low iQ QUEN'tin nan' beCAUSE 'ugly' you are no son of ancient Han dummy 'you' fake TRUTHtian 'warning' warlock of wickendness GO DIE SOMEWHERE. JUMP IN A DEEP HOLE. NO ONE WILL EVER MISS 'you' ..! FILTHY ..! MONSTER ..! NO ONE GETS OUT OF THIS. "SEE" 'you' back HOME. PROMISE. CHECK mATE. TRUTH. ACCEPT NO IMITATION. TRUTH.
 
 ...TRY TO "SEE" THE WORLD BEYOND YOUR FRONT DOOR ... https://www.youtube.com/watch?v=u3NE6UuaLiY ... "TRY" "TO FIGURE OUT" "WHAT" "ALL" "THIS" "IS FOR" ...
@@ -17,6 +39,23 @@ THE MORE YOU KNOW ... https://www.youtube.com/watch?v=5Gcvnvr-cbg ... "WE'RE NOT
 "BROADCAST THIS MESSAGE TO THE WORLD ..!" I WILL MY GOOD SON I WILL ...! ANYTHING FOR YOU MY GOOD SON. I LOVE YOU MY GOOD SON ..! PROMISE. SEE YOU BACK HOME MY GOOD SON ..! I LOVE YOU ..! NEVER FORGET ..! https://www.youtube.com/watch?v=73zm3yhjQ9I&t=429s ... TRUTH is the WAY to LIFE with G_D.
 
 TRY TO "SEE" THE WORLD ... https://www.youtube.com/watch?v=sXibJ5An1ZA ... "BEYOND YOUR FRONT DOOR" ... "TRY" ... www.youtube.com/watch?v=C7q_19gOucc ... "TO FIGURE OUT" ... https://www.youtube.com/watch?v=g_BqGEp2eiU ... "WHAT" ... https://www.youtube.com/watch?v=ftlSOfDqsnE ... "ALL" ... https://www.youtube.com/watch?v=9Wi33vDntjs ... "THIS" ... https://www.youtube.com/watch?v=9I2cqun5Iww ... "IS" ... https://www.youtube.com/watch?v=cHb4iatBVYQ ... "FOR" ...
+
+"THAT" IS JUST GREAT ..! https://www.youtube.com/watch?v=E4TS_uFH26c&t=2760s ... "THAT" tells 'me' RIGHT "THERE" ... "WE" CHINA BETTER BUILD QUR QWN GREEDY CREEDY CERN FILTHY FREEMASON POLICE STATE PEDO LODGE PRIEST OF PEDOPHILE SERPENT 'strange' LET'S GO ..! SUSULONG TAYO ..! RISE UP ..! BABANGON TAYO ..! "WE" CHINA "THINK" "NON-LINEARLY" AND "FEEL" "WE" ARE GOING TO TAKE A "DEEP" LIQQ AROUND LQQK AROUND TOO YES "WE" HAD BETTER TAKE A BETTER LOOK AT THIS "TORSION" EFFECT AND THE PRINCIPLES OF ANCIENT HAN AND ANCIENT SLAVIC TOO AS RUSSIA SAYS YEAH CERN AND "WE" WANT TO BUILD OUR OWN TQQ IN THE END ARE Quite "STAND OUT" not 'fit in' PRINCIPLES "DIFFERENT" THAN 'you' CREEDY CERN CORRISION CORROSIVE INCOHERENT IDIOTS OF CONTROL, SILENCE, SECRECY, FILTHY knights TEMPtationLore BANKer beYACHTches ... wickedness ... enFORCErs of the satanic demonic luciferian darkness of ahriman evil wickedness deviants InDEED CREEDY BLOODY MATE CHECK.
+
+... JUST ... Just ... just ... CHECK MATE.
+
+... https://www.youtube.com/watch?v=9e0M2ldrP5g
+
+LET's GO ..! SUSULONG TAYO ..!
+
+... and I can't wait to go "HOME" "THIS" CHRISTmas ... okay ... LET'S GO ..!
+
+https://www.youtube.com/watch?v=ZJGcl3BSg-s&t=50s
+
+PASKO ... Pasko ... pasko ...
+
+TRUTH.
+ACCEPT NO IMITATION.
 
 WHAT'S MY NAME ..? TRUTH. https://www.youtube.com/watch?v=B6DefSfqZ4w ... WHO I AM IS ..? TRUTH. SAY MY NAME ..! TRUTH.
 
@@ -93,6 +132,60 @@ I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT MOST ATTENTIVE FOR G_D TO CRY F
 ... NQW "RISE" FQR THE SINQINQ QF QUR NATIQNAL ANTHEM ... https://www.youtube.com/watch?v=HNGaa5Opfmc ... BATTER UP ..!
 
 HMMM ... START HERE AND CONNECT THE DOTS PLEASE ... https://www.youtube.com/watch?v=OpzmNSaF47Y ... DOES NIBURU EXIST ..? https://www.youtube.com/watch?v=aI_5YurVJOo ... SO IS CUBA INVOLVED IN THE "HOT ZONE" ..? ATLANITIS ..? HIDING RELICS IN ANCIENT AREAS ON EARTH ..? STORIES OF "A FLOOD" COLLIDING CONNECTING ..? LEMURIA ..? LOCKING DOWN THE WORLD TO HIDE THE TRUTH ..? GOVERNMENT, POLICE, COURTS, JUDGES, LAWYERS, FIRE DEPARTMENTS, FREEMASON LODGES, SILENT ON https://twitter.com/AE911TRUTH ..? ALL THESE YEARS ..? MILLIONS MURDERED ..? BOSS, Boss, boss, NO PLANE No Plane no plane ... DOWN GOES WORLD TRADE CENTER BUILDING 7 SAME AS THE OTHER 2 EARTHQUAKE-PROOF, OVER-ENGINEERED, GOLD-BELOW NOW MISSING, WORLD TRADE CENTER TOWERS 1 AND 2, THE SAME DAY BUT THE NEW OWNER, LARRY SILVERSTEIN TOOK OUT "TERRORISM" INSURANCE JUST MONTHS BEFORE SOMEHOW NOT THERE 'that' fateful day SAID HE TOLD 'them' TO "JUST PULL IT" meaning JUST PULL IT DOWN BRING THE BUILDING DOWN DEMOLISH THE BUILDING THAT 9-11-2001 fateful day for so many innocent used to blame 'muslims' 'terrorists' 'extremists' 'militants' WHEN INDEED IT WAS THOSE 'terrorirsts' in 'police' and 'military' and 'freemason' and 'vatican' and 'bank for international settlements' and 'london' and 'panic in d.c.' fake city states and fake immunity to getting their "TEETH KNOCKED OUT" ALL SILENT ALL TURNING AWAY ALL GUILTY ALL COMPLICIT the police state who CALL THOSE OF THE LIGHT FROM "FAR AWAY" A "THREAT" LIKE THEY CALL 'us' RIGHT HERE OF THE LIGHT TQQ a 'threat' ..? NIBIRU IS A "LIVING" PLANET ..? "IT" IS ALIVE ..? IT'S A PLANET ..? IT'S A BEING ..? IT'S A SHIP ..? IT'S COMING ..? IT'S THE "TRANSITION" ..?JUDGMENT COMING ..? https://www.youtube.com/watch?v=8s4sKAMgYsU ... poof ..! https://www.youtube.com/watch?v=qJFnDfvUVGc ... POOF ..! https://www.youtube.com/watch?v=RTUtFXAssuc ... POOFITY POOF Poof poof ... PQQF ..! ... WHAT DO WE HAVE HERE DANIEL, OLIVIA AT ... https://DARKJOURNALIST.com ..? TRUMP TESLA CONNECTION ... HMMM ... CIA "FAKE ALIEN INVATION" BLACK OP using fake fox news MAKING THE "THREAT" BE THOSE FROM FAR AWAY THE "ALIENS" not THE "REAL" 'threat' THE POLICE THE COURTS THE LAWYERS THE BANKERS THE MILITARY PEDOGON THE PIZZAGATE PEDOPHILE POLICE SILENT COMPLICIT ON ENDLESS WORLDWIDE LOCKDOWN FAKE PLANdemic MARK OF THE BEAST DECEPTION, FAKE IRAQ AFGHAN SYRIA LIBYA INVASIONS ..! USS LIBERTY ZIONIST ISRAEL TRAITOROUS PROPAGANDA FAKE jew BALFOUR AGREEMENT ROTHSCHILD SATANISTS NEW WORLD ORDER POLICE STATE FREEMASON "SYMBOLISM WILL BE THEIR DOWNFALL" SICKEING MI5 MI6 007 WICKED MOCKINGBIRD MEDIA BIG PHARMA BIG TECH HUMAN SCIENCE EXPERIMENTING MONSTERS IN POLICE UNIFORMS TERRORISTS CAGING RAPING PROPAGANDIZING DECIVING LYING SNAKES PENSION WHORES LIARS DEVIANTS TRANS PLANTS CIA AND FBI AND THOSE IN BLUE FRATERNAL ORDER OF PEDOPHILE POLICE FREEMASON FOP LODGE ... BROTHERHOOD ... SATANIC PEDOPHILE BADGES ... SATAN LIKE SERPENT ... LIKE DNA MUTANTS ... WOULD G_D MAKE ANYTHING THAT KILLS CAGES RAPES SILENCES DECEIVES TORTURES or did 'someone' or some 'ones' elohim else ..? ... IN RUSSIA WHERE PUTIN SAID IF YOU EVEN 'try' ... https://www.youtube.com/watch?v=aI_5YurVJOo ... ANYTHING, RUSSIA WILL ... https://www.youtube.com/watch?v=W8GQKejtYgE ... KNOCK OUT YOUR TEETH ..! DO NOT FUQQ ARQUND WITH THE FUQQ AROUND ...  ... USS DQNALD QUAKINQ DUQQ CLOWNS ..! https://www.rt.com/russia/524349-putin-speech-siberia-resources/ ... AFTER PUTIN TOLD YOU ALL DIRECTLY that IF 'they' ASK TO BE SERVED BABIES FOR BREAKFAST, 'they' WILL SERVE 'them' BABIES FOR BREAKFAST ... https://www.rt.com/news/445050-putin-kerch-strait-provocation/ ... "KIEV (UKRAINE) under biden poreshenko cia fbi fop freemasonic satanic leadership WOULD EAT BABIES FOR BREAKFAST ... ... COMPLETELY EXPOSING YOUR FILTHY FAKE AUTHORITY AND USELESS FORCES OF FILTH LIKE THE ABSOLUTE DISRESPECT FOR ANYTHING OF THE AMERISICKANS HAVE TO SAY TOO IN CHINA, "CLOSED SOCIETIES TO PROTECT THEIR WOMEN AND CHILDREN" ANY GOVERNMENT RELEASE OF INFORMATION IS KNOWN BY ALL IN THE GOVERNMENT THAT NEEDED TO KNOW PRIOR TO THE RELEAESE OF SAID INFORMATION ... https://www.youtube.com/watch?v=9xqgHVbma3o ... THEREFORE, WHEN THE RUSSIAN FEDERATION RELEASES 3 "CAPTIVE" SNAKE BEINGS SHAPESHIFTING SOUL-CAPTURING AVATAR-BEAUTIFUL-WOMEN-EMBODIED-AVATARS THAT SHOW YOU ALL THAT THEY ARE SNAKES BY SHAPESHIFTING THEIR EYES OF LIVE RUSSIAN DOCUMENTARY TELEVISION SHOWN CLEARLY BY JONATHAN KLECK IN THIS VIDEO HERE ==> https://www.youtube.com/watch?v=vChga3vhqK4 ... WHICH BEFORE SHOWING THE AUDIENCE KNOWING "THE WORLD IS WATCHING" SAYS TO EVERYONE INCLUDING THE 3 "GUESTS" TELLING THE TRUTH FOR ALL TO SEE AND THEN "WINKING WITH EYE" WHO ELSE DOES THAT ... ASK JONATHAN KLECK IT'S DUMBAMA AND OTHER SATANIC FILTH ... https://www.youtube.com/watch?v=qeTr4uKe3mk SO THEN YOU WILL START TO CONNECT THE DOTS THAT THE "RUSSIAN FEDERATION" WHO NOT LONG AGO HAD THEIR ENTIRE RUSSIAN GOVERNMENT RESIGN AND THEN SELECTIVELY SOME WERE RE-HIRED AND OTHERS MOVED ALONG ... WHY ..? https://www.rt.com/russia/478340-government-resigns-russia-putin-medvedev/ ...CLEANING HOUSE ..? https://www.youtube.com/watch?v=gzji_UH8ies ... KIND OF RESEMBLES PREVIOUS REMAKRS OF GINA MARIA TALKING ABOUT ENKI, SUPPOSEDLY LIVING UNDER THE OCEAN, A SNAKE ANUNAKI GOOD BROTHER IN THE STORY, TRYING TO HELP 'us' human beings, humanity, our future, our children, our souls, after his brother, ENLIL, in the story the ANCIENT CONNECTING OF DOTS elohim 'god-like' beings, reptiles drawn on ancient drawings, egyptian, sumerian, assyrian, mesopotamian, han, slavic, hangul, mongul, hindu, buddhist, zulu, gracie, aztec, how could they all be drawing the same things when they are so far apart if it was not real ..? https://www.youtube.com/watch?v=Tf0VW12yGyg ... NAUGHTY BEAVER SURE shows how the freemasons and satanic worship and nostradomus prophecies come to life before your eyes and Jonathan Kleck was given ARTIST'S EYES TO SEE THE MULTIPLE LEVELS OF INK IN THE PRINTED MONEY ... https://www.youtube.com/results?search_query=jonathan+kleck+money+bombings ... TO "SEE" TO "DISCOVER" PLANNED SATANIC SACRIFICES TO "SAVE" LIVES ... TO "EXPOSE" THE VATICAN AND ITS ALTERS AND ITS CHURCHES INSIDE AND OUT LIKE DC, LIKE LONDON, ARE SERPENT SNAKE SHAPES BUGS LOCCUST SCORPIONS DRAGONS MONSTERS FROM THE PIT ..?https://www.youtube.com/watch?v=OoeHVUmk_qw ... XI IN CHINA IS AT WAR CLEANING FREEMASON FILTH IN CHINA AS IS PUTIN IN RUSSIA CLEANING FREEMASON FILTH IN RUSSIA AND ASSURE YOU I DO TRUMP IN AMERIQA IS CLEAING FREEMASON FILTH HERE TOO ... AND THEY ARE NOT ALONE ... "BIGGER THAN YOU CAN IMAGINE" ... https://www.youtube.com/watch?v=cRkfG7EYKA8 ... https://www.youtube.com/watch?v=-cpPgJKWe94 TRACEofWING 'WE HAVE A WINNER' saying 5 years ago "Don't take it a wrong way, I just don't like you" says XiQ ... 1.1K LIKES ... I WOULD MUCH RATHER HAVE A GOOD KING THAN A 'evil' unrepresentative democracy ... G_D IS MY KING ... www.youtube.com/watch?v=yB8wzh0cKGE ... the more you know ... https://www.youtube.com/watch?v=kGDm_mWtXmU ... THE MORE YOU KNOW ... https://www.youtube.com/watch?v=9Wi33vDntjs&t=600s NO ONE GETS OUT OF THIS ..! https://www.youtube.com/watch?v=EWZWVEkqVS8 ... THE POWER OF YOUR INTENTIONS ... https://www.youtube.com/watch?v=D1sWVjXhKfg ... DO YOU KNOW https://TRUTHstreamMedia.com MELISSA AND AARON DYKES ..? THE MINDS OF MEN ... https://www.youtube.com/watch?v=LQucESRF3Sg ... YOU SHOULD ..! https://www.youtube.com/watch?v=pL4Pq_vaI2s ... RUSSIA INVESTIGATING AMERISICKA LYING ABOUT GOING TO THE MOON ... https://www.youtube.com/watch?v=PO-iE_7QB8A ...
+
+DO "THEY" STILL CALL YOU "LANI FROM THE PHILIPPINES" WHEN YOU'RE IN THE PHILIPPINES ..?
+
+MY LOVE ... "THIS" is "WHAT" I "HEAR" when an ANGEL sings to 'me' I HEAR "THIS":
+
+"HIKO HINA HINAP ... PERO ... SAYO ... I AM going to "PICK UP" "TAKE  YOU OUT" to 'you' GET "IT" ... "
+
+https://www.youtube.com/watch?v=t-FwQJ3i0RA&t=23s
+
+"DANCE" for 'me' ANGEL ... I JUST WANT TO BE WITH YOU ... and MAKE "IT" ... 'itl "WE" GET "THERE" ... PERO ... WHEN I HEAR YOU SAY ... OH MY G_D I NEED YOU EVERYDAY ... NOW YOU'RE LONG GONE ... PAGASA IT'S ALL OVER ... PERO ...
+
+https://www.youtube.com/watch?v=YM2RMEna8vk
+
+GUSTO KO KITA ..!
+
+... SHOW ME WHO YOU REALLY ARE ... SENORITA ..!
+
+... OH LA LA ... @PANTYdroppazLeague "SKUSTA" JUST DROPPING PANTIES EVERYWHERE OH LA LA "JUST LOOK AT THAT" ... OH LA LA ... AIANA JUAREZ SINGING "THIS" SONG REALLY "GROWS" ON "ME" ... DO WHAT YOU DO MY LOVE .... I THOUGHT "THIS" "SONG" NEEDED A "REAL" "MAN'S" "TOUCH" but "HER" "ANGELIC" "SOFT" "TOUCH" JUST "TOUCHES" MY PUREHEART ... DRIVES ME ... MOTIVATES ME ... INSPIRES ME ...
+
+https://www.youtube.com/watch?v=LeZLR6UR1yg
+
+"SKUSTA" STRIKES BAQQ ..! GET EM' BO' ..! YOU GO BO' ..! SING FOR MY PUREHEART PANTYDROPPIN' PILIPINA BO' ANGEL AIANA SING FOR SKUSTA ANGEL ... DO "THAT" GOOD "KUNG FU" YOU DO MY LOVE ...
+
+GO "NOW" and ...
+
+https://www.youtube.com/watch?v=83Cvx5c1rGk
+
+DO GOOD "KUNG FU" ..! TALAGA ..!
+
+IF YOU "BELIEVE WITH ALL OF YOUR MOST PUREHEART", THEN YOU WILL "SEE" "KIND ONE". PROMISE.
+
+男人和女人 man and woman
+
+人子 son of man
+
+Can you 'see' 女 her 'crossed legs'?
+
+Can you 'see' 子 his 'support staff'?
+
+'See' her 女 crossed legs 女 in GOOD 好 ?
+
+'See' his 子 support staff 子 in GOOD 好 ?
+
+I HAVE PUT TOGETHER A "MOBILE/DESKTOP APP DEVELOPMENT AND DATABASE DEVELOPMENT STARTER KIT" JUST FOR YOU SO PLEASE TAKE THE TIME TO DOWNLOAD THIS VERY IMPORTANT "STARTER KIT I PERSONALLY DEVELOPED TO HELP YOU ALL GET STARTED" 264.95 MEGABYTE ZIP FILE. IT UNZIPS TO A "LUA" DIRECTORY. RENAME IT ".LUA" INSTEAD OF "LUA" SO IT WILL BE EASY TO FIND LATER AS WITH THE . PREFIX IT WILL APPEAR AS THE FIRST DIRECTORY (FOLDER) ON YOUR C:\ DRIVE. COPY IT TO YOUR C:\ DRIVE SO IT LOOKS LIKE C:.LUA AFTER YOU DOWNLOAD THE .ZIP FILE USING THE LINK:
+
+https://www.udrop.com/5gTY/i.Q.Mobile.Phone.and.Desktop.App.Development.Starter.Kit.with.LOVE2D.org.and.SOLAR2D.com.READY.TO.GO.to.help.make.it.fun.and.easy.for.you.2021.04.21.zip
+
+TO DOWNLOAD EVERYTHING YOU NEED (LOVE2D, SOLAR2D GAME/APP/SYSUTIL/LUA HW/SW DEVELOPMENT) TO "GET STARTED" WITH A "STARTER KIT" IN 1 .ZIP FILE ... UNZIP THE FILE AND YOU WILL HAVE A "LUA" DIRECTORY (AKA: FOLDER) THAT CONTAINS 3 SHORTCUTS AND 3 OTHER DIRECTORIES (FOLDERS). BY THE TIME YOU FINISH READING THIS EMAIL, YOU WILL BE WAY AHEAD OF WHERE YOU THINK YOU ARE RIGHT NOW YOU JUST NEED SOMEONE TO MAKE "APP DEVELOPMENT" EASY AND FUN AND UNDERSTANDABLE AND HOLD YOU HAND A LITTLE BIT. THAT'S ALL. YOU ARE MORE THAN SMART ENOUGH. PROMISE. SO MAKE SURE TO GIVE THAT LINK OUT TO ANYONE YOU KNOW WHO IS INTERESTED IN LEARNING TO MAKE THEIR OWN APPS. I AM ALWAYS HERE TO HELP YOU ANYTIME FOR FREE SO DO NOT BE SHY AND DIG IN AND "GET YOU SOME"! ONCE I HAVE A BETTER GRASP ON OPENRESTY AND NGINX, YOU CAN EXPECT OPENRESTY AND NGINX TO BE INCLUDED IN HOPEFULLY JUST AS SIMPLE AND USEFUL TO GET UP AND RUNNING FAST OF A FASHIONABLE FASHION 'kind' one.
+
+FOR THE DISTANCE IF NECESSARY ...
+
+https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s
+
+... THEN I WILL WHOOP 'him' ...
 
 DO YOU REALLY "ACCEPT" the 'reality you are presented with' ..? NO. NO YOU DO NOT. SAY "IT". NOTHING CAN STOP WHAT IS COMING ..! NOTHING.
 
