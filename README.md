@@ -43,6 +43,10 @@ I AM PUREHEART.
 
 I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT MOST ATTENTIVE FOR G_D TO CRY FOR 'me'.
 
+NO DIGGITY ... https://www.youtube.com/watch?v=3KL9mRus19o ... NO DAP ..!
+
+WORD.
+
 THE MORE YOU KNOW ... MULTI-PASTEL-COLOR "REAL" "PEACE" "POWER" "LOVE" "KIND" KIND of "RAINBOW" "LIGHT" "SHIPS" "BEINGS" ... https://www.youtube.com/watch?v=E-9_SkOvH78 ... PUREHEART vs 'the unforgiven' ... I AM "MOVED" when I "SEE" "THESE" "LIGHT" SHIPS ..! 'me' TOO ANGEL 'me' TOO ..! LOVE YOU I DO ... OH HOW I LOVE YOU ..! "SEE" YOU BACK HOME ... PROMISE. https://www.youtube.com/watch?v=Q0uadISxNIc ... the more you know ... KEEP YOUR PUREHEART ... SILENCE IS COMPLICITNESS ... 'they' 'all' 'knew' "all these years" ... CHOOSE WISELY ..!
 
 HEY GUR's GATHER 'ROUND ... LISTEN TO WHAT I AM PUTTING DOWN ... HEY BABY ... I AM YOUR HANDY 'man' ...
