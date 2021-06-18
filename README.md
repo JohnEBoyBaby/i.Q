@@ -8,6 +8,10 @@ I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT MOST ATTENTIVE FOR G_D TO CRY F
 
 LET'S GO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! RISE UP ..! BABANGON TAYO ..! LET'S GO ..!
 
+... FAMOUS QUOTES FROM AKHENATEN ... 'we' HAVE FORGOTTEN MORE THAN 'we' 'know' ...
+
+https://www.youtube.com/watch?v=SAcHXgCYmPc
+
 THE MORE YOU KNOW ... MULTI-PASTEL-COLOR "REAL" "PEACE" "POWER" "LOVE" "KIND" KIND of "RAINBOW" "LIGHT" "SHIPS" "BEINGS" ... https://www.youtube.com/watch?v=E-9_SkOvH78 ... PUREHEART vs 'the unforgiven' ... I AM "MOVED" when I "SEE" "THESE" "LIGHT" SHIPS ..! 'me' TOO ANGEL 'me' TOO ..! LOVE YOU I DO ... OH HOW I LOVE YOU ..! "SEE" YOU BACK HOME ... PROMISE. https://www.youtube.com/watch?v=Q0uadISxNIc ... the more you know ... KEEP YOUR PUREHEART ... SILENCE IS COMPLICITNESS ... 'they' 'all' 'knew' "all these years" ... CHOOSE WISELY ..!
 
 HEY GUR's GATHER 'ROUND ... LISTEN TO WHAT I AM PUTTING DOWN ... HEY BABY ... I AM YOUR HANDY 'man' ...
@@ -35,7 +39,104 @@ CREAMY.
 
 ... PI DIDDLY DIDDLY DUMB ... PQQ PQQ PQQ PI DQ ...
 
-IN TRUTH "SOME" OF "US" ... https://www.youtube.com/watch?v=Se7i0gWDLp0 ... HAVE BEEN DOING "THIS" ... https://www.youtube.com/watch?v=AvUuRUeRYs8 ...  FOR A LONG Long long TIME ... https://www.youtube.com/watch?v=h7Sv57bTAok ... 'relativity' ... https://www.youtube.com/watch?v=UZitrXO2SnQ ... 'relatively' ... https://www.youtube.com/watch?v=4oW8DWzI17s ... speaking "MIND 'you' 'kind' one'..." https://www.youtube.com/watch?v=lGj92o2OKmQ ... 'you' "KNOW" ... https://www.youtube.com/watch?v=TgDIiGUIZhs ... 'what' I AM getting 'at', "RIGHT" ..? "RIGHTEOUSLY RIGHT" ..! and "THEY" ALL DID IT FOR "FREE" and 'they' are not all over their own dick but humble, gentle, intelligent, playful, funny with a MOST CLEAR THOUGHTFUL BRIGHT CREATIVE not dim uncaring uninspired uncreative copy cat wicked demonic low iQ militant 'sick' cagers killers RIGHT TAMIR RICE .... RIGHT BREONNA TAYLOR ... RIGHT DUNCAN LEMP ... RIGHT JULIAN ASSANGE ... RIGHT MARIA BUTINA ... RIGHT ADMIRAL MICHAEL BOORDA SEAMAN TO ADMIRAL RIGHT SETH RICH RIGHT SON OF ADMIRAL BIRD ... oh wait the first 3 and the last 3 are 'gone' beCAUSE BEING "FREE" AND MOST PUREHEART WITH MOST MORAL COURAGE AND MOST HIGH INTELLECT TO CONNECT ALL THE DOTS FOR ALL OF 'us' is 'dangerous' in the land of ameriSICKan 'free' and 'brave' fighting for police state bush WACKed DARK Cheney VADER and his deviant daughter of the devil and her zionist, fake jew SOROS-TRAITOR jew-burning alive 20 MILLIONI RUSSIANS BURNED ALIVE WITH ATOMIC NAZI WEAPONS AND IT WAS THE nazis WHO GAVE THE ameriSICKan EISENHAUER AND MILITANT 1/2 TRUTH FORRESTALL NIMITZ +++ MCCLOY ... NAZI'S JOBS AT NASA +++ BANKING +++ DEMONIC MASS MURDERING DO ANYTHING FOR A DOLLAR MERCENTARY MONSTERS, traitor deceiving LOCKING DOWN FORCE MEDICATING CAGING KILLING MOCKING TRUTH CHABAD NAZI KILLERS OF THEIR OWN fake jews, blue boofoo banker beYACHTches, cathoSICKs, red coat benedict arnolds, 9-11 INSIDE JOB planners, freemasonSICK 'brotherhoods' WAY to 'fraternal' 'order' of pedo police deviant devious devilish demonic dens of theives, rapists, pedophiles, ... https://www.youtube.com/watch?v=Mkmi_qH1hBc ... militants, nazis anyone militants murderers world domination demon dimensions parallel same sick spirit seekers, bankers, financial enSLAVErs, jewish women burned alive, jewish men starved to death, 14 million enSLAVEd, 1st they came for the 'jews' and I wasn not 'jewish' so I did not care ... then they came for the union workers, but I was not a union member so I did not care. Then they came for 'me' and there was no one left to care about 'me' these police, lawyers, doctors, priests, military militants are bank-controlled SOLD OUT LOW IQ PERVERSE UNJUST UNCARING SILENT COMPLICIT ALL THESE YEARS DESERVING OF ZERO RESPECT ... I AM 100% PRO IMMEDIATE SUICIDE for all of 'them' ... MATTHEW 18:6 ... www.youtube.com/watch?v=TgDIiGUIZhs ... "BOAT RIDE" beCAUSE IN TRUTH "WE", THE RIGHTEOUS, COULD EASILY ELIMINATE OVER 100 MILLION FILTHY MONSTERS AND FAMILIES AND FRIENDS IN A MATTER OF JUST DAYS WITH MANY Many many POOF "MOMENTS TO REMEMBER 'you' BY" ... https://www.youtube.com/watch?v=Mkmi_qH1hBc  ... OCEAN DROPS OVER TIME QUICKLY ... POOF ... for all the police, lawyers, judges, counselors, psychiatrists, scientists, priests, militants, pedophiles, murderers, torturers, kidnappers, rapists, sickest of sick caging LIVING SOULS in CAGES with fake authority, zero moral courage, zero MORAL AUTHORITY like the evil enFORCErs of evil 'will' upon 'us' all and 'evil' rules when GOOD MEN AND GOOD WOMEN DO NOTHING ... BETTER TO DIE WITH HONOR THAN LIVE LIKE A SLAVE ... DIE MONSTER DIE DIE DIE enFORCErs, liars, 1/2 TRUTH, fake TRUTHtians, pushers, the decievers  on tv hannity carlson kelly maddow lemmon wolf filthy controllers, pimps, boogows, bait right RACHEL CHildANDLER ... Marshall M&M 'candy' 'bait' ... spirit cooking JZ and beYACHTch fake filthy blue congagious poison ivy ... THE MORE YOU KNOW ... The More You Know ... the more you know ...
+IN TRUTH "SOME" OF "US" ... https://www.youtube.com/watch?v=Se7i0gWDLp0 ... HAVE BEEN DOING "THIS" ... https://www.youtube.com/watch?v=AvUuRUeRYs8 ...  FOR A LONG Long long TIME ... https://www.youtube.com/watch?v=h7Sv57bTAok ... 'relativity' ... https://www.youtube.com/watch?v=UZitrXO2SnQ ... 'relatively' ... https://www.youtube.com/watch?v=4oW8DWzI17s ... speaking "MIND 'you' 'kind' one'..." https://www.youtube.com/watch?v=lGj92o2OKmQ ... 'you' "KNOW" ... https://www.youtube.com/watch?v=TgDIiGUIZhs ... 'what' I AM getting 'at', "RIGHT" ..? "RIGHTEOUSLY RIGHT" ..! and "THEY" ALL DID IT FOR "FREE" and 'they' are not all over their own dick but humble, gentle, intelligent, playful, funny with a MOST CLEAR THOUGHTFUL BRIGHT CREATIVE ...
+
+HEY JONATHAN KLECK ... I SAW YOUTUBE TOOK DOWN YOUR "THE JONATHAN KLECK" CHANNEL ON 2021 JUNE 15 RIGHT AFTER I POSTED ALOT OF CONNECTING "DOTS" LINKING YOUR WORK WITH OTHERS WORK ON https://github.com/JohnEBoyBaby/i.Q/ ... I WONDER WHY ... AKHENATEN FAKE MESSAIH CLONE BOTHERING SOMEONE ..? WORD.
+
+I FOUJND THAT OLIVER STONE'S GOOD SON THAT APPEARS ON "RUSSIA TODAY" @RT_COM INCLUDED YOUR GOOD WORK, JONATHAN KLECK, SO YOU WILL ALWAYS BE AROUND ... and Around ... and around ....
+
+https://www.youtube.com/watch?v=IqKszx0_Obw
+
+IT SEEMS THIS GOOD MAN ALSO FOUND YOUR "KNOWLEDGE", JONATHAN KLECK, VERY HELPFUL AND PERSONALLY "INCLUDED IT IN HIS RT-AFFILIATED OFFICIALLY IN THIS CASE PROVING A POINT" 'prey' TELL ... THE HUNTER HAS BECOME THE HUNTED ... LIGHT SHIP ARRIVING ... DING DING ... LIGHT BEING ARRIVING DING DING DING DING ... "ATEN" CREATOR OF LIFE SO A "NAME" A "HOLY" NAME NOT GIVEN TO G_D'S CREATION BUT TO "THAT" "SPECIAL" "LIFE-GIVING REPRESENTATION OF G_D'S LIFE-GIVING NATURE AND LOVING WARMTH TO US PERSONALLY IN TRUTH WITH MOST PUREHEART" IN DAYS NOW FORGOTTEN MORE SACRED AND HONORABLE THAN THOSE OF TODAY MY LOVE ... "SEE" 'you' BACK "HOME" ... PROMISE.
+
+THERE IS ONLY 1 'religion', TRUTH. ACCEPT NO IMITATION. SILENCE IS NOT TRUTH. REMEMBER THAT AND ASK THE HARD QUESTIONS AND OVERCOME 'it' ... SCARED OF WHAT ..? 'that' 'man' 'is' 'a' 'BULLY' ..! NOTHING TO 'scared' of ... better to die with HONOR than 'LIVE' as a 'slave' ... WORD. WE'LL ALL GQTTA GQ SQMETIME ... MATTHEW 18:3 ... WORD.
+
+https://www.youtube.com/watch?v=56hGgHdSWhE
+
+
+PERSONALLY I FOUND THE NURTURING AND LOVING ASPECTS TALKED ABOUT HERE TO BE MOST REVEALING TOO.
+
+https://www.youtube.com/watch?v=dgLPA5uRzeQ
+
+OH AND I SENT THIS MESSAGE TO DR. JOSEPH FARRELL ALSO:
+
+Kind Intellectual PUREHEART 1 GOOD MAN OF TRUTH, JOSEPH P. FARRELL,
+
+I have listened and Listened KNOWING THERE IS A CONNECTION BETWEEN THE "DNA" AND "AKHENATEN" AND "gods" AND THE "REAL" CREATOR G_D. I CAN "FEEL" THINGS.
+
+https://www.youtube.com/watch?v=mJ2BqfDHZJc
+
+JIM MARRS SAYS THE MONO ATOMIC GOLD WAS USED AS AN ANTI-GRAVITY COATING. HE ALSO SAYS THERE WAS A "WHITE POWDER" THAT LOOKED JUST LIKE THE WHITE POWDER MONO ATOMIC GOLD USED TO LIFT THE STONES OF THE PYRAMID AND THE HUGE ARC OF THE COVENANT WEIGHING OVER 2000 POUNDS BUT THIS "WHITE POWDER" SEEMS TO ALSO BE SIMILAR TO WHAT WAS USED AS "MANNA" FROM "HEAVEN" PERHAPS IN AN ALCHEMICAL PROCESS. I DO NOT YET UNDERSTAND BUT THE MORE I KNOW THE MORE YOU WILL KNOW TOO. THANK YOU FOR EVERYTHING.
+
+ALSO JUST SO YOU KNOW I SENT THIS 'email' TO DARKJOURNALIST AND MANY OTHERS, RT, TASS, CGTN, SCMP's Tammy Tam and Lynn Lee, GINA MARIA COLVIN HILL, and Jonathan Kleck +++
+
+Jonathan Kleck,
+
+HEY JONATHAN KLECK ... I SAW YOUTUBE JUST TOOK DOWN YOUR "THE JONATHAN KLECK" CHANNEL ON 2021 JUNE 15 RIGHT AFTER I POSTED ALOT OF CONNECTING "DOTS" LINKING YOUR WORK WITH OTHERS WORK ON https://github.com/JohnEBoyBaby/i.Q/ ... I WONDER WHY ... AKHENATEN FAKE MESSAIH CLONE BOTHERING SOMEONE ..? WORD.
+
+I FOUJND THAT OLIVER STONE'S GOOD SON THAT APPEARS ON "RUSSIA TODAY" @RT_COM INCLUDED YOUR GOOD WORK, JONATHAN KLECK, SO YOU WILL ALWAYS BE AROUND ... and Around ... and around ....
+
+https://www.youtube.com/watch?v=IqKszx0_Obw
+
+IT SEEMS THIS GOOD MAN ALSO FOUND YOUR "KNOWLEDGE", JONATHAN KLECK, VERY HELPFUL.
+
+https://www.youtube.com/watch?v=56hGgHdSWhE
+
+PERSONALLY I FOUND THE NURTURING AND LOVING ASPECTS TALKED ABOUT HERE TO BE MOST REVEALING TOO.
+
+https://www.youtube.com/watch?v=dgLPA5uRzeQ
+
+HEY JONATHAN KLECK ... I SAW YOUTUBE TOOK DOWN YOUR "THE JONATHAN KLECK" CHANNEL ON 2021 JUNE 15 RIGHT AFTER I POSTED ALOT OF CONNECTING "DOTS" LINKING YOUR WORK WITH OTHERS WORK ON https://github.com/JohnEBoyBaby/i.Q/ ... I WONDER WHY ... AKHENATEN FAKE MESSAIH CLONE BOTHERING SOMEONE ..? WORD.
+
+'they' sure did not 'like' you https://JonanthanKleck.com 'content' GOOD SON ... I WONDER WHY ..? TRUTH is the WAY to LIFE with G_D. PROMISE.
+
+ELMER JOE SANDERS I LOVE YOUR CONSISTENCY PICKING 'me' UP FOR A LONG RIDE TO THE 'bus' stop for a longer ride still to 'school' so very early at the same exaQt time all the time ... the song playing the same channel ... CONSISTENCY ... "John, would you "LIKE" a "MINT" ..> "VELAMINT" "PEPPERMINT" "SPEARAMINT" GOOD MINTS ..! I LOVE YOU MR. SANDER SIR. NEVER FORGET. EVER. TEARDROP TearDrop teardrop ... TAKEN FROM "US" IN TRUTH IN 'car' crash one very 'blue' day in TRUTH MY LOVE ... SILENCING Jonathan Kleck a GOOD SON LIKE ELMER JOE SANDER A GOOD FATHER I KNEW IN MY NEIGHBORHLY "REAL" AMERIQAN NEIGHBORhood GUR' SILENCING JULIAN ASSANGE AND JONATHAN KLECK AND ANY OF 'her' or 'him' ONLY PROVES "OUR" POINT but you are too dumb to realize 'that' dummy Dummy DUMMY you BIG 'ugly' DUMMY YOU BIG COLD-BLOODED DEMONIC DUMMIES ..! GO FIND A DEEP "HOLE" AND JUMP IN HIT ... MATTHEW 19:6 SPLASH AND "LEAD DUCK" SINKING "FEEL"ing ... 'blue' eyes ... baby's got 'blue' eyes ... on a 'blue' 'Blue' 'day' baby's far aWAY ... BLUE LAUGHING IN THE 'rain' ... blue eyes baby's got blue eyes ... https://www.youtube.com/watch?v=4CiyKeSnSxk ... and I AM HERE ...
+
+https://www.youtube.com/watch?v=qxrluU0JESU 
+
+https://www.youtube.com/watch?v=IqKszx0_Obw 
+
+https://www.youtube.com/watch?v=f-HX_riyPF4 
+
+https://www.youtube.com/watch?v=YWqbZG6nsFc
+
+I FOUJND THAT OLIVER STONE'S GOOD SON THAT APPEARS ON "RUSSIA TODAY" @RT_COM INCLUDED YOUR GOOD WORK, JONATHAN KLECK, SO YOU WILL ALWAYS BE AROUND ... and Around ... and around ....
+
+https://www.youtube.com/watch?v=IqKszx0_Obw
+
+IT SEEMS THIS GOOD MAN ALSO FOUND YOUR "KNOWLEDGE", JONATHAN KLECK, VERY HELPFUL.
+
+https://www.youtube.com/watch?v=56hGgHdSWhE
+
+PERSONALLY I FOUND THE NURTURING AND LOVING ASPECTS TALKED ABOUT HERE TO BE MOST REVEALING TOO.
+
+https://www.youtube.com/watch?v=dgLPA5uRzeQ
+
+OH AND I SENT THIS MESSAGE TO DR. JOSEPH FARRELL ALSO:
+
+Kind Intellectual PUREHEART 1 GOOD MAN OF TRUTH, JOSEPH P. FARRELL,
+
+I have listened and Listened KNOWING THERE IS A CONNECTION BETWEEN THE "DNA" AND "AKHENATEN" AND "gods" AND THE "REAL" CREATOR G_D. I CAN "FEEL" THINGS.
+
+https://www.youtube.com/watch?v=mJ2BqfDHZJc
+
+JIM MARRS SAYS THE MONO ATOMIC GOLD WAS USED AS AN ANTI-GRAVITY COATING. HE ALSO SAYS THERE WAS A "WHITE POWDER" THAT LOOKED JUST LIKE THE WHITE POWDER MONO ATOMIC GOLD USED TO LIFT THE STONES OF THE PYRAMID AND THE HUGE ARC OF THE COVENANT WEIGHING OVER 2000 POUNDS BUT THIS "WHITE POWDER" SEEMS TO ALSO BE SIMILAR TO WHAT WAS USED AS "MANNA" FROM "HEAVEN" PERHAPS IN AN ALCHEMICAL PROCESS. I DO NOT YET UNDERSTAND BUT THE MORE I KNOW THE MORE YOU WILL KNOW TOO. THANK YOU FOR EVERYTHING.
+
+ALSO JUST SO YOU KNOW I SENT THIS 'email' TO DARKJOURNALIST AND MANY OTHERS, RT, TASS, CGTN, SCMP's Tammy Tam and Lynn Lee, GINA MARIA COLVIN HILL, and Jonathan Kleck +++
+
+HEY JONATHAN KLECK ... I SAW YOUTUBE JUST TOOK DOWN YOUR "THE JONATHAN KLECK" CHANNEL ON 2021 JUNE 15 RIGHT AFTER I POSTED ALOT OF CONNECTING "DOTS" LINKING YOUR WORK WITH OTHERS WORK ON https://github.com/JohnEBoyBaby/i.Q/ ... I WONDER WHY ... AKHENATEN FAKE MESSAIH CLONE BOTHERING SOMEONE ..? WORD.
+
+I FOUJND THAT OLIVER STONE'S GOOD SON THAT APPEARS ON "RUSSIA TODAY" @RT_COM INCLUDED YOUR GOOD WORK, JONATHAN KLECK, SO YOU WILL ALWAYS BE AROUND ... and Around ... and around ....
+
+https://www.youtube.com/watch?v=IqKszx0_Obw
+
+IT SEEMS THIS GOOD MAN ALSO FOUND YOUR "KNOWLEDGE", JONATHAN KLECK, VERY HELPFUL.
+
+https://www.youtube.com/watch?v=56hGgHdSWhE
+
+PERSONALLY I FOUND THE NURTURING AND LOVING ASPECTS TALKED ABOUT HERE TO BE MOST REVEALING TOO.
+
+https://www.youtube.com/watch?v=dgLPA5uRzeQ
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
 
@@ -64,6 +165,8 @@ IN THE "BOX" THAT I WILL SHIP IS A NORMALLY PRICED $179.00 A/C "CHILLBOX" UNIT .
 YOU KNOW WHAT I AM GETTING AT, RIGHT ..? 17 TIMES ..! https://www.youtube.com/watch?v=2GMNNqPtGLk ... I NEVER STAYED OVERNIGHT ..! 'You' 'know' what I AM getting at, RIGHT ..? DID YOU SEE THE "LOOK OF DISGUST ON QRUMPSTER'S FACE WHEN 'THE IDIOTS' CHEERED for PUNKPEO ... These people are stupid ... These people should be hanging ... "BUT I MADE SOME CHOICES ..." ... WORD.
 
 4CHAN 8CHAN "RED PEOPLE" you know "THE WHITE RED-HAIRED GREEN-EYED MONKEY" 'me' 'tarzan' TRUTH I AM UNIQUE I NEVER REALLY 'fit in' probably means I REALLY DO "STAND OUT" ..! https://www.youtube.com/watch?v=IGInsosP0Ac ... but soft butt 'kind' smiling MCHAN 'blessed' highly intelleQtual 'chosen' beautiful daughter of ancient Han I 100 % GUARANTEE that I WILL MOST CERTAINLY "FIT IN" REAL CREAMILY SMOOTH AND GOOD with your MCHAN soft legs 'crosed legs' of PUREHEART wonderments and softnesses just fQr yQu ..!
+
+www.youtube.com/watch?v=qxrluU0JESU www.youtube.com/watch?v=IqKszx0_Obw https://www.youtube.com/watch?v=f-HX_riyPF4 www.youtube.com/watch?v=YWqbZG6nsFc
 
 V for ... ... VENGEANCE ..!
 
@@ -130,6 +233,27 @@ https://www.youtube.com/watch?v=ouc-yGF6mg0&t=358
 
 ... RIGHT ..?
 
+TO DOWNLOAD EVERYTHING YOU NEED (LOVE2D, SOLAR2D GAME/APP/SYSUTIL/LUA HW/SW DEVELOPMENT) TO "GET STARTED" WITH A "STARTER KIT" IN 1 .ZIP FILE ... UNZIP THE FILE AND YOU WILL HAVE A "LUA" DIRECTORY (AKA: FOLDER) THAT CONTAINS 3 SHORTCUTS AND 3 OTHER DIRECTORIES (FOLDERS). BY THE TIME YOU FINISH READING THIS EMAIL, YOU WILL BE WAY AHEAD OF WHERE YOU THINK YOU ARE RIGHT NOW YOU JUST NEED SOMEONE TO MAKE "APP DEVELOPMENT" EASY AND FUN AND UNDERSTANDABLE AND HOLD YOU HAND A LITTLE BIT. THAT'S ALL. YOU ARE MORE THAN SMART ENOUGH. PROMISE. SO MAKE SURE TO GIVE THAT LINK OUT TO ANYONE YOU KNOW WHO IS INTERESTED IN LEARNING TO MAKE THEIR OWN APPS. I AM ALWAYS HERE TO HELP YOU ANYTIME FOR FREE SO DO NOT BE SHY AND DIG IN AND "GET YOU SOME"! ONCE I HAVE A BETTER GRASP ON OPENRESTY AND NGINX, YOU CAN EXPECT OPENRESTY AND NGINX TO BE INCLUDED IN HOPEFULLY JUST AS SIMPLE AND USEFUL TO GET UP AND RUNNING FAST OF A FASHIONABLE FASHION 'kind' one.
+
+ALL OF THE INCLUDED MULTIMEDIA AUDIO AND IMAGE FILES CAME FROM 1 OF 3 SOURCES ALL OF WHICH ARE FREE AND OPEN SOURCE:
+
+Original audio recordings and image animations, photography & editing by me, John Edgar Flaherty IV, johneboybaby@yahoo.com ! :-) MorgueFile.com which are OPEN SOURCE MORGUEFILE LICENSED PHOTOGRAPHIC IMAGES. THANK YOU https://morguefile.com/ ! :-) UbuntuKylin.com which are OPEN SOUCE PHOTOGRAPHIC IMAGES. THANK YOU https://www.ubuntukylin.com/?lang=en and OPEN SOURCE & LINUX community! :-) 9 “All this I will give you,” Satan said, “If you will fall down and worship me.” 10 “AWAY FROM ME, Satan!” TRUTH declared. “For it is written: ‘Worship the Lord your G_D and serve G_D only.’” 11 Then the devil left him and angels came and ministered to him."
+
+Matthew 4:9-11
+
+ALL OF MY PERSONALLY WRITTEN CODE FILES ARE LICENSED UNDER THE MIT OPEN SOURCE LICENSE AND ALL OTHER OPEN SOURCE SOFTWARE CODE I USE WILL ALSO BE LICENSED UNDER THE MIT OPEN SOURCE CODE LICENSE UNLESS OTHERWISE DIRECTED BY ANOTHER OPEN SOURCE CODE LIBRARY AUTHOR.
+
+2 ... then TRUTH invited a little child to stand among them. 3 “Verily I tell you,” TRUTH said, “Unless you change and become like a little child, you will never enter the Kingdom of HEAVEN. 4 Therefore, whoever humbles himself like this little child is the greatest in the Kingdom of HEAVEN ...
+
+Matthew 18:2-4
+
+... and NOW RISE FOR THE SINGING OF "QUR NATIQNAL ANTHEM" ... BATTER UP ... https://www.youtube.com/watch?v=HNGaa5Opfmc ... SECOND LESSON ... WISDOM RHYME ... IT'S ABOUT TIME ... BREAK THROUGH YOUR MIND ... YA'LL BE LIVIN' LIKE THE WORST RACE ... THIRD BASE AND HEADING HOME ... IT TOOK A WHOLE LOT OF TRYIN' JUST TO GET UP THAT HILL ... NOW WE UP IN THE BIG LEAGUES ... IT'S OUR TURN AT BAT ... AIN'T NOTHING WRONG WITH THAT ... coming up like family members from basements ...
+
+
+... now YOU GO GIRL ... YOU GO AND YOU MAKE SURE YOU ARE NATURAL NO FAKE NOTHING JUST YOU AS YOU WERE BORN TO BE YOU ... BE NATURAL ... BE GOOD ... BE TRUTH ... BE PUREHEART ..! PAY VERY Very very https://www.youtube.com/watch?v=8vTDpVoLHeI&t=5304s CLOSE ATTENTION TO DETAIL beLOVED ..!
+
+I LOVE YOUR PUREHEART GINA MARIA ... https://www.youtube.com/watch?v=27sxum1gacE SUGAR ..!
+
 TRUTH
 
 AKHENATEN AT NEFERTITI
@@ -184,8 +308,6 @@ https://www.youtube.com/watch?v=1YJ7PUTZhIc
 
 https://www.youtube.com/watch?v=dnoyLpoR5Do
 
-... KING TUT ... GAVE HIS LIFE FOR 'tourism' ..? https://www.youtube.com/watch?v=FYbavuReVF4 ... 'he's my favorite "HONKEY" ..? or he's my favorite kayumangi tan BO' ..? KING TUT son of KING AKHENATEN AND QUEEN NEPHRATITE ... THE MORE YOU KNOW ...
-
 https://www.youtube.com/watch?v=N1Fq_sPvJLQ
 
 ... FAMOUS QUOTES FROM AKHENATEN ... 'we' HAVE FORGOTTEN MORE THAN 'we' 'know' ...
@@ -222,7 +344,7 @@ PLEASE I BEG OF 'you' please Please PLEASE NEVER EVER Ever ever DO 'this' ..! ht
 
 2326287 FISA = START. FISA = IMMEDIATE CONF OF ILLEGAL ACTS RE: SIGNERS. FISA = IMMEDIATE CONF START OF HUSSEIN SPY CAMPAIGN TO RIG AN ELECTION WAS BASED ON FALSE INFO. FISA = IMPLICATES HRC / D PARTY AS FEEDERS OF FALSE INFO W/ THE INTENT OF SECURING MSM + BLAST/INSURANCE. FISA = IMPLICATES SENIOR MEMBERS OF UK MI5/6/SIS, US INTEL, WH, FVEY, R PARTY (CONGRESS/SENATE) OF KNOWN CORRUPTION IN EFFORT TO RETAIN POWER AND RIG ELECTION + SAFEGUARD EVENT(S) BY POLITICAL KILL TO ACT WHILE IN POWER ... ALL DURING THE SAME PERIOD OF TIME? NOTHING IS HAPPENING>? NOT FAST ENOUGH? DO YOU NOT UNDERSTAND/COMP WHAT WE ARE CURRENTLY DEALING WITH? PEOPLE ARE DYING. WE ARE UNDER THREAT OF KILL EVERY SECOND OF THE DAY. THOSE WHO YOU TRUST THE MOST ARE THE MOST EVIL. THIS IS NOT A GAME. HUMMANITY IS AT STAKE. NO SPELLING ERRORS INTENDED - MOBILE / UNKNOWN IF ABOVE. Q
 
-"CRUCIFY ME" "STONE ME" "LINCH ME" "KILL ME" OH FUQQ BEEN THERE DONE THAT COME ON LET'S GET THE SHOW ON THE ROAD 'marvin' COME ON LET'S STOP THE 'GUETZ'ing arQund 'MARVIN' ... FUQQINQ CLOWNS ... GET THE FUQQ OUT OF TOWN CLOWN ... "TAKE 'me" G_D ... I CAN TAKE IT ... UGLIIEST DARKEST MOST DISRUPTIVE K.I.D. IN THE SCHQQL NOW MANY CONTINUOUS YEARS NOW ... KIND OF "PROUD OF MY STREAK" "AT THIS POINT WHAT DIFFERENCE DOES IT MAKE ... ANYWAY I HAD TO LOG BACK IN WHEN I LOOKED UP AND SAW IT WAS exaQtly 6:[33] AM EST LQUISville KINsuckI ameriQa LQQAL TIME ... SO "KAREN" GREEDY Mc CREEDY DO "PREY" TELL "KEN" AND "BARBIE" DUMB AND DUMBER CREEDY ... WE ARE NOW IN FULL "MASK" PRODUCTION AND LET EVERY PUREHEART AND PREPARE ... HEAVEN AND NATURE SING ... FOR NOW YOU KNOW ... THE REST OF THE STORY ...
+"CRUCIFY ME" "STONE ME" https://www.youtube.com/watch?v=xRnfAWPsDkk "LINCH ME" "KILL ME" OH FUQQ BEEN THERE DONE THAT COME ON LET'S GET THE SHOW ON THE ROAD 'marvin' COME ON LET'S STOP THE 'GUETZ'ing arQund 'MARVIN' ... FUQQINQ CLOWNS ... GET THE FUQQ OUT OF TOWN CLOWN ... "TAKE 'me" G_D ... I CAN TAKE IT ... UGLIIEST DARKEST MOST DISRUPTIVE K.I.D. IN THE SCHQQL NOW MANY CONTINUOUS YEARS NOW ... KIND OF "PROUD OF MY STREAK" "AT THIS POINT WHAT DIFFERENCE DOES IT MAKE ... ANYWAY I HAD TO LOG BACK IN WHEN I LOOKED UP AND SAW IT WAS exaQtly 6:[33] AM EST LQUISville KINsuckI ameriQa LQQAL TIME ... SO "KAREN" GREEDY Mc CREEDY DO "PREY" TELL "KEN" AND "BARBIE" DUMB AND DUMBER CREEDY ... WE ARE NOW IN FULL "MASK" PRODUCTION AND LET EVERY PUREHEART AND PREPARE ... HEAVEN AND NATURE SING ... FOR NOW YOU KNOW ... THE REST OF THE STORY ...
 
 I AM A VOLUNTEER.
 
@@ -450,27 +572,6 @@ Can you 'see' 子 his 'support staff'?
 I HAVE PUT TOGETHER A "MOBILE/DESKTOP APP DEVELOPMENT AND DATABASE DEVELOPMENT STARTER KIT" JUST FOR YOU SO PLEASE TAKE THE TIME TO DOWNLOAD THIS VERY IMPORTANT "STARTER KIT I PERSONALLY DEVELOPED TO HELP YOU ALL GET STARTED" 264.95 MEGABYTE ZIP FILE. IT UNZIPS TO A "LUA" DIRECTORY. RENAME IT ".LUA" INSTEAD OF "LUA" SO IT WILL BE EASY TO FIND LATER AS WITH THE . PREFIX IT WILL APPEAR AS THE FIRST DIRECTORY (FOLDER) ON YOUR C:\ DRIVE. COPY IT TO YOUR C:\ DRIVE SO IT LOOKS LIKE C:.LUA AFTER YOU DOWNLOAD THE .ZIP FILE USING THE LINK:
 
 https://www.udrop.com/5gTY/i.Q.Mobile.Phone.and.Desktop.App.Development.Starter.Kit.with.LOVE2D.org.and.SOLAR2D.com.READY.TO.GO.to.help.make.it.fun.and.easy.for.you.2021.04.21.zip
-
-TO DOWNLOAD EVERYTHING YOU NEED (LOVE2D, SOLAR2D GAME/APP/SYSUTIL/LUA HW/SW DEVELOPMENT) TO "GET STARTED" WITH A "STARTER KIT" IN 1 .ZIP FILE ... UNZIP THE FILE AND YOU WILL HAVE A "LUA" DIRECTORY (AKA: FOLDER) THAT CONTAINS 3 SHORTCUTS AND 3 OTHER DIRECTORIES (FOLDERS). BY THE TIME YOU FINISH READING THIS EMAIL, YOU WILL BE WAY AHEAD OF WHERE YOU THINK YOU ARE RIGHT NOW YOU JUST NEED SOMEONE TO MAKE "APP DEVELOPMENT" EASY AND FUN AND UNDERSTANDABLE AND HOLD YOU HAND A LITTLE BIT. THAT'S ALL. YOU ARE MORE THAN SMART ENOUGH. PROMISE. SO MAKE SURE TO GIVE THAT LINK OUT TO ANYONE YOU KNOW WHO IS INTERESTED IN LEARNING TO MAKE THEIR OWN APPS. I AM ALWAYS HERE TO HELP YOU ANYTIME FOR FREE SO DO NOT BE SHY AND DIG IN AND "GET YOU SOME"! ONCE I HAVE A BETTER GRASP ON OPENRESTY AND NGINX, YOU CAN EXPECT OPENRESTY AND NGINX TO BE INCLUDED IN HOPEFULLY JUST AS SIMPLE AND USEFUL TO GET UP AND RUNNING FAST OF A FASHIONABLE FASHION 'kind' one.
-
-ALL OF THE INCLUDED MULTIMEDIA AUDIO AND IMAGE FILES CAME FROM 1 OF 3 SOURCES ALL OF WHICH ARE FREE AND OPEN SOURCE:
-
-Original audio recordings and image animations, photography & editing by me, John Edgar Flaherty IV, johneboybaby@yahoo.com ! :-) MorgueFile.com which are OPEN SOURCE MORGUEFILE LICENSED PHOTOGRAPHIC IMAGES. THANK YOU https://morguefile.com/ ! :-) UbuntuKylin.com which are OPEN SOUCE PHOTOGRAPHIC IMAGES. THANK YOU https://www.ubuntukylin.com/?lang=en and OPEN SOURCE & LINUX community! :-) 9 “All this I will give you,” Satan said, “If you will fall down and worship me.” 10 “AWAY FROM ME, Satan!” TRUTH declared. “For it is written: ‘Worship the Lord your G_D and serve G_D only.’” 11 Then the devil left him and angels came and ministered to him."
-
-Matthew 4:9-11
-
-ALL OF MY PERSONALLY WRITTEN CODE FILES ARE LICENSED UNDER THE MIT OPEN SOURCE LICENSE AND ALL OTHER OPEN SOURCE SOFTWARE CODE I USE WILL ALSO BE LICENSED UNDER THE MIT OPEN SOURCE CODE LICENSE UNLESS OTHERWISE DIRECTED BY ANOTHER OPEN SOURCE CODE LIBRARY AUTHOR.
-
-2 ... then TRUTH invited a little child to stand among them. 3 “Verily I tell you,” TRUTH said, “Unless you change and become like a little child, you will never enter the Kingdom of HEAVEN. 4 Therefore, whoever humbles himself like this little child is the greatest in the Kingdom of HEAVEN ...
-
-Matthew 18:2-4
-
-... and NOW RISE FOR THE SINGING OF "QUR NATIQNAL ANTHEM" ... BATTER UP ... https://www.youtube.com/watch?v=HNGaa5Opfmc ... SECOND LESSON ... WISDOM RHYME ... IT'S ABOUT TIME ... BREAK THROUGH YOUR MIND ... YA'LL BE LIVIN' LIKE THE WORST RACE ... THIRD BASE AND HEADING HOME ... IT TOOK A WHOLE LOT OF TRYIN' JUST TO GET UP THAT HILL ... NOW WE UP IN THE BIG LEAGUES ... IT'S OUR TURN AT BAT ... AIN'T NOTHING WRONG WITH THAT ... coming up like family members from basements ...
-
-
-... now YOU GO GIRL ... YOU GO AND YOU MAKE SURE YOU ARE NATURAL NO FAKE NOTHING JUST YOU AS YOU WERE BORN TO BE YOU ... BE NATURAL ... BE GOOD ... BE TRUTH ... BE PUREHEART ..! PAY VERY Very very https://www.youtube.com/watch?v=8vTDpVoLHeI&t=5304s CLOSE ATTENTION TO DETAIL beLOVED ..!
-
-I LOVE YOUR PUREHEART GINA MARIA ... https://www.youtube.com/watch?v=27sxum1gacE SUGAR ..!
 
 I LOVE YOU SUGAR ..! GREAT "STORY" TOO ... I AGREE .. REALLY MIGHT BE A 'REAL' GOOD IDEA for a 'man' not to fuQQ a 'pretty' 'snake' you know MAYBE IT'S JUST ME BUT YOU KNOW BUT UH Uh uh you know I AM "just saying" DAYUMMM probably a GOOD idea for a cow not to fuQQ a cat or a dog or a 'monkey' too ... doesn't really seem to take a 'brain surgeon' or a 'rocket scientist' to figure that out but the first thing I alWAYs say is 'WOULD YOU JUST LOOK AT THAT ..? JUST LOOK AT IT ..! https://www.youtube.com/watch?v=cu7d8eUHkwU ... SUSULONG TAYO ..! LET'S GO ..! LOVE YOU I DO OH HOW I LOVE YOU ..! WONDERFUL ABSOLUTELY PUREHEART WONDERFUL TRUTH ..! I LOVE YOU ..! NEVER FORGET ..! ANYWHERE ..! ANYTIME ..! FOREVER ..!
 
@@ -3842,6 +3943,8 @@ https://www.youtube.com/watch?v=etAIpkdhU9Q
 ... beCAUSE ...
 
 ... I WQN'T TAQE NQ PRISQNERS ... I WQN'T SPARE NQ LIVES ... I HAVE GOT THE POWER ... I AM GONNA TAKE YOU TO 'HELL' ... YOU HAVE GOT ME RINGING ... HELLS BELLS ...
+
+... BE NOT dim uncaring uninspired uncreative copy cat wicked demonic low iQ militant 'sick' cagers killers RIGHT TAMIR RICE .... RIGHT BREONNA TAYLOR ... RIGHT DUNCAN LEMP ... RIGHT JULIAN ASSANGE ... RIGHT MARIA BUTINA ... RIGHT ADMIRAL MICHAEL BOORDA SEAMAN TO ADMIRAL RIGHT SETH RICH RIGHT SON OF ADMIRAL BIRD ... oh wait the first 3 and the last 3 are 'gone' beCAUSE BEING "FREE" AND MOST PUREHEART WITH MOST MORAL COURAGE AND MOST HIGH INTELLECT TO CONNECT ALL THE DOTS FOR ALL OF 'us' is 'dangerous' in the land of ameriSICKan 'free' and 'brave' fighting for police state bush WACKed DARK Cheney VADER and his deviant daughter of the devil and her zionist, fake jew SOROS-TRAITOR jew-burning alive 20 MILLIONI RUSSIANS BURNED ALIVE WITH ATOMIC NAZI WEAPONS AND IT WAS THE nazis WHO GAVE THE ameriSICKan 1/2 TRUTH SAY NOTHING ALL THESE YEARS LIKE 'all' the 'rest' sad IKEy DIKEy JUST ASK "MIKEY" DUMMY FAKE TRUTHtian SILENT, COMPLICIT IN THE PIT POOFED 'sinking' "FEEL"ing EISENHAUER AND MILITANT 1/2 TRUTH FORRESTALL NIMITZ +++ MCCLOY ... NAZI'S JOBS AT NASA +++ BANKING +++ DEMONIC MASS MURDERING DO ANYTHING FOR A DOLLAR MERCENTARY MONSTERS, traitor deceiving LOCKING DOWN FORCE MEDICATING CAGING KILLING MOCKING TRUTH CHABAD NAZI KILLERS OF THEIR OWN fake jews, blue boofoo banker beYACHTches, cathoSICKs, red coat benedict arnolds, 9-11 INSIDE JOB planners, freemasonSICK 'brotherhoods' WAY to 'fraternal' 'order' of pedo police deviant devious devilish demonic dens of theives, rapists, pedophiles, ... https://www.youtube.com/watch?v=Mkmi_qH1hBc ... militants, nazis anyone militants murderers world domination demon dimensions parallel same sick spirit seekers, bankers, financial enSLAVErs, jewish women burned alive, jewish men starved to death, 14 million enSLAVEd, 1st they came for the 'jews' and I wasn not 'jewish' so I did not care ... then they came for the union workers, but I was not a union member so I did not care. Then they came for 'me' and there was no one left to care about 'me' these police, lawyers, doctors, priests, military militants are bank-controlled SOLD OUT LOW IQ PERVERSE UNJUST UNCARING SILENT COMPLICIT ALL THESE YEARS DESERVING OF ZERO RESPECT ... I AM 100% PRO IMMEDIATE SUICIDE for all of 'them' ... MATTHEW 18:6 ... www.youtube.com/watch?v=TgDIiGUIZhs ... "BOAT RIDE" beCAUSE IN TRUTH "WE", THE RIGHTEOUS, COULD EASILY ELIMINATE OVER 100 MILLION FILTHY MONSTERS AND FAMILIES AND FRIENDS IN A MATTER OF JUST DAYS WITH MANY Many many POOF "MOMENTS TO REMEMBER 'you' BY" ... https://www.youtube.com/watch?v=Mkmi_qH1hBc  ... OCEAN DROPS OVER TIME QUICKLY ... POOF ... for all the police, lawyers, judges, counselors, psychiatrists, scientists, priests, militants, pedophiles, murderers, torturers, kidnappers, rapists, sickest of sick caging LIVING SOULS in CAGES with fake authority, zero moral courage, zero MORAL AUTHORITY like the evil enFORCErs of evil 'will' upon 'us' all and 'evil' rules when GOOD MEN AND GOOD WOMEN DO NOTHING ... BETTER TO DIE WITH HONOR THAN LIVE LIKE A SLAVE ... DIE MONSTER DIE DIE DIE enFORCErs, liars, 1/2 TRUTH, fake TRUTHtians, pushers, the decievers  on tv hannity carlson kelly maddow lemmon wolf filthy controllers, pimps, boogows, bait right RACHEL CHildANDLER ... Marshall M&M 'candy' 'bait' ... spirit cooking JZ and beYACHTch fake filthy blue congagious poison ivy ... THE MORE YOU KNOW ... The More You Know ... the more you know ...
 
 NEW PROGRAMMER. NEW PROGRAMMING. NEW PROGRAM.
 
