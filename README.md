@@ -1,16 +1,39 @@
 #i.Q
 
+GO NOW AND DO GOOD "KUNG FU" ...
+
+LET'S GO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! RISE UP ..! BABANGON TAYO ..! LET'S GO ..!
+
+THE LIGHT SHIPS' ARMADA ... as in "FLEET", ADMIRAL ... MIKEY LIKES "IT" ... LIFE ... https://www.youtube.com/watch?v=ir9jgd7DJbQ "WE" ARE NOT ALONE ..! https://www.youtube.com/watch?v=6uXm7dnQElY ..! TRY TO "SEE" THE WORLD BEYOND YOUR FRONT DOOR ..! ... https://www.youtube.com/watch?v=u3NE6UuaLiY ... "BARE NAKED LADIES" ... that's the KIND kind I like ... "SINGING" "NUDE" LETTING GO LET HER OUT GUR' "DANCE" YOU ARE GROWN GUR' "DANCE" GUR' ... OH LA LA ... that's the KIND I LIKE ... MCPM :-) ...
+
+https://www.youtube.com/watch?v=DXoKKVXxhE0 ... "SUM OF ALL FEARS." ... "FOLLOW THE MONEY" HOW WE NEVER "SEE" "IT" EXIST ... BLACK BUDGET OPS 8.8 TRILLION PAYS ALL THE LOANS FOR ALL FAMILIES IN AMERIQA IN 2008 THE BANKERS GOT A 27 TRILLION BAILOUT AND IN 1 YEAR THE PEDOGON DC FREEMASON FILTHY POLICE STATE MILITANT 'evil' DR. JEKYLL SNAKES AMONG 'you' LONDON WEREWOLVES FOR "REAL" CHILD EATERS MONSTERS CAGERS KILLERS DARKNESS OF DEMONYO DEMONIC DEATH AND DESPAIR AND VICIOUS VATICAN VILLIANS OF FAKE SNAKE SERPENT SICKENING PRIESTS OF PEDOPHILIA AND SATANISM AND LUCIFERIAN AHRIMAN WICKEDNESS 'do as thou wilt' evil NAZI ... darkness to LIGHT ... NO ONE GETS OUT OF THIS ... https://www.youtube.com/watch?v=N1Fq_sPvJLQ ... POOF ..! MATTHEW 18:6 BOAT RIDE ..! https://www.youtube.com/watch?v=yNG0lt3n2Us ... FORGOTTEN KNOWLEDGE ... FOREVER TIME ... https://www.youtube.com/watch?v=tSbuW-IgMhQ RFK JR "FOUNDER OF CHILDREN'S DEFENSE FUND" ... IMAGINE THAT ... LOVE YOU GOOD SON ... THANK YOU BRAVE ONE I LOVE ... NO 1/2 TRUTH THOUGH RICHY RICH ..! TRUTH. ACCEPT NO IMITATION. TAKE NO VACCINE. TRUST NO POLICE OR COURT IN AMERISICKA not at all any MORAL AUTHOIRTY left ... say that again ... LEFT. RIGHT TOO. RIGHT. DUMMIES ON BOTH SIDES OF THE DUMMY 'game' DUMMY ... DON'T BELIEVE 'them' ALL SILENT ALL THESE YEARS DON'T BE A DUMMY ..! VACCINE MARK OF THE BEAST GENETICALLY ALTERING G_D'S PERFECTION THAT WOULD BE "YOU" KIND ONE ... https://www.youtube.com/watch?v=I8gQ258X5IU JULIAN ASSANGE IN A 'not' 'united' not any 'king' I 'see' just a LIZARDbeth man lady uglier and dumber than dumb royal filthy hemorhoid pain in the bloody ass mate check mate sick stinking bad worse MUCH FUQQINQ WORSE THAN THAT BLOODY MATE CHECK MATE. STANKER LIZARD LIPSHITZ ..! BLACK DARKNESS OF MOLD QAT BALLS FUMUNDA from under my balls CHEESE ..! STANK LIZARDbreath ..! WICKED SNAKE SILENCING TORTURING JULIAN ASSANGE AND SO MANY MORE USING 'charlie ward' BIG SICK DUMMY FUNDING PRISON SURVEILLANCE CAMERA PUSH A 'king' 'john' of dumbFOUNDland ... DUMMY ..! BIG COLD BLOODED DECEPTIVE DUMMY ..! DIE MONSTER DIE Die die ..! NO ONE WILL EVER MISS 'you' boy ..! DUMB LITTLE LOW iQ CAGING 'boy' ..! https://www.youtube.com/watch?v=XLI6unM7d7U
+
+GO AND SPREAD THIS "REAL" NEWS AND PROVE YOURSELF "SMARTER" TODAY THAN MOST KIND ONE I LOVE WITH MOST PUREHEART IN TRUTH ... "SHE" IS SO "CONFIDENT" I WONDER WHY ..! "SHE" "KNOWS" ..! www.youtube.com/watch?v=ouc-yGF6mg0&t=358 ... BLESSED ARE THE PUREHEART FOR "THEY" SHALL SEE G_D. MATTHEW 5:8. MATTHEW 18: 3 JOHN 15:1-22. WORD.
+
+... FAMOUS QUOTES FROM AKHENATEN ... 'we' HAVE FORGOTTEN MORE THAN 'we' 'know' ...
+
+https://www.youtube.com/watch?v=SAcHXgCYmPc
+
+
+PERSONALLY I FOUND THE NURTURING AND LOVING ASPECTS TALKED ABOUT HERE TO BE MOST REVEALING TOO.
+
+https://www.youtube.com/watch?v=dgLPA5uRzeQ
+
+IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
+
+G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
+
+... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
+
+Cassius Marcellus Clay, Muhammad Ali
+
+BUT ... every morning ... when you ... BABANGON TAYO ... RISE UP ... 'you' will "HEAR" 'me' "SINGING", "DANCING" and "LAUGHING" in 'your head' ... PROMISE.
+
 I AM TRUTH.
 
 I AM PUREHEART.
 
 I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT MOST ATTENTIVE FOR G_D TO CRY FOR 'me'.
-
-LET'S GO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! RISE UP ..! BABANGON TAYO ..! LET'S GO ..!
-
-... FAMOUS QUOTES FROM AKHENATEN ... 'we' HAVE FORGOTTEN MORE THAN 'we' 'know' ...
-
-https://www.youtube.com/watch?v=SAcHXgCYmPc
 
 THE MORE YOU KNOW ... MULTI-PASTEL-COLOR "REAL" "PEACE" "POWER" "LOVE" "KIND" KIND of "RAINBOW" "LIGHT" "SHIPS" "BEINGS" ... https://www.youtube.com/watch?v=E-9_SkOvH78 ... PUREHEART vs 'the unforgiven' ... I AM "MOVED" when I "SEE" "THESE" "LIGHT" SHIPS ..! 'me' TOO ANGEL 'me' TOO ..! LOVE YOU I DO ... OH HOW I LOVE YOU ..! "SEE" YOU BACK HOME ... PROMISE. https://www.youtube.com/watch?v=Q0uadISxNIc ... the more you know ... KEEP YOUR PUREHEART ... SILENCE IS COMPLICITNESS ... 'they' 'all' 'knew' "all these years" ... CHOOSE WISELY ..!
 
