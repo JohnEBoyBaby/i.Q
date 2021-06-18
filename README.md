@@ -1,5 +1,7 @@
 #i.Q
 
+... 'you' got your ball ... 'you' got your chain ... tied to 'me' tight ... SWEET LIKE CANDY TO MY SOUL ... LOST FOR "YOU" ... "YOU" COME INTO CRASH INTO 'me' ... AND I COME INTO "YOU" IN A BO'S DREAM ... COME CRASH INTO 'me' YEAH ... baby ... and I COME INTO "YOU" IN A BO'S DREAM ... AHHH YEAH ... NOW I'VE GONE OVERBOARD ... AND I AM BEGGING "YOU" TO FORGIVE 'me' IN MY HASTE ... AND I AM HOLDING "YOU" SO CLOSE TO 'me' ... HIKE UP YOUR SKIRT A LITTLE MORE ... SHOW YOUR WORLD TO 'me' ... IN THIS BO'S DREAM ... https://www.youtube.com/watch?v=14YOUglcLXw ... YOU WEAR NO'thing' BUT YOU WEAR IT SO WELL ... CRASH INTO 'me' ..!
+
 "TYSON" TRUST ME I KNOW WHAT GREATNESS IS ... AND YOU ARCH ANGEL MICHAEL ARE "IT" ... G_D IS WITH "YOU" ... CAN'T NOBODY BEAT 'YOU" ... YOU SHOOK UP THE WORLD ..!
 
 ... https://www.youtube.com/watch?v=oIQuQqhnLHw ...
