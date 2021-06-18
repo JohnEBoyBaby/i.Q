@@ -8,7 +8,7 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
-"WE" GOT TO STASRT MAKE "CHANGES" ... I "SEE" ... 
+"WE" GOT TO START MAKE "CHANGES" ... I "SEE" ... 
 
 https://www.youtube.com/watch?v=eXvBjCO19QY 
 
