@@ -8,6 +8,12 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
+I KNEW FROM THE BEGGINING ..!
+
+https://www.youtube.com/watch?v=kknVfOJZ1w0
+
+A LOT OF PEOPLE CAME TO LOOK ... ALL OF YOU ... COME GET SOME ..!
+
 "WE" GOT TO START MAKE "CHANGES" ... I "SEE" ... 
 
 https://www.youtube.com/watch?v=eXvBjCO19QY 
