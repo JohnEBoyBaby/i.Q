@@ -1,5 +1,7 @@
 #i.Q
 
+ALL IT EVER TAKES IS 1 GOOD WO('man'). I LOVE GOOD SON. TRUTH ... https://www.youtube.com/watch?v=4YVqLl2bOwg ... ACCEPT NO IMITATION ... https://www.youtube.com/watch?v=73zm3yhjQ9I&t=429s ... TRUTH.
+
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
 
 G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
