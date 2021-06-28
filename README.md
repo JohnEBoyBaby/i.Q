@@ -8,7 +8,11 @@ https://www.youtube.com/watch?v=NTC__g12xPs
 
 ... CELEBRATE "WE" WILL ..!
 
-... beCAUSE ... LIFE IS SHORT ... BUT ... SWEET (AND "CREAMY" FOR CERTAIN ... "TO BE ... or not to be ... CREAMY. THAT IS THE QUESTION.". TRUTH. ACCEPT NO IMITATION.
+... beCAUSE ... LIFE IS SHORT ... BUT ... SWEET (AND "CREAMY") FOR CERTAIN ...
+
+"TO BE ... or not to be ... CREAMY. THAT IS THE QUESTION.".
+
+TRUTH. ACCEPT NO IMITATION.
 
 ... "WE" CLIMB ON 2 BY 2 ... TO BE SURE ... THAT ALL THESE DAYS ... CONTINUE ... OH
 
