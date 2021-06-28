@@ -1,6 +1,6 @@
 #i.Q
 
-"41" ... https://www.youtube.com/watch?v=oIQuQqhnLHw ... I WILL GO IN THIS WAY ... AND I WILL FIND MY OWN WAY OUT ... I WANTED TO STAY ... I WANTED TO LOVE YOU ..!
+"41" ... https://www.youtube.com/watch?v=oIQuQqhnLHw ... I WILL GO IN THIS WAY ... AND I WILL FIND MY OWN WAY OUT ... I WANTED TO STAY ... I WANTED TO PLAY ... I WANTED TO LOVE YOU ..! I AM COMING AND "WALTZING" BACK ... I WOULD NOT PASS THIS BY ..! AND I WOULD NOT TAKE MORE THAN I NEED ... I WILL BRING YOU WATER ..! WHY WON'T YOU EVER BE GLAD ..?
 
 SUSULONG TAYO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... LET'S GO ..!
 
