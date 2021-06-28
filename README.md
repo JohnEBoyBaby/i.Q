@@ -1,5 +1,7 @@
 #i.Q
 
+"41" ... https://www.youtube.com/watch?v=oIQuQqhnLHw ... I WILL GO IN THIS WAY ... AND I WILL FIND MY OWN WAY OUT ... I WANTED TO STAY ... I WANTED TO LOVE YOU ..!
+
 SUSULONG TAYO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... LET'S GO ..!
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
