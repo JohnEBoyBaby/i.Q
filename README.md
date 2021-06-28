@@ -80,20 +80,49 @@ GO AND SPREAD THIS "REAL" NEWS AND PROVE YOURSELF "SMARTER" TODAY THAN MOST KIND
 
 https://www.youtube.com/watch?v=SAcHXgCYmPc
 
-
 PERSONALLY I FOUND THE NURTURING AND LOVING ASPECTS TALKED ABOUT HERE TO BE MOST REVEALING TOO.
 
 https://www.youtube.com/watch?v=dgLPA5uRzeQ
 
-I AM TRUTH.
+REMIND 'me' ..! 
 
-I AM PUREHEART.
+https://www.youtube.com/watch?v=7qzhngp7jh8
 
-I AM A PROTECTOR AND LOVER OF G_D LIKE AN INFANT MOST ATTENTIVE FOR G_D TO CRY FOR 'me'.
+... beCAUSE SHE IS EVERYTHING TO 'me' ..! 
 
-NO DIGGITY ... https://www.youtube.com/watch?v=3KL9mRus19o ... NO DAP ..!
+https://www.youtube.com/watch?v=JCjXaEbrLdw
 
-WORD.
+WELCOME TO THE FUTURE ..! 
+
+https://www.youtube.com/watch?v=Y0Yg9wjctRw
+
+... GOOD IS COMING and G_D IS WITH US ..!7Q
+
+BABY KO ... "SHE" IS MAGANDANG PUREHEART ASAWA MO SKUSTA TAKE CARE OF "HER" GOOD "SON" LIFT "HER" UP GOOD "SON" THANK YOU GOOD "SON" ..!
+
+https://www.youtube.com/watch?v=1sVYAyv03S0
+
+I AM TOO MUCH ..
+
+https://www.youtube.com/watch?v=pSPECzpKn4U&list=RDGMEMJQXQAmqrnmK1SEjY_rKBGA&start_radio=1&rv=NTC__g12xPs
+
+MY HUNGER KEEPS ON GROWING ..!
+
+BABY NEVER ACT WILD ... SHE IS VERY LOW KEY ON THE PROFILE ..!
+
+www.youtube.com/watch?v=3KL9mRus19o
+
+NO DIGGITY ..! NO DAP ..!
+
+https://www.youtube.com/watch?v=rGJTcd3JHWw
+
+SO BABY ... CAN I "DANCE" WITH "YOU" TONIGHT ..?
+
+https://www.youtube.com/watch?v=9e0M2ldrP5g
+
+SUSULONG TAYO ..! LET'S GO ..!
+
+MAHAL KITA KUYAS ATES, BROTHERS SISTERS, I LOVE YOU. NEVER FORGET. PROMISE. THANK YOU ALL FOR ALL YOU ARE DOING FOR ALL OF 'us'.
 
 THE MORE YOU KNOW ... MULTI-PASTEL-COLOR "REAL" "PEACE" "POWER" "LOVE" "KIND" KIND of "RAINBOW" "LIGHT" "SHIPS" "BEINGS" ... https://www.youtube.com/watch?v=E-9_SkOvH78 ... PUREHEART vs 'the unforgiven' ... I AM "MOVED" when I "SEE" "THESE" "LIGHT" SHIPS ..! 'me' TOO ANGEL 'me' TOO ..! LOVE YOU I DO ... OH HOW I LOVE YOU ..! "SEE" YOU BACK HOME ... PROMISE. https://www.youtube.com/watch?v=Q0uadISxNIc ... the more you know ... KEEP YOUR PUREHEART ... SILENCE IS COMPLICITNESS ... 'they' 'all' 'knew' "all these years" ... CHOOSE WISELY ..!
 
