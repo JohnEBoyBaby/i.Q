@@ -1,5 +1,7 @@
 #i.Q
 
+HEY ..! Hey ..! hey ..! https://www.youtube.com/watch?v=Hu8P_XKVDpU&t=395s ... "41" ... HEY ..! Hey ..! hey ..!7Q
+
 WHEN I AM "WALKING" BY THE "WATER" ... https://www.youtube.com/watch?v=p9D9TP6oDzY ... WHEN I STEP INTO THE "LIGHT" ...
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
