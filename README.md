@@ -2,7 +2,7 @@
 
 "41" ... "BASED" "INTENSITY" PUREHEART TRUTH G_D ABOVE ALL ..! https://www.youtube.com/watch?v=ulq0mh5ok00&t=641s ... I WILL GO IN THIS WAY ... AND I WILL FIND MY OWN WAY OUT ... I WANTED TO STAY ... I WANTED TO PLAY ... I WANTED TO LOVE YOU ..! I AM COMING AND "WALTZING" BACK ... I WOULD NOT PASS THIS BY ..! AND I WOULD NOT TAKE MORE THAN I NEED ... I WILL BRING YOU WATER ..! https://www.youtube.com/watch?v=oIQuQqhnLHw ... WHY WON'T YOU EVER BE GLAD ..?
 
-INSPIRATION KO ..! SUSULONG TAYO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... MY INSPIRATION ..! LET'S GO ..!
+INSPIRATION KO ..! SUSULONG TAYO ..! MAHAL KO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... MY INSPIRATION ..! LET'S GO ..! MY LOVE ..!
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
 
