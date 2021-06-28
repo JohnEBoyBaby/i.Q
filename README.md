@@ -1,5 +1,11 @@
 #i.Q
 
+... IN THE NETHER WORLDS ..!
+
+https://www.youtube.com/watch?v=NTC__g12xPs
+
+... LET US "DANCE" MY LOVE ... TAKE MY HAND ... MY LOVE ... TWO STEP WITH 'me' MY LOVE ..!7Q
+
 "41" ... "BASED" "INTENSITY" PUREHEART TRUTH G_D ABOVE ALL ..! https://www.youtube.com/watch?v=ulq0mh5ok00&t=641s ... I WILL GO IN THIS WAY ... AND I WILL FIND MY OWN WAY OUT ... I WANTED TO STAY ... I WANTED TO PLAY ... I WANTED TO LOVE YOU ..! I AM COMING AND "WALTZING" BACK ... I WOULD NOT PASS THIS BY ..! AND I WOULD NOT TAKE MORE THAN I NEED ... I WILL BRING YOU WATER ..! https://www.youtube.com/watch?v=oIQuQqhnLHw ... WHY WON'T YOU EVER BE GLAD ..?
 
 INSPIRATION KO ..! SUSULONG TAYO ..! MAHAL KO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... MY INSPIRATION ..! LET'S GO ..! MY LOVE ..!
@@ -11,6 +17,8 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 ... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
 
 Cassius Marcellus Clay, Muhammad Ali
+
+GO NOW ... and ... DO GOOD ... "KUNG FU" ..!
 
 GEE ..! https://www.youtube.com/watch?v=U7mPqycQ0tQ ... BABY Baby baby ..! 
 
