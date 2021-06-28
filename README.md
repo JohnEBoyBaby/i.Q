@@ -1,8 +1,24 @@
 #i.Q
 
+WHEN I AM "WALKING" BY THE "WATER" ... https://www.youtube.com/watch?v=p9D9TP6oDzY ... WHEN I STEP INTO THE "LIGHT" ...
+
+IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
+
+G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
+
+... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
+
+Cassius Marcellus Clay, Muhammad Ali
+
+SAN BU ... https://www.youtube.com/watch?v=YvKkXSgCPs4 ... "TAKE A WALK" ...
+
 ... IN THE NETHER WORLDS ..!
 
 https://www.youtube.com/watch?v=NTC__g12xPs
+
+GO NOW ... and ... DO GOOD ... "KUNG FU" ..!
+
+INSPIRATION KO ..! SUSULONG TAYO ..! MAHAL KO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... MY INSPIRATION ..! LET'S GO ..! MY LOVE ..!
 
 ... LET US "DANCE" MY LOVE ... TAKE MY HAND ... MY LOVE ... TWO STEP WITH 'me' MY LOVE ..!7Q
 
@@ -29,18 +45,6 @@ TRUTH. ACCEPT NO IMITATION.
 ... WON'T YOU LOVE TO COME TO CELEBRATE ..! CELEBRATE "WE" WILL ..!
 
 "41" ... "BASED" "INTENSITY" PUREHEART TRUTH G_D ABOVE ALL ..! https://www.youtube.com/watch?v=ulq0mh5ok00&t=641s ... I WILL GO IN THIS WAY ... AND I WILL FIND MY OWN WAY OUT ... I WANTED TO STAY ... I WANTED TO PLAY ... I WANTED TO LOVE YOU ..! I AM COMING AND "WALTZING" BACK ... I WOULD NOT PASS THIS BY ..! AND I WOULD NOT TAKE MORE THAN I NEED ... I WILL BRING YOU WATER ..! https://www.youtube.com/watch?v=oIQuQqhnLHw ... WHY WON'T YOU EVER BE GLAD ..?
-
-INSPIRATION KO ..! SUSULONG TAYO ..! MAHAL KO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... MY INSPIRATION ..! LET'S GO ..! MY LOVE ..!
-
-IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
-
-G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
-
-... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
-
-Cassius Marcellus Clay, Muhammad Ali
-
-GO NOW ... and ... DO GOOD ... "KUNG FU" ..!
 
 GEE ..! https://www.youtube.com/watch?v=U7mPqycQ0tQ ... BABY Baby baby ..! 
 
