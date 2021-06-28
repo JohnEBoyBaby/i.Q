@@ -12,6 +12,12 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
+GEE ..! https://www.youtube.com/watch?v=U7mPqycQ0tQ ... BABY Baby baby ..! 
+
+I WONDER WHY ..? YOU KNOW WHAT I AM GETTING AT, RIGHT ..? 
+
+GUR's ..! https://www.youtube.com/watch?v=6pA_Tou-DPI ... GUR's BRING THE BO's OUT ..!
+
 MCPM. MORE CREAM PLEASE MA'AM. MAKE IT COUNT 'son' ..! www.youtube.com/watch?v=n7GyLr7Cz2g  ... YES MA'AM COMMANDER ..!
 
 EMERGENCY BROADCAST MESSAGE:
