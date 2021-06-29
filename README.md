@@ -4,6 +4,22 @@ HEY ..!7Q Hey ..!7Q hey ..!7Q
 
 https://www.youtube.com/watch?v=hNewq0V6aYE
 
+... someTIMEs 'you' have to "SACRIFICE" YOUR LIFE ... https://www.youtube.com/watch?v=4QmptC-1Bak ... MICHAEL TYSON, GOOD SON, YOU ARE NOT A 'piece of shit' ..!
+
+PROMISE. I LOVE YOU. NEVER FORGET. "SEE" YOU BACK HOME. PROMISE.
+
+GOOD K.I.D.s
+
+LIFT UP
+
+GOOD Q.I.D.s
+
+GOOD Knights In Development
+
+LIFT UP
+
+GOOD Queens In Development
+
 ... WHEN I STEP INTO THE LIGHT ... 
 
 https://www.youtube.com/watch?v=KixD22K7XeI
