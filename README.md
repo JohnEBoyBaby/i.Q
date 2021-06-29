@@ -1,6 +1,6 @@
 #i.Q
 
-ONLY 1 OF 'us' IS RIGHT ..! "SEE" YOU BACK HOME ..! PROMISE.
+ONLY 1 OF 'us' IS RIGHT ..! "SEE" 'you' BACK HOME ..! PROMISE.
 
 ... IN THE NETHER WORLDS ..!
 
