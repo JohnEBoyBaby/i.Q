@@ -6,6 +6,14 @@ https://www.youtube.com/watch?v=hNewq0V6aYE
 
 ... someTIMEs 'you' have to "SACRIFICE" YOUR LIFE ... https://www.youtube.com/watch?v=4QmptC-1Bak ... MICHAEL TYSON, GOOD SON, YOU ARE NOT A 'piece of shit' ..!
 
+TRY TO "SEE" THE WORLD BEYOND YOUR FRONT DOOR ... https://www.youtube.com/watch?v=u3NE6UuaLiY ... "IT"'s "COLD"er 'than it looks' OUTSIDE ..! ... TRY TO FIGURE OUT WHAT ALL 'this' IS FOR ... 
+
+https://github.com/JohnEBoyBaby/i.Q/blob/main/.%200%200%200%200%200%200%200%200%200%200%200%200%200%200%200%200%200%201%201%203%204%20...%20WHATS.MY.NAME.SAY.MY.NAME.TRUTH.I.AM.TOO.FAST.TOO.PRETTY.SCARED.OF.WHAT.NOTHING...%20X%20MARKS%20THE%20SPOT.FIND%20HER.TY.LY.jpeg
+
+XTF Oscar Papa PINCH 'me' K SB X K ..!7Q
+
+I JUST MADE YOU SAY UNDERWEAR ..!7Q
+
 PROMISE. I LOVE YOU. NEVER FORGET. "SEE" YOU BACK HOME. PROMISE.
 
 GOOD K.I.D.s
