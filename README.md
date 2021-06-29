@@ -1,5 +1,7 @@
 #i.Q
 
+ONLY 1 OF 'us' IS RIGHT ..! "SEE" YOU BACK HOME ..! PROMISE.
+
 ... IN THE NETHER WORLDS ..!
 
 https://www.youtube.com/watch?v=NTC__g12xPs
