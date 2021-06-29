@@ -4,6 +4,8 @@ HEY ..!7Q Hey ..!7Q hey ..!7Q
 
 https://www.youtube.com/watch?v=hNewq0V6aYE
 
+... ALL THOSE DOWNTOWN "LADIES" CALL 'him' "TREE-TQP" LOVEr ... https://www.youtube.com/watch?v=CIiVindRSTA ... all the 'men' just QALL 'him' TRUTH ..!7Q
+
 ... DQ NQT 'fit in' ..!7Q https://www.youtube.com/watch?v=IGInsosP0Ac ... STAND UP ..! STAND QUT ..! BE "YOU" I LOVE THE "REAL" "ALL NATURAL" TRUTHtian PUREHEART "YOU" MY LOVE ..! STAND OUT ..!
 
 ... David Banner ... DAVID BANNER ... https://www.youtube.com/watch?v=UZ4vKm3Z5eY ... WHO I AM IS ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH. SAY MY NAME ..! TRUTH.
