@@ -14,6 +14,10 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
+REMIND 'me' ..!
+
+https://www.youtube.com/watch?v=7qzhngp7jh8
+
 INSPIRATION KO ..! SUSULONG TAYO ..! MAHAL KO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... MY INSPIRATION ..! LET'S GO ..! MY LOVE ..!
 
 ... PEOPLE DON'T YOU UNDERSTAND ..? A CHILD NEEDS A "HELPING HAND" or (s)he'll GROW 'to be' an angry, young WO('man') someday ... 
