@@ -4,6 +4,8 @@ HEY ..!7Q Hey ..!7Q hey ..!7Q
 
 https://www.youtube.com/watch?v=hNewq0V6aYE
 
+... DQ NQT 'fit in' ..!7Q https://www.youtube.com/watch?v=IGInsosP0Ac ... STAND UP ..! STAND QUT ..! BE "YOU" I LOVE THE "REAL" "ALL NATURAL" TRUTHtian PUREHEART "YOU" MY LOVE ..! STAND OUT ..!
+
 ... David Banner ... DAVID BANNER ... https://www.youtube.com/watch?v=UZ4vKm3Z5eY ... WHO I AM IS ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH. SAY MY NAME ..! TRUTH.
 
 ... someTIMEs 'you' have to "SACRIFICE" YOUR LIFE ... https://www.youtube.com/watch?v=4QmptC-1Bak ... MICHAEL TYSON, GOOD SON, YOU ARE NOT A 'piece of shit' ..!
