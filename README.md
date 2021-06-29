@@ -2,9 +2,13 @@
 
 HEY ..!7Q Hey ..!7Q hey ..!7Q
 
+https://www.youtube.com/watch?v=hNewq0V6aYE
+
+... WHEN I STEP INTO THE LIGHT ... 
+
 https://www.youtube.com/watch?v=KixD22K7XeI
 
-... WHEN I STEP INTO THE LIGHT ... WHEN I AM WALKING BY THE WATER ...
+WHEN I AM WALKING BY THE WATER ...
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
 
