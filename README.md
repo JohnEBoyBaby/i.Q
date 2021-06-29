@@ -1,5 +1,7 @@
 #i.Q
 
+... Qh taQe yQur "TIME" ... DQN'T LIVE TQQ FAST ... trQuble will cQme and 'it' WILL PASS ... FIND A WOMAN ... and ... YOU'LL FIND LOVE ... and DON'T FORGET 'son' 'daughter' ... "THERE IS" "SOMEONE" "UP ABOVE" ..! https://www.youtube.com/watch?v=Mqfwbf3X8SA ... IN THIS SIMPLE KIND kind of WO('man') ..! TO LOVE AND UNDERSTAND ... https://www.youtube.com/watch?v=3K-12i0jclM ... get your 'lust' a 'rich man's gold' ... ALL THAT YOU NEED IS IN YOUR SOUL ..!7Q ... now abQut the "NUMBER" "4i" IN TRUTH WHEN I HAD THE "DISCOVERY" "41" ... ... EVEN I TO THIS DAY THEN AND NOW HAVE NO IDEA OF THE ABSOLUTE MAGNITUDE OF WHAT "IT" MEANS TO "US" MATHEMATICALLY SCIENTIFICALLY ARTISTICALLY SPIRITUALLY SPEAKING "SEE"ING "HEAR"ING "FEEL"ING "BE"ING ... TRUTH. ACCEPT NO IMITATION.
+
 HEY ..! Hey ..! hey ..! https://www.youtube.com/watch?v=Hu8P_XKVDpU&t=395s ... "41" ... HEY ..! Hey ..! hey ..!7Q
 
 WHEN I AM "WALKING" BY THE "WATER" ... https://www.youtube.com/watch?v=p9D9TP6oDzY ... WHEN I STEP INTO THE "LIGHT" ...
