@@ -16,7 +16,9 @@ INSPIRATION KO ..! SUSULONG TAYO ..! MAHAL KO ..! https://www.youtube.com/watch?
 
 ... PEOPLE DON'T YOU UNDERSTAND ..? A CHILD NEEDS A "HELPING HAND" or (s)he'll GROW 'to be' an angry, young WO('man') someday ... 
 
-... TAKE A LOOK AT 'you' and 'me' ..! ARE 'we' to 'blind' to "SEE" ..? OR DO 'we' SIMPLY TURN OUR HEADS AND LOOK THE OTHER 'way' ...
+... TAKE A LOOK AT 'you' and 'me' ..! ARE 'we' to 'blind' to "SEE" ..? 
+
+OR DO 'we' SIMPLY TURN OUR HEADS AND LOOK THE OTHER 'way' ..?
 
 https://www.youtube.com/watch?v=2Ox1Tore9nw
 
