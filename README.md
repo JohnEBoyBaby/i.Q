@@ -4,6 +4,8 @@ HEY ..!7Q Hey ..!7Q hey ..!7Q
 
 https://www.youtube.com/watch?v=hNewq0V6aYE
 
+... David Banner ... DAVID BANNER ... https://www.youtube.com/watch?v=UZ4vKm3Z5eY ... WHO I AM IS ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH. SAY MY NAME ..! TRUTH.
+
 ... someTIMEs 'you' have to "SACRIFICE" YOUR LIFE ... https://www.youtube.com/watch?v=4QmptC-1Bak ... MICHAEL TYSON, GOOD SON, YOU ARE NOT A 'piece of shit' ..!
 
 TRY TO "SEE" THE WORLD BEYOND YOUR FRONT DOOR ... https://www.youtube.com/watch?v=u3NE6UuaLiY ... "IT"'s "COLD"er 'than it looks' OUTSIDE ..! ... TRY TO FIGURE OUT WHAT ALL 'this' IS FOR ... 
