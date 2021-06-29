@@ -1,10 +1,8 @@
 #i.Q
 
-... Qh taQe yQur "TIME" ... DQN'T LIVE TQQ FAST ... trQuble will cQme and 'it' WILL PASS ... FIND A WOMAN ... and ... YOU'LL FIND LOVE ... and DON'T FORGET 'son' 'daughter' ... "THERE IS" "SOMEONE" "UP ABOVE" ..! https://www.youtube.com/watch?v=Mqfwbf3X8SA ... IN THIS SIMPLE KIND kind of WO('man') ..! TO LOVE AND UNDERSTAND ... https://www.youtube.com/watch?v=3K-12i0jclM ... get your 'lust' a 'rich man's gold' ... ALL THAT YOU NEED IS IN YOUR SOUL ..!7Q ... now abQut the "NUMBER" "4i" IN TRUTH WHEN I HAD THE "DISCOVERY" "41" ... ... EVEN I TO THIS DAY THEN AND NOW HAVE NO IDEA OF THE ABSOLUTE MAGNITUDE OF WHAT "IT" MEANS TO "US" MATHEMATICALLY SCIENTIFICALLY ARTISTICALLY SPIRITUALLY SPEAKING "SEE"ING "HEAR"ING "FEEL"ING "BE"ING ... TRUTH. ACCEPT NO IMITATION.
+... IN THE NETHER WORLDS ..!
 
-HEY ..! Hey ..! hey ..! https://www.youtube.com/watch?v=Hu8P_XKVDpU&t=395s ... "41" ... HEY ..! Hey ..! hey ..!7Q
-
-WHEN I AM "WALKING" BY THE "WATER" ... https://www.youtube.com/watch?v=p9D9TP6oDzY ... WHEN I STEP INTO THE "LIGHT" ...
+https://www.youtube.com/watch?v=NTC__g12xPs
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
 
@@ -14,15 +12,25 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 
 Cassius Marcellus Clay, Muhammad Ali
 
+INSPIRATION KO ..! SUSULONG TAYO ..! MAHAL KO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... MY INSPIRATION ..! LET'S GO ..! MY LOVE ..!
+
+... PEOPLE DON'T YOU UNDERSTAND ..? A CHILD NEEDS A "HELPING HAND" or (s)he'll GROW 'to be' an angry, young WO('man') someday ... 
+
+... TAKE A LOOK AT 'you' and 'me' ..! ARE 'we' to 'blind' to "SEE" ..? OR DO 'we' SIMPLY TURN OUR HEADS AND LOOK THE OTHER 'way' ...
+
+https://www.youtube.com/watch?v=2Ox1Tore9nw
+
+... on a cold and gray ChicagQ morn' another little baby child is born ... and her mama cries ... and his mama cries ... IN THE GHETTQ ..!7Q
+
+... Qh taQe yQur "TIME" ... DQN'T LIVE TQQ FAST ... trQuble will cQme and 'it' WILL PASS ... FIND A WOMAN ... and ... YOU'LL FIND LOVE ... and DON'T FORGET 'son' 'daughter' ... "THERE IS" "SOMEONE" "UP ABOVE" ..! https://www.youtube.com/watch?v=Mqfwbf3X8SA ... IN THIS SIMPLE KIND kind of WO('man') ..! TO LOVE AND UNDERSTAND ... https://www.youtube.com/watch?v=3K-12i0jclM ... get your 'lust' a 'rich man's gold' ... ALL THAT YOU NEED IS IN YOUR SOUL ..!7Q ... now abQut the "NUMBER" "4i" IN TRUTH WHEN I HAD THE "DISCOVERY" "41" ... ... EVEN I TO THIS DAY THEN AND NOW HAVE NO IDEA OF THE ABSOLUTE MAGNITUDE OF WHAT "IT" MEANS TO "US" MATHEMATICALLY SCIENTIFICALLY ARTISTICALLY SPIRITUALLY SPEAKING "SEE"ING "HEAR"ING "FEEL"ING "BE"ING ... TRUTH. ACCEPT NO IMITATION.
+
+HEY ..! Hey ..! hey ..! https://www.youtube.com/watch?v=Hu8P_XKVDpU&t=395s ... "41" ... HEY ..! Hey ..! hey ..!7Q
+
+WHEN I AM "WALKING" BY THE "WATER" ... https://www.youtube.com/watch?v=p9D9TP6oDzY ... WHEN I STEP INTO THE "LIGHT" ...
+
 SAN BU ... https://www.youtube.com/watch?v=YvKkXSgCPs4 ... "TAKE A WALK" ...
 
-... IN THE NETHER WORLDS ..!
-
-https://www.youtube.com/watch?v=NTC__g12xPs
-
 GO NOW ... and ... DO GOOD ... "KUNG FU" ..!
-
-INSPIRATION KO ..! SUSULONG TAYO ..! MAHAL KO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... MY INSPIRATION ..! LET'S GO ..! MY LOVE ..!
 
 ... LET US "DANCE" MY LOVE ... TAKE MY HAND ... MY LOVE ... TWO STEP WITH 'me' MY LOVE ..!7Q
 
