@@ -4,19 +4,39 @@ HEY ..!7Q Hey ..!7Q hey ..!7Q
 
 https://www.youtube.com/watch?v=hNewq0V6aYE
 
+... 'we' MUST NEVER FORGET "THEIR" ARRIVAL ... https://www.youtube.com/watch?v=mSO4pyzaIWY ... P.E.T. G.O.A.T. ..? https://www.youtube.com/watch?v=OoeHVUmk_qw "NAUGHTY" ... https://www.urbandictionary.com/define.php?term=beaver&page=5 ... "BEAVER" ... the mQre 'you' "KNOW" ... "PERRENIAL" 'greatest' of "ALL" "TIME" ..? THE MORE YOU KNOW ... PARALLEL .. Parellel ... paralell ... https://www.youtube.com/watch?v=Ml3t8JTmI-E ,,. WHAT STQRM MR. PRESIDENT ... "YOU'LL FIND QUT ..!7Q" ... "THERE'S SQME STQRMs CQMINQ ..!7Q https://www.youtube.com/watch?v=zXt9H8eDCn4&t=557s ... "THE BEST IS YET TO COME" ..!7Q ... "WE" STOOD SHOUNDER-TO-SHOULDER ... "WE" NEVER GAVE UP ..! https://www.youtube.com/watch?v=0NFRt4gGu2s ... EVEN TO THE POINT OF THE 'death' ... AND 'they' KNEW 'it' ..! More "CREAM" Please Ma'am ... MISSIQN AQQQMPLISHED ... https://www.youtube.com/watch?v=hFIHP5hQzxE ... MAKE IT COUNT 'son' ... YES MA'AM UFO MECHANIC COMMANDER. MCPM. HELLQ FRQM MY PUREHEART TQ YQURS ... LOVE "YOU" ..!7Q
+
+... 'you' SILENT NATIONS ..! https://www.youtube.com/watch?v=73zm3yhjQ9I&t=429s ... YOU HAVE A DUTY TO G_D ..! BROADCAST THIS MESSAGE TO THE WORLD ..!
+
+THE WORLD IS WATCHING ..!
+
 ... ALL THOSE DOWNTOWN "LADIES" CALL 'him' "TREE-TQP" LOVEr ... https://www.youtube.com/watch?v=CIiVindRSTA ... all the 'men' just QALL 'him' TRUTH ..!7Q
+
+THE WORLD IS ABOUT TO CHANGE ..!
 
 ... DQ NQT 'fit in' ..!7Q WQW Q TEAM NICE PLAYLIST KIND ONES I LOVE ... APPRECIATE YA' GUR' BO' ... COOl. TRUTH. ... https://www.youtube.com/watch?v=IGInsosP0Ac&list=RDMM&index=1 ... STAND UP ..! STAND QUT ..! BE "YOU" I LOVE THE "REAL" "ALL NATURAL" TRUTHtian PUREHEART "YOU" MY LOVE ..! STAND OUT ..!
 
+SOMETHING BIG IS COMING ..!
+
 ... David Banner ... DAVID BANNER ... https://www.youtube.com/watch?v=UZ4vKm3Z5eY ... WHO I AM IS ..! TRUTH ..! WHAT'S MY NAME ..? TRUTH. SAY MY NAME ..! TRUTH.
+
+GO WITH G_D ..!
 
 ... someTIMEs 'you' have to "SACRIFICE" YOUR LIFE ... https://www.youtube.com/watch?v=4QmptC-1Bak ... MICHAEL TYSON, GOOD SON, YOU ARE NOT A 'piece of shit' ..!
 
+STAY TOGETHER ..!
+
 TRY TO "SEE" THE WORLD BEYOND YOUR FRONT DOOR ... https://www.youtube.com/watch?v=u3NE6UuaLiY ... "IT"'s "COLD"er 'than it looks' OUTSIDE ..! ... TRY TO FIGURE OUT WHAT ALL 'this' IS FOR ... 
+
+THINK FOR YOURSELF ..!
 
 https://github.com/JohnEBoyBaby/i.Q/blob/main/.%200%200%200%200%200%200%200%200%200%200%200%200%200%200%200%200%200%201%201%203%204%20...%20WHATS.MY.NAME.SAY.MY.NAME.TRUTH.I.AM.TOO.FAST.TOO.PRETTY.SCARED.OF.WHAT.NOTHING...%20X%20MARKS%20THE%20SPOT.FIND%20HER.TY.LY.jpeg
 
+TRUST HUMANITY ..!
+
 XTF Oscar Papa PINCH 'me' K SB X K ..!7Q
+
+G_D WINS ..!
 
 I JUST MADE YOU SAY UNDERWEAR ..!7Q
 
