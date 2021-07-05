@@ -1,6 +1,6 @@
 #i.Q
 
-... beCAUSE of "YOU" ... DAHIL SA' YO ..! INSPIRATION KO ..! SUSULONG TAYO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... MY INSPIRATION ..! LET'S GO ..! MAHAL KO ..! MY LOVE ..!
+... beCAUSE of "YOU" ... DAHIL SA' YO ..! INSPIRATION KO ..! MY INSPIRATION ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! LET'S GO ..! MAHAL KO ..! MY LOVE ..!
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
 
