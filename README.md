@@ -20,7 +20,9 @@ IF YOU DO NOT LOVE MELISSA THEN 'you' ARE GOING IN THE PIT WITH ALL YOU LOVE AND
 
 "THERE IS NOTHING LIKE "REAL"ly GOOD OWNER"SHIP" IS THERE ..? https://www.youtube.com/watch?v=73cAR3JNsQI ... IN THE "PIT" ..! NO ONE CARES ABOUT 'you' ... I CERTAINLY DQ THQUGH ... but 'you' probably DID NOT NOTICE beCAUSE 'you' ARE TQQ SCARED 'you' LITTLE SCAREDY QAT SHITBIRD ..! https://www.youtube.com/watch?v=vPGbO8dbDXg ... TQQ MUCH QF A CQINCIDENCE ..> https://www.youtube.com/watch?v=1tpxCBKr850 ...
 
-CLYDE "PLAY"s ELEQTRIQ BASS ... https://www.youtube.com/watch?v=cRKZsRFwmdw ... PLAYS "IT" WITH FINESSE AND GRACE ..!
+WHAT DOES 'he' "PLAY" and "HQW" DQES 'he' "PLAY" "IT" ..!7Q
+
+CLYDE "PLAY"s ELEQTRIQ BASS ... https://www.youtube.com/watch?v=cRKZsRFwmdw ... 'he' PLAYS "IT" WITH FINESSE AND GRACE ..!
 
 HEY ..!7Q Hey ..!7Q hey ..!7Q
 
