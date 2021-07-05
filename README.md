@@ -1,14 +1,34 @@
 #i.Q
 
+IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
+
+G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
+
+... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
+
+Cassius Marcellus Clay, Muhammad Ali
+
+REMIND 'me' ..!
+
+https://www.youtube.com/watch?v=7qzhngp7jh8
+
+INSPIRATION KO ..! SUSULONG TAYO ..! MAHAL KO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... MY INSPIRATION ..! LET'S GO ..! MY LOVE ..!
+
+YOU BIG COLD-BLOODED DUMMY ... after 'you' 'celebrate' 'unhappy' 'dependence day' in yQur ameriSICKa land of 'free' and home of the 'brave' REMEMBER 'what' "REAL"ly HAPPENED and NEVER FORGET ... YOU WILL BE YOUR SISTERS' KEEPER. YOU WILL BE YOUR BROTHERS' KEEPER. PROMISE. ... and ... then ... THE GREAT PEACEMAKER SAID ... "LOVE ONE ANOTHER ..." .... https://www.youtube.com/watch?v=QGOPte3kk2c ..!7Q "WQUNDED KNEE ... MASAQRE ..!7Q ... SNORT SNARL SNQRT NO MERCY IS COMING. NONE.
+
+IF YOU DO NOT LOVE MELISSA THEN 'you' ARE GOING IN THE PIT WITH ALL YOU LOVE AND ALL WHO LOVE 'you'r FILTH ... I AM GOING TO THRASH THE SOUL OF YOU AND THE SOULS OF ALL YOU LOVE AND THE SOULS OF ALL THAT LOVE YOU ..! I AM A MOST SERIOUS ONE. ENTERAIN NO DOUBT. G_D IS WITH 'me'. CAN'T NOBODY BEAT 'me'. PROMISE. I AM TRUTH. TRUTH HAS NO FRIENDS. THERE IS NO FILTH IN HEAVEN. NONE. NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS. NONE. THERE IS NO FILTH IN HEAVEN. NONE. PROMISE. "FEEL"ing FRQGGY ..? JUMP ..! I CARETH NOT. "SEE" 'you' BACK HOME. PROMISE. I SAY AGAIN. ENTERTAIN NO DOUBT. G_D IS WITH US. GOOD IS COMING. WE ARE MANY. WE ARE GOOD. WE ARE COMING. ENTERTAIN NO DOUBT. GOOD IS COMING AND G_D IS WITH US ..! https://www.youtube.com/watch?v=qFU5L0tebOo THE MORE YOU KNOW ... https://www.youtube.com/watch?v=bn4e3JLK574 ... the more 'you' know ..!7Q "HIS SUBSTANCE WAS MADE IN SECRET IN THE LOWEST PARTS OF THE EARTH". The More You Know ..!7Q WHY DOES "IT" MATTER ..? https://www.youtube.com/watch?v=gzji_UH8ies WHO THE ANCIENT SUMERIANS ..? THE "REAL" LA MUMBA GUR's and BO's ..? FOR THE DISTANCE IF NECESSARY THEN I WILL WHOOP 'him' ..! https://www.youtube.com/watch?v=2kE4R1Q4PZU ... PQQF ..!7Q
+
+"THERE IS NOTHING LIKE "REAL"ly GOOD OWNER"SHIP" IS THERE ..? https://www.youtube.com/watch?v=73cAR3JNsQI ... IN THE "PIT" ..! NO ONE CARES ABOUT 'you' ... I CERTAINLY DQ THQUGH ... but 'you' probably DID NOT NOTICE beCAUSE 'you' ARE TQQ SCARED 'you' LITTLE SCAREDY QAT SHITBIRD ..! https://www.youtube.com/watch?v=vPGbO8dbDXg ... TQQ MUCH QF A CQINCIDENCE ..> https://www.youtube.com/watch?v=1tpxCBKr850 ...
+
+CLYDE "PLAY"s ELEQTRIQ BASS ... https://www.youtube.com/watch?v=cRKZsRFwmdw ... PLAYS "IT" WITH FINESSE AND GRACE ..!
+
 HEY ..!7Q Hey ..!7Q hey ..!7Q
 
 https://www.youtube.com/watch?v=hNewq0V6aYE
 
-YOU BIG COLD-BLOODED DUMMY ... after 'you' 'celebrate' 'unhappy' 'dependence day' in yQur ameriSICKa land of 'free' and home of the 'brave' REMEMBER 'what' "REAL"ly HAPPENED and NEVER FORGET ... YOU WILL BE YOUR SISTERS' KEEPER. YOU WILL BE YOUR BROTHERS' KEEPER. PROMISE. ... and ... then ... THE GREAT PEACEMAKER SAID ... "LOVE ONE ANOTHER ..." .... https://www.youtube.com/watch?v=QGOPte3kk2c ..!7Q "WQUNDED KNEE ... MASAQRE ..!7Q ... SNORT SNARL SNQRT NO MERCY IS COMING. NONE.
+NO ONE GETS OUT OF THIS.
 
-IF YOU DO NOT LOVE MELISSA THEN 'you' ARE GOING IN THE PIT WITH ALL YOU LOVE AND ALL WHO LOVE 'you'r FILTH ... I AM GOING TO THRASH THE SOUL OF YOU AND THE SOULS OF ALL YOU LOVE AND THE SOULS OF ALL THAT LOVE YOU ..! I AM A MOST SERIOUS ONE. ENTERAIN NO DOUBT. G_D IS WITH 'me'. CAN'T NOBODY BEAT 'me'. PROMISE. I AM TRUTH. TRUTH HAS NO FRIENDS. THERE IS NO FILTH IN HEAVEN. NONE. NO FAMILY. NO FRIENDS. NO FAVORITES. NO EXCEPTIONS. NONE. THERE IS NO FILTH IN HEAVEN. NONE. PROMISE. "FEEL"ing FRQGGY ..? JUMP ..! I CARETH NOT. "SEE" 'you' BACK HOME. PROMISE. I SAY AGAIN. ENTERTAIN NO DOUBT. G_D IS WITH US. GOOD IS COMING. WE ARE MANY. WE ARE GOOD. WE ARE COMING. ENTERTAIN NO DOUBT. GOOD IS COMING AND G_D IS WITH US ..! https://www.youtube.com/watch?v=qFU5L0tebOo THE MORE YOU KNOW ... https://www.youtube.com/watch?v=bn4e3JLK574 ... the more 'you' know ..!7Q "HIS SUBSTANCE WAS MADE IN SECRET IN THE LOWEST PARTS OF THE EARTH". The More You Know ..!7Q WHY DOES "IT" MATTER ..? https://www.youtube.com/watch?v=gzji_UH8ies WHO THE ANCIENT SUMERIANS ..? THE "REAL" LA MUMBA GUR's and BO's ..? FOR THE DISTANCE IF NECESSARY THEN I WILL WHOOP 'him' ..! https://www.youtube.com/watch?v=2kE4R1Q4PZU ... PQQF ..!7Q 
-
-CLYDE "PLAY"s ELEQTRIQ BASS ... https://www.youtube.com/watch?v=cRKZsRFwmdw ... PLAYS "IT" WITH FINESSE AND GRACE ..!
+NOTHING CAN STOP WHAT IS COMING. NOTHING.
 
 STAY TOGETHER ..!
 
@@ -59,20 +79,6 @@ https://www.youtube.com/watch?v=hNewq0V6aYE
 https://www.youtube.com/watch?v=KixD22K7XeI
 
 WHEN I AM WALKING BY THE WATER ...
-
-IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
-
-G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
-
-... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
-
-Cassius Marcellus Clay, Muhammad Ali
-
-REMIND 'me' ..!
-
-https://www.youtube.com/watch?v=7qzhngp7jh8
-
-INSPIRATION KO ..! SUSULONG TAYO ..! MAHAL KO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... MY INSPIRATION ..! LET'S GO ..! MY LOVE ..!
 
 ... PEOPLE DON'T YOU UNDERSTAND ..? A CHILD NEEDS A "HELPING HAND" or (s)he'll GROW 'to be' an angry, young WO('man') someday ...
 
