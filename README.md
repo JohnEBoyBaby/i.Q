@@ -12,7 +12,7 @@ Cassius Marcellus Clay, Muhammad Ali
 
 ... "41" ...
 
-https://www.youtube.com/watch?v=ulq0mh5ok00
+https://www.youtube.com/watch?v=ulq0mh5ok00&t=617s
 
 ... "DANCE" WITH "me' MY LOVE ... "SING" FOR 'me' MAHAL KO ...
 
