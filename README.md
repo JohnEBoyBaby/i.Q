@@ -1,5 +1,7 @@
 #i.Q
 
+INSPIRATION KO ..! SUSULONG TAYO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... MY INSPIRATION ..! LET'S GO ..! MAHAL KO ..! MY LOVE ..!
+
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
 
 G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
@@ -11,8 +13,6 @@ Cassius Marcellus Clay, Muhammad Ali
 REMIND 'me' ..!
 
 https://www.youtube.com/watch?v=7qzhngp7jh8
-
-INSPIRATION KO ..! SUSULONG TAYO ..! MAHAL KO ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... MY INSPIRATION ..! LET'S GO ..! MY LOVE ..!
 
 YOU BIG COLD-BLOODED DUMMY ... after 'you' 'celebrate' 'unhappy' 'dependence day' in yQur ameriSICKa land of 'free' and home of the 'brave' REMEMBER 'what' "REAL"ly HAPPENED and NEVER FORGET ... YOU WILL BE YOUR SISTERS' KEEPER. YOU WILL BE YOUR BROTHERS' KEEPER. PROMISE. ... and ... then ... THE GREAT PEACEMAKER SAID ... "LOVE ONE ANOTHER ..." .... https://www.youtube.com/watch?v=QGOPte3kk2c ..!7Q "WQUNDED KNEE ... MASAQRE ..!7Q ... SNORT SNARL SNQRT NO MERCY IS COMING. NONE.
 
