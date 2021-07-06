@@ -2,6 +2,20 @@
 
 ... beCAUSE of "YOU" ... DAHIL SA' YO ..! INSPIRATION KO ..! MY INSPIRATION ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! LET'S GO ..! MAHAL KO ..! MY LOVE ..!
 
+... the 'last' Q TEAM "PLAY" "LIST" ... seemed to get infeQted with sQngs I AM "NAFO" ABOUT PERSONALLY "NOT A FAN OF" ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=1 ... NQT BAD Q TEAM ... you are grQwinQ very wise yQung grasshQpper ...
+
+GO NOW ...
+
+and ...
+
+DO GOOD ...
+
+"KUNG FU" ... beCAUSE ... I "STILL" AFTER ALL THESE YEARS I STILL "SEE" NO CHANGES ..!7Q
+
+PUT UP OR SHUT UP Q TEAM ..! DON'T PLAY aWAY YOUR "PLAY"ful BEGINNINGS ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=16 ... HEY ..!7Q TO THE CRQWD ... "THIS QUESTION" ... CHANGING COLORS ... AND SWIM ... SMELL TOUCH FEEL ... HEY ... Hey ... hey ..!7Q
+
+LET'S GO ..! RISE UP ..! SUSULONG TAYO ..! BABANGON TAYO ..!
+
 "WATCHING" "YOU" MOVE ... "HE'LL" "KNOW" ...
 
 "KNOW" WHEN "YOU" "SEE" 'him' ... https://www.youtube.com/watch?v=rX5bDqk7Qmo
