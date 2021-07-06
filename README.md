@@ -1,5 +1,7 @@
 #i.Q
 
+... OH OH OH ... Oh Oh Oh ... oh oh oh ... https://www.youtube.com/watch?v=qf7aYtaqfxQ ... sQmetimes "IT" IS THE "LAYERED" BACKGROUND "TRACK" THAT "DOES IT" FOR 'me' ... "YOU KNOW WHAT I AM GETTING AT, RIGHT ..?" ... ... OH OH OH ... Oh Oh Oh ... oh oh oh ..!7Q
+
 ... beCAUSE of "YOU" ... DAHIL SA' YO ..! INSPIRATION KO ..! MY INSPIRATION ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! LET'S GO ..! MAHAL KO ..! MY LOVE ..! SUQQ IT UP ... SuQQ It Up ... suQQ it up ... https://www.youtube.com/watch?v=pSPECzpKn4U&list=RDMM&index=17 ... SUCK IT BABY ... CHILL ... MY HUMBER KEEPS ON GROWING ... I "EAT" TQQ MUCH ..! I AM TOO MUCH ..!7Q SIT DQNN QN 'em AMQS ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=19 ... MAKE IT COUNT 'son' ... MCPM.
 
 ... the 'last' Q TEAM "PLAY" "LIST" ... seemed to get infeQted with sQngs I AM "NAFO" ABOUT PERSONALLY "NOT A FAN OF" ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=1 ... NQT BAD Q TEAM ... you are grQwinQ very wise yQung grasshQpper ...
