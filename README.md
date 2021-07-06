@@ -2,11 +2,25 @@
 
 ... OH OH OH ... Oh Oh Oh ... oh oh oh ... https://www.youtube.com/watch?v=qf7aYtaqfxQ ... sQmetimes "IT" IS THE "LAYERED" BACKGROUND "TRACK" THAT "DOES IT" FOR 'me' ... "YOU KNOW WHAT I AM GETTING AT, RIGHT ..?" ... ... OH OH OH ... Oh Oh Oh ... oh oh oh ..!7Q
 
-IF "SHE" WERE YOUR DAUGHTER ... https://www.youtube.com/watch?v=XzAP8iC3oIs ... INCLUDING HER BROTHERS IN HER WONDERMENTS OF LOVE AND DANCING AND SINGING ... WOULD YOU BE SO PROUD OF YOUR BABY LADY AND GENTLE BABY 'man' ..? I AM SO PROUD OF "THEM" ALL WORKING TOGETHER TO DO WHAT ONLY "THEY" "CAN DO" MAHAL KO ... JUST THE WAY IT IS MY LOVE ... PUREHEART. TRUTH. G_D ABOVE ALL. PROMISE. LOVE ONE ANOTHER ... KEEP YOUR PUREHEART ... GET YOU SOME GUR' BO' ..!7Q
+IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
+
+G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
+
+... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
+
+Cassius Marcellus Clay, Muhammad Ali
+
+... "41" ...
+
+https://www.youtube.com/watch?v=ulq0mh5ok00&t=617s
 
 ... beCAUSE of "YOU" ... DAHIL SA' YO ..! INSPIRATION KO ..! MY INSPIRATION ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! LET'S GO ..! MAHAL KO ..! MY LOVE ..! SUQQ IT UP ... SuQQ It Up ... suQQ it up ... https://www.youtube.com/watch?v=pSPECzpKn4U&list=RDMM&index=17 ... SUCK IT BABY ... CHILL ... MY HUMBER KEEPS ON GROWING ... I "EAT" TQQ MUCH ..! I AM TOO MUCH ..!7Q SIT DQNN QN 'em AMQS ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=19 ... MAKE IT COUNT 'son' ... MCPM.
 
-I LOVE YOUR PLAYLIST Q TEAM ... THANK YOU GUR's BO's ... ALL MY LOVE ... the 'last' Q TEAM "PLAY" "LIST" ... seemed to get infeQted with sQngs I AM "NAFO" ABOUT PERSONALLY "NOT A FAN OF" ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=1 ... NQT BAD Q TEAM ... you are grQwinQ very wise yQung grasshQpper ...
+IF "SHE" WERE YOUR DAUGHTER ... https://www.youtube.com/watch?v=XzAP8iC3oIs ... INCLUDING HER BROTHERS IN HER WONDERMENTS OF LOVE AND DANCING AND SINGING ... WOULD YOU BE SO PROUD OF YOUR BABY LADY AND GENTLE BABY 'man' ..? I AM SO PROUD OF "THEM" ALL WORKING TOGETHER TO DO WHAT ONLY "THEY" "CAN DO" MAHAL KO ... JUST THE WAY IT IS MY LOVE ... PUREHEART. TRUTH. G_D ABOVE ALL. PROMISE. LOVE ONE ANOTHER ... KEEP YOUR PUREHEART ... GET YOU SOME GUR' BO' ..!7Q
+
+I AM THE PROUDEST MONKEY YOU EVER SEEN ... https://www.youtube.com/watch?v=jmmODnes2XU ... MONKEY "SEE" MONKEY "DO" ... Monkey "See" Monkey "Do" ... mQnQey "SEE" ... mQnQey "DO" ... 'me' I AM BOUNCE AROUND SO WELL ... LIMB TO LIMB ... STUCK ... like the OTHER MONKEYS ... here ... 'me' I AM A "HUMBLE" MONKEY ... sitting UP in 'my' TREE AGAIN ... BUT THEN CAME THE DAY ... I CLIMBED OUT OF THESE 'safe limbs' ... WALKING TALL ... HEAD HELD HIGH UP AND A SINGING ... I WENT TO THE CITY ... AND NOW I AM THE PRQUDEST MQNQEY YOU EVER "SEE"N ...
+
+... btw ... I DQ "REAL"ly LOVE YOUR PLAYLIST Q TEAM ... THANK YOU GUR's BO's ... ALL MY LOVE ... the 'last' Q TEAM "PLAY" "LIST" ... seemed to get infeQted with sQngs I AM "NAFO" ABOUT PERSONALLY "NOT A FAN OF" ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=1 ... NQT BAD Q TEAM ... you are grQwinQ very wise yQung grasshQpper ...
 
 GO NOW ...
 
@@ -16,7 +30,7 @@ DO GOOD ...
 
 "KUNG FU" ... beCAUSE ... I "STILL" AFTER ALL THESE YEARS I STILL "SEE" NO CHANGES ..!7Q
 
-PUT UP OR SHUT UP Q TEAM ..! DON'T PLAY aWAY YOUR "PLAY"ful BEGINNINGS ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=16 ... HEY ..!7Q TO THE CRQWD ... "THIS QUESTION" ... CHANGING COLORS ... AND SWIM ... SMELL TOUCH FEEL ... HEY ... Hey ... hey ..!7Q
+... but ... PLEASE BY ALL MEANS NECESSARY ... ACT NOW ... RIGHT FUQQINQ NOW ... GO NOW AND DO GOOD "KUNG FU" ... and ... EITHER KIND ONE ... PUT UP OR SHUT UP Q FAGS ..! DON'T PLAY aWAY YOUR "PLAY"ful BEGINNINGS ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=16 ... HEY ..!7Q TO THE CRQWD ... "THIS QUESTION" ... CHANGING COLORS ... AND SWIM ... SMELL TOUCH FEEL ... HEY ... Hey ... hey ..!7Q
 
 LET'S GO ..! RISE UP ..! SUSULONG TAYO ..! BABANGON TAYO ..!
 
@@ -61,18 +75,6 @@ https://www.youtube.com/watch?v=MazI9dFA6ME
 https://www.youtube.com/watch?v=BZ-uU50e4M0&t=99
 
 二 
-
-IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
-
-G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
-
-... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
-
-Cassius Marcellus Clay, Muhammad Ali
-
-... "41" ...
-
-https://www.youtube.com/watch?v=ulq0mh5ok00&t=617s
 
 please KIND ONE beLOVEd ONE "SEE" "CHANGE" "DREAM" "CHANGE" SPEAK NOT NEGATIVITY OR DOUBT OR COMPLAINTS BUT DREAMS AND LOVE AND SUPPORT AND GOODNESS INTO EXISTENCE ... GO NOW ...
 
