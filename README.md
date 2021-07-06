@@ -1,6 +1,6 @@
 #i.Q
 
-... beCAUSE of "YOU" ... DAHIL SA' YO ..! INSPIRATION KO ..! MY INSPIRATION ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! LET'S GO ..! MAHAL KO ..! MY LOVE ..!
+... beCAUSE of "YOU" ... DAHIL SA' YO ..! INSPIRATION KO ..! MY INSPIRATION ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! LET'S GO ..! MAHAL KO ..! MY LOVE ..! SUQQ IT UP ... SuQQ It Up ... suQQ it up ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=17 ... SUCK IT BABY ... CHILL ... MY HUMBER KEEPS ON GROWING ... I "EAT" TQQ MUCH ..! I AM TOO MUCH ..!7Q
 
 ... the 'last' Q TEAM "PLAY" "LIST" ... seemed to get infeQted with sQngs I AM "NAFO" ABOUT PERSONALLY "NOT A FAN OF" ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=1 ... NQT BAD Q TEAM ... you are grQwinQ very wise yQung grasshQpper ...
 
