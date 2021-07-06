@@ -1,5 +1,7 @@
 #i.Q
 
+BEFORE THE FIRE IS GONE ... www.youtube.com/watch?v=XpPqZRYAuCM&t=360 ... BefQre The Fire Is GQne ... befQre the fire is gQne ..!7Q
+
 ... OH OH OH ... Oh Oh Oh ... oh oh oh ... https://www.youtube.com/watch?v=qf7aYtaqfxQ ... sQmetimes "IT" IS THE "LAYERED" BACKGROUND "TRACK" THAT "DOES IT" FOR 'me' ... "YOU KNOW WHAT I AM GETTING AT, RIGHT ..?" ... ... OH OH OH ... Oh Oh Oh ... oh oh oh ..!7Q
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
