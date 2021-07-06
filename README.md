@@ -2,6 +2,8 @@
 
 ... beCAUSE of "YOU" ... DAHIL SA' YO ..! INSPIRATION KO ..! MY INSPIRATION ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! LET'S GO ..! MAHAL KO ..! MY LOVE ..!
 
+1 OF THE "THINGS" 'we' "CAN DO" ... https://www.youtube.com/watch?v=y9I8gx6M6Cs&t=311s ... TRUE True true ..! TRUTH. UNFILTERED. TRUTH. ACCEPT NO IMITATION.
+
 ... I AM TRUTH ... THANK YOU TO ALL THE "REAL" TRUTHtians WITH MOST PUREHEART IN TRUTH WHO LOVE G_D ABOVE ALL ..! I LOVE YOU ALL ..! G_D IS WITH US ..! GOOD IS COMING ..! FIGHT Fight fight ..! GO WITH G_D ..! G_D WINS ..! TRUTH IS UNDEFEATED ..! PROMISE. THERE IS NO FILTH IN HEAVEN. NONE. PURITY FACTOR 100%. PROMISE. "SEE" YOU BACK HOME. PROMISE. TRUTH. ACCEPT NO IMITATION. https://www.youtube.com/watch?v=0t2G-AowDis ... but what happened to 'me' ... https://www.youtube.com/watch?v=fYAdeXJhZlE ... EDWARD SNOWDEN THANK YOU ..! https://www.youtube.com/watch?v=oizhVJstxC4 ...! THANK YOU AGAIN JULIAN ASSANGE ..!
 
 一 + 一 = 二 
