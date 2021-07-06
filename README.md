@@ -6,7 +6,7 @@
 
 "KNOW" WHEN "YOU" "SEE" 'him' ... https://www.youtube.com/watch?v=rX5bDqk7Qmo
 
-... NOTHING CAN "FREE" 'him' STEP ASIDE ... OPEN WIDE ... IT'S THE LQNER ..!7Q
+... NOTHING CAN "FREE" 'him' ..! STEP ASIDE ... OPEN WIDE ... IT'S THE LQNER ..!7Q
 
 ALL AROUND THE CHOSEN ONES ...
 
