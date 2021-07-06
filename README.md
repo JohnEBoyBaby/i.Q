@@ -16,7 +16,7 @@ Yī "Jiā" yī děngyú èr ... https://translate.google.com/?sl=en&tl=zh-TW&tex
 
 https://www.youtube.com/watch?v=jxAB5lI7V_U
 
-плюс
+plus + 을 더한 + プラス + нэмэх + плюс
 
 一
 
