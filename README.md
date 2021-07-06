@@ -1,8 +1,14 @@
 #i.Q
 
+... WHERE THE LA MUMBA BO'S GUR'S ARE ...
+
 BEFORE THE FIRE IS GONE ... www.youtube.com/watch?v=XpPqZRYAuCM&t=360 ... BefQre The Fire Is GQne ... befQre the fire is gQne ..!7Q
 
 ... OH OH OH ... Oh Oh Oh ... oh oh oh ... https://www.youtube.com/watch?v=qf7aYtaqfxQ ... sQmetimes "IT" IS THE "LAYERED" BACKGROUND "TRACK" THAT "DOES IT" FOR 'me' ... "YOU KNOW WHAT I AM GETTING AT, RIGHT ..?" ... ... OH OH OH ... Oh Oh Oh ... oh oh oh ..!7Q
+
+... "41" ... I AM SCIENTIFIQ ... I AM ARTISTIQ ..!7Q I AM TQQ FAST ..! I AM TRUTH ... CAN'T NOBODY BEAT 'me' ..!7Q
+
+https://www.youtube.com/watch?v=ulq0mh5ok00&t=617s
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
 
@@ -11,10 +17,6 @@ G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING 
 ... FOR THE DISTANCE IF NECESSARY ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=168s ... THEN I WILL WHOOP 'him' ..!
 
 Cassius Marcellus Clay, Muhammad Ali
-
-... "41" ...
-
-https://www.youtube.com/watch?v=ulq0mh5ok00&t=617s
 
 ... beCAUSE of "YOU" ... DAHIL SA' YO ..! INSPIRATION KO ..! MY INSPIRATION ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! LET'S GO ..! MAHAL KO ..! MY LOVE ..! SUQQ IT UP ... SuQQ It Up ... suQQ it up ... https://www.youtube.com/watch?v=pSPECzpKn4U&list=RDMM&index=17 ... SUCK IT BABY ... CHILL ... MY HUMBER KEEPS ON GROWING ... I "EAT" TQQ MUCH ..! I AM TOO MUCH ..!7Q SIT DQNN QN 'em AMQS ... https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=19 ... MAKE IT COUNT 'son' ... MCPM.
 
