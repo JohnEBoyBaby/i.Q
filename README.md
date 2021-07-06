@@ -6,13 +6,17 @@
 
 一 + 一 = 二 
 
+Yī "Jiā" yī děngyú èr ... https://translate.google.com/?sl=en&tl=zh-TW&text=one%20plus%20one%20is%20equal%20to%20two&op=translate ... I AM asking 'you' ..! DID "JIA XIAN" ... https://en.wikipedia.org/wiki/Jia_Xian ... COME TO YOUR MIND TQQ ..? I'LL WAIT ..!
+
+一加一等於二 
+
 ... TRY TO "SEE" THE WORLD BEYOND YOUR FRONT DOOR ... STAND OUT do not 'fit in' 'group think' THINK FOR YOURSELF do not be a 'dummy' ... THINK HARDER ... TRY HARDER ... MAKE A WAY not an 'excuse ... KEEP YOUR PUREHEART ... BE GIVING ... HELP AND LOVE ONE ANOTHER ... HOLD ONE ANOTHER ACCOUNTABLE ... THERE IS NO FILTH IN HEAVEN. NONE. TRY TO FIGURE OUT WHAT ALL "THIS" IS FOR ...
 
 一
 
 https://www.youtube.com/watch?v=jxAB5lI7V_U
 
- + 
+плюс
 
 一
 
