@@ -2,6 +2,8 @@
 
 ... beCAUSE of "YOU" ... DAHIL SA' YO ..! INSPIRATION KO ..! MY INSPIRATION ..! https://www.youtube.com/watch?v=9e0M2ldrP5g ... SUSULONG TAYO ..! LET'S GO ..! 
 
+JUST LIKE "TIGER" WQQDS ... I "SEE" YOU CREAM LOVER ..! "THAT" "HAIR" ..! GAVE YOU aWAY ..! https://www.youtube.com/watch?v=3aK0IU1uK-o&t=360 ... HEAT MISER "HAIR" ... DANIEL ... "DARK JOURNALIST" "HAIR" ... https://www.youtube.com/watch?v=wbfgVEk-mxQ ... I "SEE" YOU ... https://www.youtube.com/watch?v=1S8G_mep6ME ... BRINQINQ THE "HEAT" "CREAM LOVER" "HEAT" MISER DANIEL ... I "SEE" YOU. I "KNOW" A CREAM-LOVER AND PUREHEART CRYSTALLINE CLEAN ALL NATURAL HIGH QUALITY H2O BASED FRESH CREAM MAKER, WOMAN, WHEN I "SEE" ONE beYACHTch .!7Q MAKE IT COUNT 'son' ... YES MA'AM CQMMANDER ..!7Q MCPM.
+
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
 
 G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
