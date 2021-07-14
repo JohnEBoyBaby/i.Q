@@ -1,5 +1,9 @@
 #i.Q
 
+VIP SPECIAL SHQUT OUT TO MY "REAL" TRUTHtians MUSLIM JEW HINDU BUDDHIST NO FAG PRIESTS OR MONKS ALLOWED ONLY PUREHEART "REAL" TRUTHTIANS ...
+
+YQU ARE ALL INVITED ... ARE YQU CQMINQ TQ THE 'pig rQast' QR NQT ..?
+
 ... standing in 'the line' ... 
 
 https://www.youtube.com/watch?v=RkKalbqNXWs&t=35s
