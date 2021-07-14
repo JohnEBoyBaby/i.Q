@@ -6,7 +6,7 @@ and ...
 
 DO GOOD ...
 
-"KUNG FU" ..!7Q
+"KUNG FU" ..!
 
 https://www.youtube.com/watch?v=83Cvx5c1rGk
 
