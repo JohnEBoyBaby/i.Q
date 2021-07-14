@@ -12,7 +12,7 @@ CHECK MATE ..!7Q
 
 BeFQRe ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=437s ... "THE FIRE" "IS" "GONE" ..!7Q
 
-... so babae ... https://translate.google.com/?sl=tl&tl=en&text=babae&op=translate ... https://www.youtube.com/watch?v=rGJTcd3JHWw ... QAN I "DANCE" WITH "YOU" TONGIGHT ..?
+... so babae ... https://translate.google.com/?sl=tl&tl=en&text=babae&op=translate ... https://www.youtube.com/watch?v=rGJTcd3JHWw ... QAN I "DANCE" WITH "YOU" TONIGHT ..?
 
 WHAT DO "WE" WANT ..? CRYSTALLINE CLEAN PUREHEART "WATER" ..! INSIDE YOUR BODY IS 90% WATER ... THINK ABOUT "IT" KIND ONE or go IN THE PIT ... DUMMY ... www.youtube.com/watch?v=D1sWVjXhKfg&t=365 ... ALL DAY 24 7 365 ... I LOVE YOU BUT YOUR PUREHEART IS A MUST TRUTH IS NOT OPTIONAL 100% NOLYN TRUTH WHEN DO "WE" WANT "IT" ..! NOW ..! RIGHT FUQQINQ NOW ..! YES MA'AM COMMANDER. MCPM.
 
