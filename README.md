@@ -1,5 +1,31 @@
 #i.Q
 
+SOFT LEGS ... HQW QAN YQU HAVE ANY "CREAM" PUDDINQ IF I DQN'T EAT YQUR "MEAT" ..?
+
+https://www.youtube.com/watch?v=n5diMImYIIA
+
+ALL IN ALL it's just anQther briQQ in 'the wall' ...
+
+https://www.youtube.com/watch?v=T38Y81FBEcQ
+
+but "DANCE Dance dance" WITH 'me' ANY WAY MY LOVE ... 
+
+https://www.youtube.com/watch?v=5OY4bVBlc7Q
+
+MOTHER ... SHOULD I RUN FQR PRESIDENT ..?
+
+MOTHER ... SHOULD I TRUST THE GRUBWORMMINT ..?
+
+https://www.youtube.com/watch?v=n_yRvxy9HVs
+
+MOTHER ... WILL 'they' TRY TO BREAQ 'my' "BALLS" ..?
+
+MOTTHER ... SHOULD I BUILD 'the wall' ..?
+
+https://www.youtube.com/watch?v=QN56YUIOuKo
+
+TEAR DQWN 'the wall' ..!7Q Tear DQwn The Wall ..!7Q tear dQwn 'the wall' ..!7Q
+
 "MY LIST" IS GOOD ... https://www.youtube.com/watch?v=RkKalbqNXWs&list=RDMM&index=25 ... WHILE "IT" LASTS ... BEFORE 'someone' DOES "YOU KNOW WHAT" TO HER MY beLOVEd WITH MOST PUREHEART IN TRUTH "MY LIST" ... TEARDROP ... TearDrop ... teardrop ... WELL, 'they' added 'kill this love' I DO NOT LIKE THAT SONG ... IMAGINE THAT ... IT TOOK ONLY SECONDS TO CHANGE ..! but DON'T BE AFRAID TO TRY ... https://www.youtube.com/watch?v=b4YLo74OWfY ... BE AFRAID THAT YOU DIDN'T TRY ... THESE MOMENTS REMIND US WHY ..!7Q
 
 GO NOW ...
