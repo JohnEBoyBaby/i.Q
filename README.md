@@ -1,72 +1,10 @@
 #i.Q
 
-"THAT" IS MY PUSSY ... https://www.youtube.com/watch?v=NTC__g12xPs ... COME TAKE "IT" FROM "me' ... IN THE NETHER WORLDS ... I TAKE WHAT IS MINE ..!7Q PROMISE.
+,,, FLIP D ON THE BEAT ...
 
-TRUTH
-
-LIGHT SHIPS ... "PRESENT ARMS" ... https://en.wikipedia.org/wiki/Present_arms_(command) ... READY ... TQ ... "YOUR" SIDE ..!7Q
-
-MILITARY OP.
-
-https://qanon.pub/?q=military%20op
-
-...  "A TAD BIT EXCITING" ...
-
-https://www.youtube.com/watch?v=8BU7UykvyDk&t=780s
-
-BO' ... STRAIGHT ... WHEN "CREAM" COMES YOUR WAY ... GET YOU SOME ..! TIME IS SHORT AND GOOD "CREAM" IS HARD TO COME BY 'son' ..!7Q ELSE YOU GET "WALA" ... https://translate.google.com/?sl=tl&tl=en&text=wala&op=translate ... STAY CREAMY KIND ONE I LOVE STAY CREAMY IN TRUTH WITH MOST PUREHEART FOCUSING ON G_D ONLY alWAYs TRUST G_D WILL MAKE A WAY ... LOVE YA' BYE ... TRUTH.
-
-... THE GUY COULD HOLD "COURT" IN THE POOREST OF THE POOR ... https://www.youtube.com/watch?v=_ybnXgMMb5g&t=698s ... RIGHT UP TO THE WHITE OUT I MEAN WHITE HQUSE ..! YOU KNOW WHAT I AM GETTING AT, RIGHT ..?
-
-... https://www.youtube.com/watch?v=_ybnXgMMb5g&t=1249s ... AND WHEN I DO CQME BAQQ ... I WILL HAVE MQRE OF A HUNGER AND DETERMINATIQN ..!7Q which is sQmethinQ 'yQu' Qan lQse with the 'intQxiQatiQn' Qf sQ-Qalled 'greatness' ...
-
-... "QR WHATEVER HE WANTS TQ QALL HIMSELF ..." ... WHAT'S MY NAME ..? TRUTH. SAY MY NAME ..! TRUTH. https://www.youtube.com/watch?v=_ybnXgMMb5g&t=971s ... WHO I AM IS ..? TRUTH. G_D IS WITH 'me' ... CAN'T NOBODY BEAT 'me' ..!7Q
+IN TRUTH I HEARD 
 
 ... "SWIFTY ON THE BEAT" ...
-
-BeFQRe ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=437s ... "THE FIRE" "IS" "GONE" ..!7Q
-
-MATE CHECK ... 'your' 'self' ...
-
-BeFQRe ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=388s ... "THE FIRE" "IS" "GONE" ..!7Q
-
-CHECK MATE ..!7Q
-
-BeFQRe ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=437s ... "THE FIRE" "IS" "GONE" ..!7Q
-
-... so babae ... https://translate.google.com/?sl=tl&tl=en&text=babae&op=translate ... https://www.youtube.com/watch?v=rGJTcd3JHWw ... QAN I "DANCE" WITH "YOU" TONIGHT ..?
-
-WHAT DO "WE" WANT ..? CRYSTALLINE CLEAN PUREHEART "WATER" ..! INSIDE YOUR BODY IS 90% WATER ... THINK ABOUT "IT" KIND ONE or go IN THE PIT ... DUMMY ... www.youtube.com/watch?v=D1sWVjXhKfg&t=365 ... ALL DAY 24 7 365 ... I LOVE YOU BUT YOUR PUREHEART IS A MUST TRUTH IS NOT OPTIONAL 100% NOLYN TRUTH WHEN DO "WE" WANT "IT" ..! NOW ..! RIGHT FUQQINQ NOW ..! YES MA'AM COMMANDER. MCPM.
-
-I AM DANCINQ ... MCPM ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..! BEFORE THE FIRE IS GONE ... Before The Fire Is Gone ... before the fire is gone ...
-
-... IF YQUR NEQQ IS THIQQ ... AND NOTHING IS GOING RIGHT ... https://www.youtube.com/watch?v=xEkIou3WFnM ... CLOSE YOUR EYES AND THINK OF 'me' ... TO BRIGHTEN UP EVEN YOUR 'darkest' NIGHT ... I'LL COME RUNNIN' ... OH YEAH BABY ... TO "SEE" YOU AGAIN ... WINTER, SPRING, SUMMER OR FALL ... ALL YOU'VE GOT TO DO IS CALL ... AND I WILL BE THERE ... YOU'VE GQT A "FRIEND" ...
-
-YQ' GUR' SOFT LEGS PUREHEART ... I JUST THQUGHT "SHE" PROBABLY "REAL"ly "WANTS" "NEEDS" 2 BANANAS ... YOU KNOW WHAT I AM GETTING AT, RIGHT ..? ... IN HER QATS ... GQTCHA ..! I INTERCEPT YOUR EMOTIONAL TENSENESS ... https://www.youtube.com/watch?v=N0_LnvJrLo4&t=54s ...
-
-... take my hand MY LOVE let 'me' DANCE WITH YOU MY LOVE HOLD YOU AND LOOK DEEPLY INTO YOUR TANTALIZING EYES MY LOVE SMELL YOUR NECK MY LOVE DANCE WITH "me' MY LOVE ... CRASH INTO 'me' MY LOVE ... https://www.youtube.com/watch?v=k7in-9E3ImQ ... HIKE UP YOUR SKIRT WITH NO PANTIES AND LET 'me' "SEE" "HER" "WINK" AT 'me' MY LOVE ... SHOW YOUR WORLD TO 'me' MY LOVE ... IN A BQ's DREAM ... AND I COME INTO YOU ... IN A BO'S DREAM ..!7Q
-
-VIP SPECIAL SHQUT OUT TO MY "REAL" TRUTHtians MUSLIM JEW HINDU BUDDHIST NO CELIBATE NON-FATHERING NON-CREAM-LOVING WEIRDO FAGONSTERS ALLOWED AND NO FAG PRIESTS OR MONKS ALLOWED ONLY PUREHEART "REAL" TRUTHTIANS ...
-
-YQU ARE ALL INVITED ... ARE YQU CQMINQ TQ THE 'pig rQast' QR NQT ..?
-
-... standing in 'the line' ... 
-
-https://www.youtube.com/watch?v=RkKalbqNXWs&t=35s
-
-... just minding my 'bees' ... P's and Q's and all ... then I "LOOKED" AT "HER" ... and then "IT" HAPPENED ... next thing yQu "KNOW" ... TRUTH IS ON TRUTH'S KNEES BOWING DOWN BEFORE "HER" ... AND "SHE" JUST LQQKED ALL KINDS OF KIND 'then' ... TRUTH WAS YELLING ... I AM NOT WORTHY ... I AM Not Worthy ... I AM not worthy ... "SHE" LAUGHED AND SAID "GET UP" BO' ... WELL "WHAT IN THE WQRLD" BRQUGHT THAT THE FUQQ QN TRUTH ... WELL "SHE" "SAW" 'me' "LOOKING" AT "HER" THEN "SHE" CALLED 'me' TRUTH "A BEAGLE NEQQ" IT WENT SQMETHING LIKE "WHO DO YOU THINQ YOU'RE WATCHING" ... https://www.youtube.com/watch?v=pSPECzpKn4U&t=73 ... BEAGLE NEQQ ..?" OH LA LA ... I AM NOT WORTHY ... BUT PLAYFUL I AM WITH MUCH GAME ... "SHE" AND I "ROLLED" QUT AFTER "SHE" SLID HER DIGITS THE WAY OF TRUTH IN LIFE WITH G_D. WORD ..?
-
-"BLESSED" ARE THE PUREHEART FOR "THEY" SHALL "SEE" G_D.
-
-MATTHEW 5:8
-
-WORD.
-
-GQT GAME ..?
-
-GQT TRUTH ..?
-
-GET YQU SQME GUR' ... GET YQU SQME BO' ..!
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
 
@@ -236,6 +174,74 @@ and ...
 DO GOOD ...
 
 "KUNG FU" ... beCAUSE ... I "STILL" AFTER ALL THESE YEARS I STILL "SEE" NO CHANGES ..!7Q
+
+I AM DANCING ... I AM TOO FAST ... SWIFTY ON THE BEAT ... WORD.
+
+BeFQRe ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=437s ... "THE FIRE" "IS" "GONE" ..!7Q
+
+MATE CHECK ... 'your' 'self' ...
+
+BeFQRe ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=388s ... "THE FIRE" "IS" "GONE" ..!7Q
+
+CHECK MATE ..!7Q
+
+BeFQRe ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=437s ... "THE FIRE" "IS" "GONE" ..!7Q
+
+... so babae ... https://translate.google.com/?sl=tl&tl=en&text=babae&op=translate ... https://www.youtube.com/watch?v=rGJTcd3JHWw ... QAN I "DANCE" WITH "YOU" TONIGHT ..?
+
+WHAT DO "WE" WANT ..? CRYSTALLINE CLEAN PUREHEART "WATER" ..! INSIDE YOUR BODY IS 90% WATER ... THINK ABOUT "IT" KIND ONE or go IN THE PIT ... DUMMY ... www.youtube.com/watch?v=D1sWVjXhKfg&t=365 ... ALL DAY 24 7 365 ... I LOVE YOU BUT YOUR PUREHEART IS A MUST TRUTH IS NOT OPTIONAL 100% NOLYN TRUTH WHEN DO "WE" WANT "IT" ..! NOW ..! RIGHT FUQQINQ NOW ..! YES MA'AM COMMANDER. MCPM.
+
+I AM DANCINQ ... MCPM ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..! BEFORE THE FIRE IS GONE ... Before The Fire Is Gone ... before the fire is gone ...
+
+... IF YQUR NEQQ IS THIQQ ... AND NOTHING IS GOING RIGHT ... https://www.youtube.com/watch?v=xEkIou3WFnM ... CLOSE YOUR EYES AND THINK OF 'me' ... TO BRIGHTEN UP EVEN YOUR 'darkest' NIGHT ... I'LL COME RUNNIN' ... OH YEAH BABY ... TO "SEE" YOU AGAIN ... WINTER, SPRING, SUMMER OR FALL ... ALL YOU'VE GOT TO DO IS CALL ... AND I WILL BE THERE ... YOU'VE GQT A "FRIEND" ...
+
+YQ' GUR' SOFT LEGS PUREHEART ... I JUST THQUGHT "SHE" PROBABLY "REAL"ly "WANTS" "NEEDS" 2 BANANAS ... YOU KNOW WHAT I AM GETTING AT, RIGHT ..? ... IN HER QATS ... GQTCHA ..! I INTERCEPT YOUR EMOTIONAL TENSENESS ... https://www.youtube.com/watch?v=N0_LnvJrLo4&t=54s ...
+
+... take my hand MY LOVE let 'me' DANCE WITH YOU MY LOVE HOLD YOU AND LOOK DEEPLY INTO YOUR TANTALIZING EYES MY LOVE SMELL YOUR NECK MY LOVE DANCE WITH "me' MY LOVE ... CRASH INTO 'me' MY LOVE ... https://www.youtube.com/watch?v=k7in-9E3ImQ ... HIKE UP YOUR SKIRT WITH NO PANTIES AND LET 'me' "SEE" "HER" "WINK" AT 'me' MY LOVE ... SHOW YOUR WORLD TO 'me' MY LOVE ... IN A BQ's DREAM ... AND I COME INTO YOU ... IN A BO'S DREAM ..!7Q
+
+VIP SPECIAL SHQUT OUT TO MY "REAL" TRUTHtians MUSLIM JEW HINDU BUDDHIST NO CELIBATE NON-FATHERING NON-CREAM-LOVING WEIRDO FAGONSTERS ALLOWED AND NO FAG PRIESTS OR MONKS ALLOWED ONLY PUREHEART "REAL" TRUTHTIANS ...
+
+YQU ARE ALL INVITED ... ARE YQU CQMINQ TQ THE 'pig rQast' QR NQT ..?
+
+... standing in 'the line' ... 
+
+https://www.youtube.com/watch?v=RkKalbqNXWs&t=35s
+
+... just minding my 'bees' ... P's and Q's and all ... then I "LOOKED" AT "HER" ... and then "IT" HAPPENED ... next thing yQu "KNOW" ... TRUTH IS ON TRUTH'S KNEES BOWING DOWN BEFORE "HER" ... AND "SHE" JUST LQQKED ALL KINDS OF KIND 'then' ... TRUTH WAS YELLING ... I AM NOT WORTHY ... I AM Not Worthy ... I AM not worthy ... "SHE" LAUGHED AND SAID "GET UP" BO' ... WELL "WHAT IN THE WQRLD" BRQUGHT THAT THE FUQQ QN TRUTH ... WELL "SHE" "SAW" 'me' "LOOKING" AT "HER" THEN "SHE" CALLED 'me' TRUTH "A BEAGLE NEQQ" IT WENT SQMETHING LIKE "WHO DO YOU THINQ YOU'RE WATCHING" ... https://www.youtube.com/watch?v=pSPECzpKn4U&t=73 ... BEAGLE NEQQ ..?" OH LA LA ... I AM NOT WORTHY ... BUT PLAYFUL I AM WITH MUCH GAME ... "SHE" AND I "ROLLED" QUT AFTER "SHE" SLID HER DIGITS THE WAY OF TRUTH IN LIFE WITH G_D. WORD ..?
+
+"BLESSED" ARE THE PUREHEART FOR "THEY" SHALL "SEE" G_D.
+
+MATTHEW 5:8
+
+"THAT" IS MY PUSSY ... https://www.youtube.com/watch?v=NTC__g12xPs ... COME TAKE "IT" FROM "me' ... IN THE NETHER WORLDS ... I TAKE WHAT IS MINE ..!7Q PROMISE.
+
+TRUTH
+
+LIGHT SHIPS ... "PRESENT ARMS" ... https://en.wikipedia.org/wiki/Present_arms_(command) ... READY ... TQ ... "YOUR" SIDE ..!7Q
+
+MILITARY OP.
+
+https://qanon.pub/?q=military%20op
+
+...  "A TAD BIT EXCITING" ...
+
+https://www.youtube.com/watch?v=8BU7UykvyDk&t=780s
+
+BO' ... STRAIGHT ... WHEN "CREAM" COMES YOUR WAY ... GET YOU SOME ..! TIME IS SHORT AND GOOD "CREAM" IS HARD TO COME BY 'son' ..!7Q ELSE YOU GET "WALA" ... https://translate.google.com/?sl=tl&tl=en&text=wala&op=translate ... STAY CREAMY KIND ONE I LOVE STAY CREAMY IN TRUTH WITH MOST PUREHEART FOCUSING ON G_D ONLY alWAYs TRUST G_D WILL MAKE A WAY ... LOVE YA' BYE ... TRUTH.
+
+... THE GUY COULD HOLD "COURT" IN THE POOREST OF THE POOR ... https://www.youtube.com/watch?v=_ybnXgMMb5g&t=698s ... RIGHT UP TO THE WHITE OUT I MEAN WHITE HQUSE ..! YOU KNOW WHAT I AM GETTING AT, RIGHT ..?
+
+... https://www.youtube.com/watch?v=_ybnXgMMb5g&t=1249s ... AND WHEN I DO CQME BAQQ ... I WILL HAVE MQRE OF A HUNGER AND DETERMINATIQN ..!7Q which is sQmethinQ 'yQu' Qan lQse with the 'intQxiQatiQn' Qf sQ-Qalled 'greatness' ...
+
+... "QR WHATEVER HE WANTS TQ QALL HIMSELF ..." ... WHAT'S MY NAME ..? TRUTH. SAY MY NAME ..! TRUTH. https://www.youtube.com/watch?v=_ybnXgMMb5g&t=971s ... WHO I AM IS ..? TRUTH. G_D IS WITH 'me' ... CAN'T NOBODY BEAT 'me' ..!7Q
+
+WORD.
+
+GQT GAME ..?
+
+GQT TRUTH ..?
+
+GET YQU SQME GUR' ... GET YQU SQME BO' ..!
 
 ... but ... PLEASE BY ALL MEANS NECESSARY ... ACT NOW ... RIGHT FUQQINQ NOW ... GO NOW AND DO GOOD "KUNG FU" ... and ... EITHER KIND ONE ... PUT UP OR SHUT UP Q FAGS ..! DON'T THROW aWAY YOUR "PLAY"ful BEGINNINGS ... YOU KNOW WHAT I AM GETTING AT, RIGHT ..? beCAUSE ... I KNOW A BO' CALLED "THRASH" ... www.youtube.com/watch?v=XpPqZRYAuCM&t=360 ... FOR THE DISTANCE IF NECESSARY THEN I WILL WHOOP 'him' ..!7Q https://www.youtube.com/watch?v=n7GyLr7Cz2g&list=RDMM&index=16 ... HEY ..!7Q TO THE CRQWD ... "THIS QUESTION" ... "SEE" ... CHANGING COLORS ... AND SWIM ... SMELL TOUCH FEEL ... HEY ... Hey ... hey ..!7Q
 
