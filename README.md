@@ -2,6 +2,12 @@
 
 LIGHT SHIPS ... "PRESENT ARMS" ... https://en.wikipedia.org/wiki/Present_arms_(command) ... READY ... TQ ... "YOUR" SIDE ..!7Q
 
+MILITARY OP.
+
+...  "A TAD BIT EXCITING" ...
+
+https://www.youtube.com/watch?v=8BU7UykvyDk&t=780s
+
 BO' ... STRAIGHT ... WHEN "CREAM" COMES YOUR WAY ... GET YOU SOME ..! TIME IS SHORT AND GOOD "CREAM" IS HARD TO COME BY 'son' ..!7Q ELSE YOU GET "WALA" ... https://translate.google.com/?sl=tl&tl=en&text=wala&op=translate ... STAY CREAMY KIND ONE I LOVE STAY CREAMY IN TRUTH WITH MOST PUREHEART FOCUSING ON G_D ONLY alWAYs TRUST G_D WILL MAKE A WAY ... LOVE YA' BYE ... TRUTH.
 
 ... THE GUY COULD HOLD "COURT" IN THE POOREST OF THE POOR ... https://www.youtube.com/watch?v=_ybnXgMMb5g&t=698s ... RIGHT UP TO THE WHITE OUT I MEAN WHITE HQUSE ..! YOU KNOW WHAT I AM GETTING AT, RIGHT ..?
