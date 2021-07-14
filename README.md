@@ -1,5 +1,7 @@
 #i.Q
 
+WHAT DO "WE" WANT ..? CRYSTALLINE CLEAN PUREHEART "WATER" ..! https://www.youtube.com/watch?v=D1sWVjXhKfg ... WHEN DO "WE" WANT "IT" ..! NOW ..! RIGHT FUQQINQ NOW ..! YES MA'AM COMMANDER. MCPM.
+
 I AM DANCINQ ... MCPM ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..! BEFORE THE FIRE IS GONE ... Before The Fire Is Gone ... before the fire is gone ...
 
 ... IF YQUR NEQQ IS THIQQ ... AND NOTHING IS GOING RIGHT ... https://www.youtube.com/watch?v=xEkIou3WFnM ... CLOSE YOUR EYES AND THINK OF 'me' ... TO BRIGHTEN UP EVEN YOUR 'darkest' NIGHT ... I'LL COME RUNNIN' ... OH YEAH BABY ... TO "SEE" YOU AGAIN ... WINTER, SPRING, SUMMER OR FALL ... ALL YOU'VE GOT TO DO IS CALL ... AND I WILL BE THERE ... YOU'VE GQT A "FRIEND" ...
