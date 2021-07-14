@@ -1,5 +1,7 @@
 #i.Q
 
+BeFQRe ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=437s ... "THE FIRE" "IS" "GONE" ..!7Q
+
 CHECK MATE ...
 
 BeFQRe ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=388s ... "THE FIRE" "IS" "GONE" ..!7Q
