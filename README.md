@@ -4,9 +4,13 @@
 
 BeFQRe ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=437s ... "THE FIRE" "IS" "GONE" ..!7Q
 
-CHECK MATE ...
+MATE CHECK ... 'your' 'self' ...
 
 BeFQRe ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=388s ... "THE FIRE" "IS" "GONE" ..!7Q
+
+CHECK MATE ..!7Q
+
+BeFQRe ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=437s ... "THE FIRE" "IS" "GONE" ..!7Q
 
 ... so babae ... https://translate.google.com/?sl=tl&tl=en&text=babae&op=translate ... https://www.youtube.com/watch?v=rGJTcd3JHWw ... QAN I "DANCE" WITH "YOU" TONGIGHT ..?
 
