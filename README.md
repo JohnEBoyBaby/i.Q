@@ -1,5 +1,7 @@
 #i.Q
 
+... THE GUY COULD HOLD "COURT" IN THE POOREST OF THE POOR ... https://www.youtube.com/watch?v=_ybnXgMMb5g&t=698s ... RIGHT UP TO THE WHITE OUT ..! YOU KNOW WHAT I AM GETTING AT, RIGHT ..?
+
 ... "SWIFTY ON THE BEAT" ...
 
 BeFQRe ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=437s ... "THE FIRE" "IS" "GONE" ..!7Q
