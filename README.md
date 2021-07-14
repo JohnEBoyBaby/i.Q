@@ -40,6 +40,11 @@ Blessed are the PUREHEART for they shall see G_D. Matthew 5:8 https://biblehub.c
 
 TIMING IS EVERYTHING.
 
+https://qanon.pub/?q=Timing%20is%20everything
+
+TRUTH.
+ACCEPT NO IMITATION.
+
 SO WHAT'S UP B ..? WATCHING "THE GAME" ... https://www.youtube.com/watch?v=W8H1bg65TaM ... BQGINQ SQME BUD ... TRUE True true ... WHERE'S DQQQi ..? WHAT'S UP ..!7Q
 
 LONGITUDINAL PRESSURE WAVES ... TORSION ... ROTATION ... https://www.youtube.com/watch?v=MAwUQ54gfmw&t=2657s ... but in ancient TIMES ... THESE ARE THE 2 ABSOLUTELY ESSENTIAL INGREDIENTS ... IF YOU DON'T HAVE "THEM" THEN YOU DON'T HAVE "THIS" "PHYSICS" ... END QF DISCUSSIQN ... "NO QUESTION ABOUT IT" RIGHT DANIEL @ ... https://DarkJournalist.com ... RIGHT LOVELY OLIVIA ..? RIGHT MY LOVE RIGHT. TRUTH
