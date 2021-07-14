@@ -1,6 +1,6 @@
 #i.Q
 
-ISNPRIATION KO ... MY INSPIRATION ..! OH OH ... OH OH ... OH OH ... OH OH ... https://www.youtube.com/watch?v=qf7aYtaqfxQ ... MAHAL KO ... MY LOVE ..!7Q 
+INSPIRATION KO ... MY INSPIRATION ..! OH OH ... OH OH ... QH OH ... OH OH ... https://www.youtube.com/watch?v=qf7aYtaqfxQ ... MAHAL KO ... MY LOVE ..!7Q 
 
 ARAW ARAW ... EVERYDAY ... https://www.youtube.com/watch?v=9e0M2ldrP5g ... LET'S GO ..!
 
