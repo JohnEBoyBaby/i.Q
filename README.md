@@ -1,5 +1,9 @@
 #i.Q
 
+"THAT" IS MY PUSSY ... https://www.youtube.com/watch?v=NTC__g12xPs ... COME TAKE "IT" FROM "me' ... IN THE NETHER WORLDS ... I TAKE WHAT IS MINE ..!7Q PROMISE.
+
+TRUTH
+
 LIGHT SHIPS ... "PRESENT ARMS" ... https://en.wikipedia.org/wiki/Present_arms_(command) ... READY ... TQ ... "YOUR" SIDE ..!7Q
 
 MILITARY OP.
