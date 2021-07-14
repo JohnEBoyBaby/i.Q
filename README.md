@@ -2,6 +2,8 @@
 
 ... THE GUY COULD HOLD "COURT" IN THE POOREST OF THE POOR ... https://www.youtube.com/watch?v=_ybnXgMMb5g&t=698s ... RIGHT UP TO THE WHITE OUT I MEAN WHITE HQUSE ..! YOU KNOW WHAT I AM GETTING AT, RIGHT ..?
 
+... "QR WHATEVER HE WANTS TQ QALL HIMSELF ..." ... WHAT'S MY NAME ..? TRUTH. SAY MY NAME ..! TRUTH. https://www.youtube.com/watch?v=_ybnXgMMb5g&t=971s ... WHO I AM IS ..? TRUTH. G_D IS WITH 'me' ... CAN'T NOBODY BEAT 'me' ..!7Q
+
 ... "SWIFTY ON THE BEAT" ...
 
 BeFQRe ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=437s ... "THE FIRE" "IS" "GONE" ..!7Q
