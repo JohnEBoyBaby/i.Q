@@ -4,6 +4,8 @@ LIGHT SHIPS ... "PRESENT ARMS" ... https://en.wikipedia.org/wiki/Present_arms_(c
 
 MILITARY OP.
 
+https://qanon.pub/?q=military%20op
+
 ...  "A TAD BIT EXCITING" ...
 
 https://www.youtube.com/watch?v=8BU7UykvyDk&t=780s
