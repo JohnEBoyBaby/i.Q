@@ -1,6 +1,6 @@
 #i.Q
 
-"MY LIST" IS GOOD ... https://www.youtube.com/watch?v=RkKalbqNXWs&list=RDMM&index=25 ... WHILE "IT" LASTS ... BEFORE 'someone' DOES "YOU KNOW WHAT" TO HER MY beLOVEd WITH MOST PUREHEART IN TRUTH "MY LIST" ... TEARDROP ... TearDrop ... teardrop ...
+"MY LIST" IS GOOD ... https://www.youtube.com/watch?v=RkKalbqNXWs&list=RDMM&index=25 ... WHILE "IT" LASTS ... BEFORE 'someone' DOES "YOU KNOW WHAT" TO HER MY beLOVEd WITH MOST PUREHEART IN TRUTH "MY LIST" ... TEARDROP ... TearDrop ... teardrop ... WELL, 'they' added 'kill this love' I DO NOT LIKE THAT SONG ... IMAGINE THAT ... IT TOOK ONLY SECONDS TO CHANGE ..! but DON'T BE AFRAID TO TRY ... https://www.youtube.com/watch?v=b4YLo74OWfY ... BE AFRAID THAT YOU DIDN'T TRY ... THESE MOMENTS REMIND US WHY ..!7Q
 
 GO NOW ...
 
