@@ -2,7 +2,7 @@
 
 ... THE GUY COULD HOLD "COURT" IN THE POOREST OF THE POOR ... https://www.youtube.com/watch?v=_ybnXgMMb5g&t=698s ... RIGHT UP TO THE WHITE OUT I MEAN WHITE HQUSE ..! YOU KNOW WHAT I AM GETTING AT, RIGHT ..?
 
-... https://www.youtube.com/watch?v=_ybnXgMMb5g&t=1249s ... AND WHEN I DO CQME BAQQ ... I WILL HAVE MQRE OF A HUNGER AND DETERMINATIQN ..!7Q 'yQu' Qan lQse with sQ-Qalled 'greatness' ...
+... https://www.youtube.com/watch?v=_ybnXgMMb5g&t=1249s ... AND WHEN I DO CQME BAQQ ... I WILL HAVE MQRE OF A HUNGER AND DETERMINATIQN ..!7Q which is sQmethinQ 'yQu' Qan lQse with the 'intQxiQatiQn' Qf sQ-Qalled 'greatness' ...
 
 ... "QR WHATEVER HE WANTS TQ QALL HIMSELF ..." ... WHAT'S MY NAME ..? TRUTH. SAY MY NAME ..! TRUTH. https://www.youtube.com/watch?v=_ybnXgMMb5g&t=971s ... WHO I AM IS ..? TRUTH. G_D IS WITH 'me' ... CAN'T NOBODY BEAT 'me' ..!7Q
 
