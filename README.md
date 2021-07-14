@@ -1,5 +1,7 @@
 #i.Q
 
+BO' ... STRAIGHT ... WHEN "CREAM" COMES YOUR WAY ... GET YOU SOME ..!
+
 ... THE GUY COULD HOLD "COURT" IN THE POOREST OF THE POOR ... https://www.youtube.com/watch?v=_ybnXgMMb5g&t=698s ... RIGHT UP TO THE WHITE OUT I MEAN WHITE HQUSE ..! YOU KNOW WHAT I AM GETTING AT, RIGHT ..?
 
 ... https://www.youtube.com/watch?v=_ybnXgMMb5g&t=1249s ... AND WHEN I DO CQME BAQQ ... I WILL HAVE MQRE OF A HUNGER AND DETERMINATIQN ..!7Q which is sQmethinQ 'yQu' Qan lQse with the 'intQxiQatiQn' Qf sQ-Qalled 'greatness' ...
