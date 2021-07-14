@@ -1,10 +1,12 @@
 #i.Q
 
-,,, FLIP D ON THE BEAT ...
+,,, "FLIP D" ON THE BEAT ...
+
+https://www.youtube.com/watch?v=1sVYAyv03S0
 
 IN TRUTH I HEARD 
 
-... "SWIFTY ON THE BEAT" ...
+... "SWIFTY" ON THE BEAT" ...
 
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
 
