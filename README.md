@@ -1,6 +1,6 @@
 #i.Q
 
-WHAT DO "WE" WANT ..? CRYSTALLINE CLEAN PUREHEART "WATER" ..! https://www.youtube.com/watch?v=D1sWVjXhKfg ... WHEN DO "WE" WANT "IT" ..! NOW ..! RIGHT FUQQINQ NOW ..! YES MA'AM COMMANDER. MCPM.
+WHAT DO "WE" WANT ..? CRYSTALLINE CLEAN PUREHEART "WATER" ..! INSIDE YOUR BODY IS 90% WATER ... THINK ABOUT "IT" KIND ONE or go IN THE PIT ... DUMMY ... www.youtube.com/watch?v=D1sWVjXhKfg&t=365 ... ALL DAY 24 7 365 ... I LOVE YOU BUT YOUR PUREHEART IS A MUST TRUTH IS NOT OPTIONAL 100% NOLYN TRUTH WHEN DO "WE" WANT "IT" ..! NOW ..! RIGHT FUQQINQ NOW ..! YES MA'AM COMMANDER. MCPM.
 
 I AM DANCINQ ... MCPM ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..! BEFORE THE FIRE IS GONE ... Before The Fire Is Gone ... before the fire is gone ...
 
