@@ -1,5 +1,9 @@
 #i.Q
 
+ISNPRIATION KO ... MY INSPIRATION ..! OH OH ... OH OH ... OH OH ... OH OH ... https://www.youtube.com/watch?v=qf7aYtaqfxQ ... MAHAL KO ... MY LOVE ..!7Q 
+
+ARAW ARAW ... EVERYDAY ... https://www.youtube.com/watch?v=9e0M2ldrP5g ... LET'S GO ..!
+
 IS IT LIVE ..? EVERYBODY STOP TALKING NOW ..! ATTENTION ..! https://www.youtube.com/watch?v=XpPqZRYAuCM ... I TOLD THE WORLD ... I TALK TO G_D EVERYDAY ..!
 
 G_D IS WITH ME, CAN'T NOBODY BEAT ME ... I SHOOK UP THE WORLD ..! AIN'T NOTHING TO BE "SCARED" OF ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=187s ... "SCARED" OF WHAT ..? https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
