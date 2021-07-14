@@ -1,5 +1,7 @@
 #i.Q
 
+... "JUST LQQK AT IT" ... https://www.youtube.com/watch?v=3Jb8beui-LA&t=5477s ... DO YOU BELIEVE IN COINCIDENCES ..? https://www.youtube.com/watch?v=EF8GhC-T_Mo ... "1ST THINQ I alWAYs SAY is WOULD YOU JUST LOOK AT THAT ..!7Q JUST LOOK AT THAT ..!7Q https://szma.com/product/nizkovoltnye-elektrodvigateli-toshiba/ ... THE MORE YOU KNOW ... The More You Know ... the more you know ... so ... DUMMY ... JUST LOOK AT IT ..!"
+
 INSPIRATION KO ... MY INSPIRATION ..! OH OH ... OH OH ... QH OH ... OH OH ... https://www.youtube.com/watch?v=qf7aYtaqfxQ ... MAHAL KO ... MY LOVE ..!7Q 
 
 ARAW ARAW ... EVERYDAY ... https://www.youtube.com/watch?v=9e0M2ldrP5g ... LET'S GO ..!
