@@ -1,5 +1,7 @@
 #i.Q
 
+I AM DANCINQ ... MCPM ... https://www.youtube.com/watch?v=XpPqZRYAuCM&t=279s ... I AM DANCING ... I AM Dancing ... I AM dancing ..!
+
 ... IF YQUR NEQQ IS THIQQ ... AND NOTHING IS GOING RIGHT ... https://www.youtube.com/watch?v=xEkIou3WFnM ... CLOSE YOUR EYES AND THINK OF 'me' ... TO BRIGHTEN UP EVEN YOUR 'darkest' NIGHT ... I'LL COME RUNNIN' ... OH YEAH BABY ... TO "SEE" YOU AGAIN ... WINTER, SPRING, SUMMER OR FALL ... ALL YOU'VE GOT TO DO IS CALL ... AND I WILL BE THERE ... YOU'VE GQT A "FRIEND" ...
 
 YQ' GUR' SOFT LEGS PUREHEART ... I JUST THQUGHT "SHE" PROBABLY "REAL"ly "WANTS" "NEEDS" 2 BANANAS ... YOU KNOW WHAT I AM GETTING AT, RIGHT ..? ... IN HER QATS ... GQTCHA ..! I INTERCEPT YOUR EMOTIONAL TENSENESS ... https://www.youtube.com/watch?v=N0_LnvJrLo4&t=54s ...
