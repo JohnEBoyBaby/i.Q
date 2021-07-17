@@ -14,6 +14,8 @@ CREAMY.
 
 "THAT" "IS" "THE QUESTION".
 
+CHECK MATE.
+
 STAY CREAMY KIND ONE ... STAY QREAMY ..!7Q
 
 "THAT'S ALIENT IN 'his' NECK ..! LOOK AT THAT ..! 2 EYES IN HIS NEQQ ..!" ... TRUTH is marching on ..! https://www.youtube.com/watch?v=NW8El7UnfB4 ... HELLO RAP THE NEWS ... hQw abQut a 'nav' DANCE and drQppinQ the 'fear' GOOD SON ..! DANCE FOR 'me' KIND ONE I LOVE ..! 
