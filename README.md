@@ -26,9 +26,9 @@ SNAKE ... FRAUD ... IMITATION ... IMPOSTER ... FAKE ... NOT "FIRM" AND "FEELING"
 
 https://github.com/JohnEBoyBaby/i.Q/blob/main/.%200%200%200%200%200%200%200%200%200%200%200%200%200%200%200%200%200%201%201%203%204%20FIND%20HER%20LEE%20YEONA%20NOW%20RIGHT%20NOW%20TRUTH%20INCOMING%20...%2016%20...%20BE%20WATER%20MY%20FRIEND%20let%20your%20water%20flow%20my%20LOVE%20dance%20with%20me%200%20X%20MARKS%20THE%20SPOT.FIND%20HER.TY.LY.jpeg
 
-PAY ATTENTION TO DETAIL ..!
-
 THE "REAL" "SEAL". https://www.zerohedge.com/geopolitical/escobar-russia-china-advance-asian-roadmap-afghanistan ... 
+
+PAY ATTENTION TO DETAIL ..!
 
 LADIES AND GENTLE 'men' ... 
 
